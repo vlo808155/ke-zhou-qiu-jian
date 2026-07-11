@@ -9,13 +9,13 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E7%9B%B4%E5%87%BB%E4%B8%9C%E5%8C%97%E8%B6%85%EF%BC%9A%E6%B2%88%E9%98%B3vs%E5%93%88%E5%B0%94%E6%BB%A8&sa=fyb_news&rsv_dl=fyb_news"
 rank: 12
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "102cb1427dd0cd91822f"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "31fd6458d00a2d9bb6e7"
 ---
 
 # 直击东北超：沈阳vs哈尔滨
 
-> 来源：百度热搜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：百度热搜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -25,7 +25,7 @@ content_fingerprint: "102cb1427dd0cd91822f"
 
 - 来源平台：百度热搜
 - 当前排名：第 12 位
-- 热度：6656420
+- 热度：6662843
 - 固定索引：饮鸩止渴（yin-zhen-zhi-ke）
 
 ## 相关标签

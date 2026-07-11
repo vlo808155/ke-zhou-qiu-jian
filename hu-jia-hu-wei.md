@@ -9,13 +9,13 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E6%95%99%E8%82%B2%E9%83%A8%EF%BC%9A%E2%80%9C%E6%95%99%E5%B8%88%E5%85%A8%E9%9D%A2%E7%A1%95%E5%A3%AB%E5%8C%96%E2%80%9D%E7%B3%BB%E8%B0%A3%E8%A8%80&sa=fyb_news&rsv_dl=fyb_news"
 rank: 10
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "e9435b141760a510cc31"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "6a4fdf9c7928b7875a8c"
 ---
 
 # 教育部：“教师全面硕士化”系谣言
 
-> 来源：百度热搜 · 榜单排名：第 10 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：百度热搜 · 榜单排名：第 10 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -25,7 +25,7 @@ content_fingerprint: "e9435b141760a510cc31"
 
 - 来源平台：百度热搜
 - 当前排名：第 10 位
-- 热度：6851931
+- 热度：6853331
 - 固定索引：狐假虎威（hu-jia-hu-wei）
 
 ## 相关标签

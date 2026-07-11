@@ -10,13 +10,13 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1UjMn6hEXQ"
 rank: 9
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "66f6782d52bedf0e0b5f"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "f598f73c0b27920583a1"
 ---
 
 # 《下一个是谁》第七季（1）
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "66f6782d52bedf0e0b5f"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 9 位
-- 热度：2694816
+- 热度：2700579
 - 分类：日常
 - 固定索引：买椟还珠（mai-du-huan-zhu）
 

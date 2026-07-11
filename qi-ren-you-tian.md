@@ -10,13 +10,13 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1beM76pEBL"
 rank: 11
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "f4e65bd049ebb6cae41b"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "def106e885f6da45ddc5"
 ---
 
 # 这才是《The Other Side Of Paradise》原版MV！
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 11 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 11 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "f4e65bd049ebb6cae41b"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 11 位
-- 热度：1420217
+- 热度：1440346
 - 分类：MV
 - 固定索引：杞人忧天（qi-ren-you-tian）
 

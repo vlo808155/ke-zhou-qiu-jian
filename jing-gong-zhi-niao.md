@@ -10,13 +10,13 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1R9N76oEXy"
 rank: 10
-updated_at: "2026-07-11T20:11:28+08:00"
-content_fingerprint: "729c8bbc9f5c1c3e0ce3"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "a9d17c04ba69214c9358"
 ---
 
 # 吾从人族来，自当为人族竭尽全力！
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 10 位 · 更新时间：2026-07-11T20:11:28+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 10 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "729c8bbc9f5c1c3e0ce3"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 10 位
-- 热度：2176181
+- 热度：2184985
 - 分类：日常
 - 固定索引：惊弓之鸟（jing-gong-zhi-niao）
 

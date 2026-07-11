@@ -10,13 +10,13 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E5%91%A8%E6%98%9F%E9%A9%B0%E5%AE%98%E5%AE%A3%E6%98%9F%E5%A5%B3%E9%83%8E%E9%9B%AA%E9%87%8E"
 rank: 11
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "eeada33a7798d8e97d37"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "94b514879897d36bf80f"
 ---
 
 # 周星驰官宣星女郎雪野
 
-> 来源：微博热搜 · 榜单排名：第 11 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：微博热搜 · 榜单排名：第 11 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "eeada33a7798d8e97d37"
 
 - 来源平台：微博热搜
 - 当前排名：第 11 位
-- 热度：395152
+- 热度：549760
 - 分类：电影
 - 固定索引：鱼目混珠（yu-mu-hun-zhu）
 

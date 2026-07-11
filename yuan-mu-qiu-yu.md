@@ -10,13 +10,13 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2058945292020315835"
 rank: 12
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "cf1dffaae69cbb8c2de4"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "49cca390ece28ad3b957"
 ---
 
 # 长征十号乙回收时为什么会冒出大量黑烟？
 
-> 来源：知乎热榜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：知乎热榜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "cf1dffaae69cbb8c2de4"
 
 - 来源平台：知乎热榜
 - 当前排名：第 12 位
-- 热度：410 万热度
+- 热度：409 万热度
 - 分类：问答
 - 固定索引：缘木求鱼（yuan-mu-qiu-yu）
 

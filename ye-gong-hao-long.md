@@ -9,13 +9,13 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E7%9F%A5%E5%90%8D%E4%B8%BB%E6%8C%81%E4%BA%BA%E5%96%B7%E5%91%A8%E6%98%9F%E9%A9%B0%E6%96%B0%E7%94%B5%E5%BD%B1%EF%BC%9A%E5%A5%BD%E9%9A%BE%E7%9C%8B&sa=fyb_news&rsv_dl=fyb_news"
 rank: 9
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "7cf8b8321901115cef66"
+updated_at: "2026-07-11T20:17:57+08:00"
+content_fingerprint: "45ebc6db5c77ee45ca48"
 ---
 
 # 知名主持人喷周星驰新电影：好难看
 
-> 来源：百度热搜 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：百度热搜 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:17:57+08:00
 
 ## 热点正文
 
@@ -25,7 +25,7 @@ content_fingerprint: "7cf8b8321901115cef66"
 
 - 来源平台：百度热搜
 - 当前排名：第 9 位
-- 热度：6945140
+- 热度：6944686
 - 固定索引：叶公好龙（ye-gong-hao-long）
 
 ## 相关标签
