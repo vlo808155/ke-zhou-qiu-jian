@@ -2,11 +2,11 @@
 
 # 魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】
 
-> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：1126016 · 分类：人文历史 · 更新：2026-07-11T20:56:41+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：1127656 · 分类：人文历史 · 更新：2026-07-11T20:57:19+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】”位列第 12 位，公开热度指标为 1126016，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】”位列第 12 位，公开热度指标为 1127656，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：一键三连推荐给更多朋友！
 
@@ -19,17 +19,17 @@
 ## 相关热点
 
 - [直击东北超：沈阳vs哈尔滨](yin-zhen-zhi-ke.md)
-- [功夫女足票房已破2亿](ke-zhou-qiu-jian.md)
-- [应对台风上海转移3.4万人](yan-er-dao-ling.md)
+- [南非25岁世界杯参赛球员去世](ke-zhou-qiu-jian.md)
+- [朝鲜通报特大腐败犯罪](yan-er-dao-ling.md)
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](nan-yuan-bei-zhe.md)
 
 ## 站内推荐
 
 - [你会去看周星驰的新电影《功夫女足》吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [吾从人族来，自当为人族竭尽全力！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
 - [金鳞岂是池中物，哄好岳母便化龙](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [150斤男记者在浙江沿海被吹到变形](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [浙江湖州市长：全面进入战时状态](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 960c9804261c2250928d -->
+<!-- content-fingerprint: 0673bed5021fc87bc004 -->

@@ -2,11 +2,11 @@
 
 # 16岁高中生踢门玩闹后被捅杀
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6755766 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6753148 · 更新：2026-07-11T20:57:19+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“16岁高中生踢门玩闹后被捅杀”位列第 11 位，公开热度指标为 6755766。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“16岁高中生踢门玩闹后被捅杀”位列第 11 位，公开热度指标为 6753148。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：5月24日凌晨近2时许，内蒙古乌拉特前旗一名36岁男子在路边巷子口，将一名16岁高中生捅倒在地。遇害者母亲史女士告诉记者，当晚儿子与几名同学一起庆祝刚结束的全旗中小学生田径运动会，饭后一行人路过一巷子内的营业场所时拍门玩闹，随后儿子在巷口被疑似为该场所工作人员捅刺。
 
@@ -18,7 +18,7 @@
 
 ## 相关热点
 
-- [上海天空](dui-niu-tan-qin.md)
+- [台风巴威1小时走30到50公里](dui-niu-tan-qin.md)
 - [女儿女婿自杀后妈妈投身防性侵宣传](mang-ren-mo-xiang.md)
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](yuan-mu-qiu-yu.md)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](sha-ji-qu-luan.md)
@@ -27,8 +27,8 @@
 
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [日本可回收火箭着陆成功 仅飞11米](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [最新研判！台风巴威登陆时间或提前](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [日本可回收火箭着陆成功 仅飞11米](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
 - [小米澎程起售价预测](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6e70805ec87a8d9eeab8 -->
+<!-- content-fingerprint: 09567de9926dbfe4c9bf -->
