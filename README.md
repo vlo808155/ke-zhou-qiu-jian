@@ -2,17 +2,17 @@
 
 实时热点内容索引。页面采集公开榜单的标题、摘要、排名与来源链接，每 10 分钟检查一次，仅在榜单内容变化时提交更新。
 
-最后更新：2026-07-11T20:42:49+08:00
+最后更新：2026-07-11T20:44:42+08:00
 
 | 序号 | 热点标题 | 来源 | 固定成语索引 |
 | ---: | --- | --- | --- |
 | 1 | [南非25岁世界杯参赛球员去世](ke-zhou-qiu-jian.md) | 微博热搜 | 刻舟求剑 / `ke-zhou-qiu-jian` |
-| 2 | [哈兰德能率挪威淘汰英格兰吗](yan-er-dao-ling.md) | 今日头条热榜 | 掩耳盗铃 / `yan-er-dao-ling` |
+| 2 | [朝鲜通报特大腐败犯罪](yan-er-dao-ling.md) | 今日头条热榜 | 掩耳盗铃 / `yan-er-dao-ling` |
 | 3 | [长征十号乙回收时为什么会冒出大量黑烟？](nan-yuan-bei-zhe.md) | 知乎热榜 | 南辕北辙 / `nan-yuan-bei-zhe` |
 | 4 | [《下一个是谁》第七季（1）](mai-du-huan-zhu.md) | 哔哩哔哩热门 | 买椟还珠 / `mai-du-huan-zhu` |
 | 5 | [知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md) | 百度热搜 | 叶公好龙 / `ye-gong-hao-long` |
 | 6 | [HLE翻车](lan-yu-chong-shu.md) | 微博热搜 | 滥竽充数 / `lan-yu-chong-shu` |
-| 7 | [河南多地路面突破72℃](zi-xiang-mao-dun.md) | 今日头条热榜 | 自相矛盾 / `zi-xiang-mao-dun` |
+| 7 | [哈兰德能率挪威淘汰英格兰吗](zi-xiang-mao-dun.md) | 今日头条热榜 | 自相矛盾 / `zi-xiang-mao-dun` |
 | 8 | [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](bei-gong-she-ying.md) | 知乎热榜 | 杯弓蛇影 / `bei-gong-she-ying` |
 | 9 | [我----问你为什么要折断奥特钥匙！大结局！（中）](jing-gong-zhi-niao.md) | 哔哩哔哩热门 | 惊弓之鸟 / `jing-gong-zhi-niao` |
 | 10 | [教育部：“教师全面硕士化”系谣言](hu-jia-hu-wei.md) | 百度热搜 | 狐假虎威 / `hu-jia-hu-wei` |

@@ -10,15 +10,15 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2058945292020315835"
 rank: 9
-updated_at: "2026-07-11T20:42:49+08:00"
-content_fingerprint: "14dab1fffe868a43040a"
+updated_at: "2026-07-11T20:44:42+08:00"
+content_fingerprint: "afe94ecadfa3bc53396f"
 ---
 
 [热点索引](README.md) / 南辕北辙 / 长征十号乙回收时为什么会冒出大量黑烟？
 
 # 长征十号乙回收时为什么会冒出大量黑烟？
 
-> 来源：知乎热榜 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:42:49+08:00
+> 来源：知乎热榜 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:44:42+08:00
 
 ## 事件概览
 
@@ -55,11 +55,11 @@ content_fingerprint: "14dab1fffe868a43040a"
 - [《下一个是谁》第七季（1）](mai-du-huan-zhu.md)（买椟还珠）
 - [知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md)（叶公好龙）
 - [HLE翻车](lan-yu-chong-shu.md)（滥竽充数）
-- [河南多地路面突破72℃](zi-xiang-mao-dun.md)（自相矛盾）
+- [哈兰德能率挪威淘汰英格兰吗](zi-xiang-mao-dun.md)（自相矛盾）
 
 ## 前后篇导航
 
-- 上一篇：[哈兰德能率挪威淘汰英格兰吗](yan-er-dao-ling.md)（掩耳盗铃）
+- 上一篇：[朝鲜通报特大腐败犯罪](yan-er-dao-ling.md)（掩耳盗铃）
 - 下一篇：[《下一个是谁》第七季（1）](mai-du-huan-zhu.md)（买椟还珠）
 
 ## 热点仓库导航
