@@ -2,11 +2,11 @@
 
 # 教育部：“教师全面硕士化”系谣言
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6853930 · 更新：2026-07-12T04:27:05+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6857832 · 更新：2026-07-12T04:28:48+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“教育部：“教师全面硕士化”系谣言”位列第 10 位，公开热度指标为 6853930。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“教育部：“教师全面硕士化”系谣言”位列第 10 位，公开热度指标为 6857832。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：近期，网络上出现“教师全面硕士化、本科毕业已无法进入教师岗位”“教师需做好失业准备”等传言。经向教育部有关部门核实，上述说法均不属实。
 
@@ -26,9 +26,9 @@
 ## 站内推荐
 
 - [路怒症被反杀，真的很解气](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [曝25岁南非国脚自杀离世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [北京暴雨红色预警](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [“两倍的价格 我买100吨西瓜”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [救援期间冒雨吃饭的消防员找到了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
 - [万物都能撞脸哈兰德](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
@@ -37,15 +37,15 @@
 <summary>展开更多相关内容</summary>
 
 - [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.daogukj.com/0517179)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.daogukj.com/0517179)
 - [冉莹颖邹市明这段看窒息了](http://www.daogukj.com/yzfviyov/)
 - [好震撼的一句话瞬间醍醐灌顶](http://www.movie.hkepx.cn/xiju/0529283.htm)
 - [知名主持人喷周星驰新电影：好难看](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
 - [世界杯半决赛，法国将对阵西班牙，强强对抗，谁会更胜一筹?](http://www.daogukj.com/1191355)
 - [台风巴威已登陆](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.daogukj.com/2850206)
+- [《功夫女足》猫眼开分9.4](http://www.daogukj.com/2850206)
 - [无人机吊起2人神图系AI合成](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [北京暴雨红色预警](http://www.daogukj.com/5364901)
+- [浙江惊现“台风霞”粉紫色天空](http://www.daogukj.com/5364901)
 - [台风巴威二次登陆](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
 - [女孩遭前男友杀害被逼每日视频8次](http://www.daogukj.com/nisjsldl/)
 - [浙江海边掀起10多米巨浪](http://www.daogukj.com/xvspcmfq/)
@@ -68,7 +68,7 @@
 - [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
 - [上海中心千吨阻尼器开始摆动](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [曝25岁南非国脚自杀离世](http://www.daogukj.com/qkjpzqjb/)
+- [“两倍的价格 我买100吨西瓜”](http://www.daogukj.com/qkjpzqjb/)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.movie.hkepx.cn/movie/5245486.htm)
 - [巴威逼近 上海已紧急撤离3.4万人](http://www.movie.hkepx.cn/xiju/8042790.htm)
 - [巴威最新位置](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
@@ -79,10 +79,10 @@
 - [大风中上海机场绑完飞机绑舷梯](http://www.daogukj.com/ihugvxjr/)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.movie.hkepx.cn/movie/4579345.htm)
 - [广西贵港原副市长潘汉胜被双开](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [桃黑黑直播回应](http://www.daogukj.com/owscegnp/)
+- [南非25岁世界杯参赛球员去世](http://www.daogukj.com/owscegnp/)
 - [你们觉得哪个菜系是八大菜系之首？](http://www.movie.hkepx.cn/xiju/7089965.htm)
 - [【老番茄/某幻】你毕业啦！](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [杭州 台风](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [诺斯科娃温网女单冠军](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
 - [直接工作与读大专，哪个更划算？](http://www.daogukj.com/9324764)
 - [功夫女足票房已破2亿](http://www.daogukj.com/awlcbyru/)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.daogukj.com/5750670)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5d91b825598356c10b2c -->
+<!-- content-fingerprint: 050f459a5779d0ae24fe -->

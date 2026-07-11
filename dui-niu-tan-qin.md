@@ -2,7 +2,7 @@
 
 # 你们觉得哪个菜系是八大菜系之首？
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：91 万热度 · 分类：问答 · 更新：2026-07-12T04:27:05+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：91 万热度 · 分类：问答 · 更新：2026-07-12T04:28:48+08:00
 
 ## 热点正文
 
@@ -19,7 +19,7 @@
 ## 相关热点
 
 - [《和最讨厌的人灵魂互换了》完整版](mang-ren-mo-xiang.md)
-- [北京暴雨红色预警](yuan-mu-qiu-yu.md)
+- [浙江惊现“台风霞”粉紫色天空](yuan-mu-qiu-yu.md)
 - [温州台风](sha-ji-qu-luan.md)
 - [女儿女婿自杀后妈妈投身防性侵宣传](yin-zhen-zhi-ke.md)
 
@@ -51,17 +51,17 @@
 - [世界杯半决赛，法国将对阵西班牙，强强对抗，谁会更胜一筹?](http://www.daogukj.com/wecagjke/)
 - [张辽为何没有成为曹魏军事集团的核心？](http://www.daogukj.com/8911687)
 - [台风巴威实时路径](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [《功夫女足》猫眼开分9.4](http://www.movie.hkepx.cn/xiju/6645788.htm)
 - [功夫女足票房已破2亿](http://www.movie.hkepx.cn/xiju/9394899.htm)
 - [杭州20分钟变了4个色](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
 - [挪威主厨没想到会进8强](http://www.daogukj.com/sfshhzje/)
 - [周星驰林子聪“callback”少林足球](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [桃黑黑直播回应](http://www.daogukj.com/6469340)
+- [南非25岁世界杯参赛球员去世](http://www.daogukj.com/6469340)
 - [广西贵港原副市长潘汉胜被双开](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [《功夫女足》猫眼开分9.4](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [手麻脚麻真的要赶紧进医院](http://www.movie.hkepx.cn/xiju/6637455.htm)
 - [上海中心1000吨阻尼器开始摆动](http://www.daogukj.com/ezqthdyk/)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.movie.hkepx.cn/movie/8362403.htm)
 - [曝余承东内部群发飙](http://www.daogukj.com/blmliwwv/)
@@ -70,20 +70,20 @@
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.daogukj.com/8913120)
 - [台风“巴威”在浙江乐清二次登陆](http://www.daogukj.com/8931072)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [“两倍的价格 我买100吨西瓜”](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/xiju/2847418.htm)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.daogukj.com/nrrtwuij/)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
 - [宝妈手麻3小时确诊脑梗进抢救室](http://www.daogukj.com/emrfuprm/)
 - [霸占车位女干部已停职](http://www.movie.hkepx.cn/movie/7899876.htm)
 - [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.movie.hkepx.cn/xiju/7135879.htm)
 - [台风巴威在浙江玉环登陆](http://www.daogukj.com/obfbkvuj/)
-- [北京暴雨红色预警](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [浙江惊现“台风霞”粉紫色天空](http://www.movie.hkepx.cn/xiju/2876935.htm)
 - [台风巴威已登陆](http://www.movie.hkepx.cn/xiju/8438607.htm)
 - [台风巴威1小时走30到50公里](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
 - [全国电力应急支援能力大幅提升](http://www.daogukj.com/8210319)
 - [台风巴威在浙江台州玉环登陆，中心附近最大风力 13 级，你家那里怎么样？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [丁程鑫说王俊凯太能存钱了](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [广西洪水](http://www.movie.hkepx.cn/xiju/1710411.htm)
 - [各地全力以赴防范台风巴威](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
 - [台风](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 20183e1b03b2f8676ff6 -->
+<!-- content-fingerprint: 0bff22707b7013237340 -->
