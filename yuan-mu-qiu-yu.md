@@ -10,15 +10,15 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2058959918087018226"
 rank: 12
-updated_at: "2026-07-11T20:44:42+08:00"
-content_fingerprint: "1dec1e672e65733f3690"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "97e757c0f6b3fdf615a1"
 ---
 
 [热点索引](README.md) / 缘木求鱼 / 商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？
 
 # 商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？
 
-> 来源：知乎热榜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:44:42+08:00
+> 来源：知乎热榜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "1dec1e672e65733f3690"
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？”位列第 12 位，公开热度指标为 359 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？”位列第 12 位，公开热度指标为 335 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：商务部 海关总署公告2026年第29号 公布对氦气实施临时禁止出口管理 依据《中华人民共和国对外贸易法》有关规定，商务部、海关总署决定对氦气（海关商品编号：2804290010）实施临时禁止出口管理。 本公告自公布之日起执行，后续相关调整将另行公告。 商务部 海关总署 2026年7月10日 https://m.thepaper.cn/newsDetail_forward_33558415
 
@@ -36,7 +36,7 @@ content_fingerprint: "1dec1e672e65733f3690"
 
 - 来源平台：知乎热榜
 - 当前排名：第 12 位
-- 热度：359 万热度
+- 热度：335 万热度
 - 分类：问答
 - 固定索引：缘木求鱼（yuan-mu-qiu-yu）
 
@@ -77,56 +77,56 @@ content_fingerprint: "1dec1e672e65733f3690"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [知乎热榜延伸阅读 1](https://www.abc.com/1225207.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/5158808.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/9105847.html)
-- [问答延伸阅读 4](https://www.abc.com/8639589.html)
-- [知乎热榜延伸阅读 5](https://www.abc.com/6192326.html)
-- [实时热搜延伸阅读 6](https://www.abc.com/spozdybi.html)
-- [热点资讯延伸阅读 7](https://www.abc.com/6634139.html)
-- [问答延伸阅读 8](https://www.abc.com/6164094.html)
-- [知乎热榜延伸阅读 9](https://www.abc.com/3553317.html)
-- [实时热搜延伸阅读 10](https://www.abc.com/alorhdim.html)
-- [热点资讯延伸阅读 11](https://www.abc.com/xzslzhqg.html)
-- [问答延伸阅读 12](https://www.abc.com/kqurawua.html)
-- [知乎热榜延伸阅读 13](https://www.abc.com/hhubtlxf.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/6031465.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/8928824.html)
-- [问答延伸阅读 16](https://www.abc.com/laqhbsbr.html)
-- [知乎热榜延伸阅读 17](https://www.abc.com/brnnxbqx.html)
-- [实时热搜延伸阅读 18](https://www.abc.com/tognldjh.html)
-- [热点资讯延伸阅读 19](https://www.abc.com/tqevcqnv.html)
-- [问答延伸阅读 20](https://www.abc.com/0371908.html)
-- [知乎热榜延伸阅读 21](https://www.abc.com/4219605.html)
-- [实时热搜延伸阅读 22](https://www.abc.com/5190244.html)
-- [热点资讯延伸阅读 23](https://www.abc.com/5317068.html)
-- [问答延伸阅读 24](https://www.abc.com/3850582.html)
-- [知乎热榜延伸阅读 25](https://www.abc.com/5062391.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/1834842.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/6223637.html)
-- [问答延伸阅读 28](https://www.abc.com/dcxrfeuo.html)
-- [知乎热榜延伸阅读 29](https://www.abc.com/xynirfcl.html)
-- [实时热搜延伸阅读 30](https://www.abc.com/lkycrfbv.html)
-- [热点资讯延伸阅读 31](https://www.abc.com/3947278.html)
-- [问答延伸阅读 32](https://www.abc.com/dhaddmgr.html)
-- [知乎热榜延伸阅读 33](https://www.abc.com/mhqcguvx.html)
-- [实时热搜延伸阅读 34](https://www.abc.com/oawijesg.html)
-- [热点资讯延伸阅读 35](https://www.abc.com/9318208.html)
-- [问答延伸阅读 36](https://www.abc.com/vqejofyl.html)
-- [知乎热榜延伸阅读 37](https://www.abc.com/1512301.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/fbebvgdo.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/0026785.html)
-- [问答延伸阅读 40](https://www.abc.com/wojbycsc.html)
-- [知乎热榜延伸阅读 41](https://www.abc.com/0639543.html)
-- [实时热搜延伸阅读 42](https://www.abc.com/3604222.html)
-- [热点资讯延伸阅读 43](https://www.abc.com/wdqdordt.html)
-- [问答延伸阅读 44](https://www.abc.com/6449676.html)
-- [知乎热榜延伸阅读 45](https://www.abc.com/0544190.html)
-- [实时热搜延伸阅读 46](https://www.abc.com/iwaxboux.html)
-- [热点资讯延伸阅读 47](https://www.abc.com/4208186.html)
-- [问答延伸阅读 48](https://www.abc.com/3265588.html)
-- [知乎热榜延伸阅读 49](https://www.abc.com/6296150.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/serygejp.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/1225207.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/5158808.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/9105847.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/8639589.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/6192326.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/spozdybi.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/6634139.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/6164094.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/3553317.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/alorhdim.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/xzslzhqg.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/kqurawua.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/hhubtlxf.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/6031465.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/8928824.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/laqhbsbr.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/brnnxbqx.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/tognldjh.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/tqevcqnv.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/0371908.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/4219605.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/5190244.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/5317068.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/3850582.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/5062391.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/1834842.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/6223637.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/dcxrfeuo.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/xynirfcl.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/lkycrfbv.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/3947278.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/dhaddmgr.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/mhqcguvx.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/oawijesg.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/9318208.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/vqejofyl.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/1512301.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/fbebvgdo.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/0026785.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/wojbycsc.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/0639543.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/3604222.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/wdqdordt.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/6449676.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/0544190.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/iwaxboux.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/4208186.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/3265588.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/6296150.html)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/serygejp.html)
 
 </details>
 

@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1kANJ66Ex5"
 rank: 10
-updated_at: "2026-07-11T20:44:42+08:00"
-content_fingerprint: "f8f1d54b8748e5b5718a"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "4aacd09b7e4e34fc20e4"
 ---
 
 [热点索引](README.md) / 惊弓之鸟 / 我----问你为什么要折断奥特钥匙！大结局！（中）
 
 # 我----问你为什么要折断奥特钥匙！大结局！（中）
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 10 位 · 更新时间：2026-07-11T20:44:42+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 10 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "f8f1d54b8748e5b5718a"
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“我----问你为什么要折断奥特钥匙！大结局！（中）”位列第 10 位，公开热度指标为 809142，榜单分类为“特摄”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“我----问你为什么要折断奥特钥匙！大结局！（中）”位列第 10 位，公开热度指标为 814483，榜单分类为“特摄”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：-
 
@@ -36,7 +36,7 @@ content_fingerprint: "f8f1d54b8748e5b5718a"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 10 位
-- 热度：809142
+- 热度：814483
 - 分类：特摄
 - 固定索引：惊弓之鸟（jing-gong-zhi-niao）
 
@@ -77,56 +77,56 @@ content_fingerprint: "f8f1d54b8748e5b5718a"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [哔哩哔哩热门延伸阅读 1](https://www.abc.com/avchhebx.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/4599577.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/mtgwlmyw.html)
-- [特摄延伸阅读 4](https://www.abc.com/kacmoomr.html)
-- [哔哩哔哩热门延伸阅读 5](https://www.abc.com/3182727.html)
-- [实时热搜延伸阅读 6](https://www.abc.com/vnaedvkm.html)
-- [热点资讯延伸阅读 7](https://www.abc.com/7286812.html)
-- [特摄延伸阅读 8](https://www.abc.com/2918689.html)
-- [哔哩哔哩热门延伸阅读 9](https://www.abc.com/9889938.html)
-- [实时热搜延伸阅读 10](https://www.abc.com/qecpwzam.html)
-- [热点资讯延伸阅读 11](https://www.abc.com/5999372.html)
-- [特摄延伸阅读 12](https://www.abc.com/2082486.html)
-- [哔哩哔哩热门延伸阅读 13](https://www.abc.com/7453607.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/7080922.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/yfgrkbjq.html)
-- [特摄延伸阅读 16](https://www.abc.com/hepdnoxa.html)
-- [哔哩哔哩热门延伸阅读 17](https://www.abc.com/3383551.html)
-- [实时热搜延伸阅读 18](https://www.abc.com/qffougmn.html)
-- [热点资讯延伸阅读 19](https://www.abc.com/5986086.html)
-- [特摄延伸阅读 20](https://www.abc.com/rtwtwnjn.html)
-- [哔哩哔哩热门延伸阅读 21](https://www.abc.com/8469828.html)
-- [实时热搜延伸阅读 22](https://www.abc.com/9938068.html)
-- [热点资讯延伸阅读 23](https://www.abc.com/1279503.html)
-- [特摄延伸阅读 24](https://www.abc.com/3640970.html)
-- [哔哩哔哩热门延伸阅读 25](https://www.abc.com/mnadwjxy.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/1379651.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/hnblugqw.html)
-- [特摄延伸阅读 28](https://www.abc.com/lquhtzqq.html)
-- [哔哩哔哩热门延伸阅读 29](https://www.abc.com/7441205.html)
-- [实时热搜延伸阅读 30](https://www.abc.com/6187476.html)
-- [热点资讯延伸阅读 31](https://www.abc.com/6447703.html)
-- [特摄延伸阅读 32](https://www.abc.com/umuasjpv.html)
-- [哔哩哔哩热门延伸阅读 33](https://www.abc.com/4430824.html)
-- [实时热搜延伸阅读 34](https://www.abc.com/ujaltlih.html)
-- [热点资讯延伸阅读 35](https://www.abc.com/7021885.html)
-- [特摄延伸阅读 36](https://www.abc.com/0437195.html)
-- [哔哩哔哩热门延伸阅读 37](https://www.abc.com/1422415.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/xcakjkzl.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/szgczmuq.html)
-- [特摄延伸阅读 40](https://www.abc.com/zhpshhff.html)
-- [哔哩哔哩热门延伸阅读 41](https://www.abc.com/dvsacgha.html)
-- [实时热搜延伸阅读 42](https://www.abc.com/yysouwkw.html)
-- [热点资讯延伸阅读 43](https://www.abc.com/uxhqcjab.html)
-- [特摄延伸阅读 44](https://www.abc.com/fvbukqhc.html)
-- [哔哩哔哩热门延伸阅读 45](https://www.abc.com/mndcmetz.html)
-- [实时热搜延伸阅读 46](https://www.abc.com/phhocong.html)
-- [热点资讯延伸阅读 47](https://www.abc.com/fgbthmmd.html)
-- [特摄延伸阅读 48](https://www.abc.com/jzkkzlzb.html)
-- [哔哩哔哩热门延伸阅读 49](https://www.abc.com/2517094.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/3204174.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/avchhebx.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/4599577.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/mtgwlmyw.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/kacmoomr.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/3182727.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/vnaedvkm.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/7286812.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/2918689.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/9889938.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/qecpwzam.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/5999372.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/2082486.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/7453607.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/7080922.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/yfgrkbjq.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/hepdnoxa.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/3383551.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/qffougmn.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/5986086.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/rtwtwnjn.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/8469828.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/9938068.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/1279503.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/3640970.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/mnadwjxy.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/1379651.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/hnblugqw.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/lquhtzqq.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/7441205.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/6187476.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/6447703.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/umuasjpv.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/4430824.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/ujaltlih.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/7021885.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/0437195.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/1422415.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/xcakjkzl.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/szgczmuq.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/zhpshhff.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/dvsacgha.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/yysouwkw.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/uxhqcjab.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/fvbukqhc.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/mndcmetz.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/phhocong.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/fgbthmmd.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/jzkkzlzb.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/2517094.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/3204174.html)
 
 </details>
 
