@@ -2,7 +2,7 @@
 
 # 《下一个是谁》第七季（1）
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：2743813 · 分类：日常 · 更新：2026-07-11T21:07:39+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：2743813 · 分类：日常 · 更新：2026-07-11T21:08:21+08:00
 
 ## 热点正文
 
@@ -18,9 +18,9 @@
 
 ## 相关热点
 
-- [浙江惊现“台风霞”粉紫色天空](ye-gong-hao-long.md)
+- [知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md)
 - [HLE晋级MSI决赛](lan-yu-chong-shu.md)
-- [应对台风上海转移3.4万人](zi-xiang-mao-dun.md)
+- [巴威路线东移](zi-xiang-mao-dun.md)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](bei-gong-she-ying.md)
 
 ## 站内推荐
@@ -39,10 +39,10 @@
 - [杭州 台风](https://www.abc.com/1552124.html)
 - [HLE晋级MSI决赛](https://www.abc.com/1707112.html)
 - [吾从人族来，自当为人族竭尽全力！](https://www.abc.com/8160857.html)
-- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/4213067.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4213067.html)
 - [15岁男生因女同桌送画遭围殴](https://www.abc.com/osvtdblz.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](https://www.abc.com/ijxldbwo.html)
-- [应对台风上海转移3.4万人](https://www.abc.com/7014627.html)
+- [巴威路线东移](https://www.abc.com/7014627.html)
 - [曝25岁南非国脚自杀离世](https://www.abc.com/huhkijbf.html)
 - [周星驰官宣星女郎雪野](https://www.abc.com/mmovqexd.html)
 - [这才是《The Other Side Of Paradise》原版MV！](https://www.abc.com/ejzpyokv.html)
@@ -65,7 +65,7 @@
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://www.abc.com/3190924.html)
 - [北京暴雨红色预警](https://www.abc.com/9960935.html)
 - [日媒拆台日本火箭只飞了11米](https://www.abc.com/6880353.html)
-- [《和最讨厌的人灵魂互换了》完整版](https://www.abc.com/otxpaqax.html)
+- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://www.abc.com/otxpaqax.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](https://www.abc.com/amagzvvi.html)
 - [PC今日公测！《遗忘之海》PV「初航乐章」](https://www.abc.com/wznfyvtr.html)
 - [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](https://www.abc.com/booccvfx.html)
@@ -73,13 +73,13 @@
 - [南非25岁世界杯参赛球员去世](https://www.abc.com/plajxjkm.html)
 - [北京9区市民非必要不外出](https://www.abc.com/hafidchx.html)
 - [功夫女足票房已破2亿](https://www.abc.com/vtqiwsoo.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/1714904.html)
+- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/1714904.html)
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](https://www.abc.com/pboutcds.html)
 - [直击东北超：沈阳vs哈尔滨](https://www.abc.com/ebvewqqg.html)
 - [哈兰德PK凯恩 世一锋终极对决](https://www.abc.com/1256659.html)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](https://www.abc.com/jsdcdlpy.html)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](https://www.abc.com/frsexjza.html)
-- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/3969396.html)
+- [《和最讨厌的人灵魂互换了》完整版](https://www.abc.com/3969396.html)
 - [TF四代考核人气分](https://www.abc.com/ovnmsdtg.html)
 - [《大扫除是你的谎言》](https://www.abc.com/tmkvdpok.html)
 - [四川再发山洪灾害蓝色预警](https://www.abc.com/2383349.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c4cc28296d149ce1497f -->
+<!-- content-fingerprint: 08eef4ddfe2771b17c58 -->

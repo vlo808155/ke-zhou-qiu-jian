@@ -2,11 +2,11 @@
 
 # 周星驰官宣星女郎雪野
 
-> 来源：微博热搜 · 排名：第 11 位 · 热度：370065 · 分类：电影 · 更新：2026-07-11T21:07:39+08:00
+> 来源：微博热搜 · 排名：第 11 位 · 热度：357801 · 分类：电影 · 更新：2026-07-11T21:08:21+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“周星驰官宣星女郎雪野”位列第 11 位，公开热度指标为 370065，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“周星驰官宣星女郎雪野”位列第 11 位，公开热度指标为 357801，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -29,7 +29,7 @@
 - [曝25岁南非国脚自杀离世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
 - [功夫女足票房已破2亿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
 - [长沙市体育局干部彭某某被停职](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [新兵清淤任务中受伤心里又愧又急](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [杭州地铁停运](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
@@ -43,8 +43,8 @@
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/uqazmzsv.html)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](https://www.abc.com/7806061.html)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](https://www.abc.com/bctodwzz.html)
-- [巴威路线东移](https://www.abc.com/srykjkve.html)
-- [杭州地铁停运](https://www.abc.com/cpbxnyoi.html)
+- [应对台风上海转移3.4万人](https://www.abc.com/srykjkve.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/cpbxnyoi.html)
 - [霸占车位女干部已停职](https://www.abc.com/kugfzvfx.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](https://www.abc.com/5118311.html)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](https://www.abc.com/1454729.html)
@@ -56,8 +56,8 @@
 - [杭州：台风影响期间非必要不外出](https://www.abc.com/2612812.html)
 - [长征十号乙回收时为什么会冒出大量黑烟？](https://www.abc.com/5026930.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](https://www.abc.com/lyqwjaav.html)
-- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/lbvcgnov.html)
-- [巴威逼近 上海已紧急撤离3.4万人](https://www.abc.com/5586015.html)
+- [朝鲜通报特大腐败犯罪](https://www.abc.com/lbvcgnov.html)
+- [浙江惊现“台风霞”粉紫色天空](https://www.abc.com/5586015.html)
 - [暑期防汛科普小知识请查收](https://www.abc.com/afljzbnx.html)
 - [杭州 台风](https://www.abc.com/6023605.html)
 - [巴威实时路径](https://www.abc.com/2376774.html)
@@ -77,15 +77,15 @@
 - [TF四代考核人气分](https://www.abc.com/8222139.html)
 - [哈兰德PK凯恩 世一锋终极对决](https://www.abc.com/xvpbnvqo.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](https://www.abc.com/fskxvtcl.html)
-- [《和最讨厌的人灵魂互换了》完整版](https://www.abc.com/3533646.html)
-- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/7818909.html)
+- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://www.abc.com/3533646.html)
+- [大雨中吃盒饭的消防员找到了](https://www.abc.com/7818909.html)
 - [去了一趟得克萨斯州。](https://www.abc.com/sbuayzpx.html)
 - [25岁南非国脚亚当斯自杀离世](https://www.abc.com/2837721.html)
 - [巴威过境日本 大树连根拔起雨横飞](https://www.abc.com/3301368.html)
-- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/0575397.html)
-- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/qxqxlbgb.html)
+- [杭州地铁停运](https://www.abc.com/0575397.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/qxqxlbgb.html)
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](https://www.abc.com/boqqckum.html)
-- [朝鲜通报特大腐败犯罪](https://www.abc.com/mnwxmbez.html)
+- [哈兰德被评“世界第一玩得起的人”](https://www.abc.com/mnwxmbez.html)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a1e4a31a0cd919c6c936 -->
+<!-- content-fingerprint: c7027a9e04f7740cda0b -->

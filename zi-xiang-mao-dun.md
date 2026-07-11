@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 应对台风上海转移3.4万人
+# 巴威路线东移
 
-> 来源：今日头条热榜 · 排名：第 10 位 · 热度：39009188 · 更新：2026-07-11T21:07:39+08:00
+> 来源：今日头条热榜 · 排名：第 10 位 · 热度：39055609 · 分类：热门事件 · 更新：2026-07-11T21:08:21+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“应对台风上海转移3.4万人”位列第 10 位，公开热度指标为 39009188。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“巴威路线东移”位列第 10 位，公开热度指标为 39055609，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,7 +14,7 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
@@ -26,9 +26,9 @@
 ## 站内推荐
 
 - [当我问我妈不结婚可以吗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [广西贵港原副市长潘汉胜被双开](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [朝鲜通报特大腐败犯罪](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
 - [女儿女婿自杀后妈妈投身防性侵宣传](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [新兵清淤任务中受伤心里又愧又急](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
@@ -50,15 +50,15 @@
 - [巴威实时路径](https://www.abc.com/azyjkdox.html)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](https://www.abc.com/1026787.html)
 - [这才是《The Other Side Of Paradise》原版MV！](https://www.abc.com/0931717.html)
-- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://www.abc.com/cuxqmmlb.html)
+- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/cuxqmmlb.html)
 - [吾从人族来，自当为人族竭尽全力！](https://www.abc.com/1368368.html)
-- [朝鲜通报特大腐败犯罪](https://www.abc.com/tvhtbczl.html)
+- [哈兰德被评“世界第一玩得起的人”](https://www.abc.com/tvhtbczl.html)
 - [日媒拆台日本火箭只飞了11米](https://www.abc.com/8535870.html)
 - [TF四代考核人气分](https://www.abc.com/sqzxqvww.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](https://www.abc.com/6631657.html)
 - [Jennie神图诞生了](https://www.abc.com/4370115.html)
 - [直击东北超：沈阳vs哈尔滨](https://www.abc.com/4715753.html)
-- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/cktzbccu.html)
+- [大雨中吃盒饭的消防员找到了](https://www.abc.com/cktzbccu.html)
 - [15岁男生因女同桌送画遭围殴](https://www.abc.com/bifrohph.html)
 - [《大扫除是你的谎言》](https://www.abc.com/7389369.html)
 - [北京暴雨红色预警](https://www.abc.com/4604658.html)
@@ -69,7 +69,7 @@
 - [段奥娟这么瘦了](https://www.abc.com/mhybhajt.html)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](https://www.abc.com/9547380.html)
 - [南非25岁世界杯参赛球员去世](https://www.abc.com/9498083.html)
-- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/tmbtjtzc.html)
+- [杭州地铁停运](https://www.abc.com/tmbtjtzc.html)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](https://www.abc.com/kpnecayr.html)
 - [25岁南非国脚亚当斯自杀离世](https://www.abc.com/vaofmjzj.html)
 - [路怒症被反杀，真的很解气](https://www.abc.com/0850079.html)
@@ -81,8 +81,8 @@
 - [台风巴威1小时走30到50公里](https://www.abc.com/xxmjijwd.html)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](https://www.abc.com/6052822.html)
 - [霸占车位女干部已停职](https://www.abc.com/5526495.html)
-- [前瞻：三狮军团能否锁死哈兰德](https://www.abc.com/jtipytcx.html)
-- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/wvmunryz.html)
+- [“26版西游记”团队回应爆火出圈](https://www.abc.com/jtipytcx.html)
+- [《和最讨厌的人灵魂互换了》完整版](https://www.abc.com/wvmunryz.html)
 - [浙江海边掀起10多米巨浪](https://www.abc.com/yrhkdawa.html)
 - [周星驰官宣星女郎雪野](https://www.abc.com/0508406.html)
 - [曝25岁南非国脚自杀离世](https://www.abc.com/9356517.html)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [应对台风上海转移3.4万人](https://www.toutiao.com/trending/7660465845639282731/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660465845639282731%22%2C%22hot_board_impr_id%22%3A%2220260711210739F5E179F8363A9DD4611C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [巴威路线东移](https://webcast-open.douyin.com/open/media_live/867088577067)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 291dcbe452f085bd1727 -->
+<!-- content-fingerprint: 9644d36e8f004e7eaaf0 -->
