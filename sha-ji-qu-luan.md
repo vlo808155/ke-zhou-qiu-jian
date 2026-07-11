@@ -1,50 +1,16 @@
----
-title: "魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】"
-description: "一键三连推荐给更多朋友！"
-keywords: "哔哩哔哩热门, 实时热搜, 热点资讯, 人文历史, 杀鸡取卵, sha-ji-qu-luan"
-tags:
-  - "哔哩哔哩热门"
-  - "实时热搜"
-  - "热点资讯"
-  - "人文历史"
-source: "哔哩哔哩热门"
-source_url: "https://b23.tv/BV1xoNE6yEXP"
-rank: 12
-updated_at: "2026-07-11T20:51:31+08:00"
-content_fingerprint: "8dc312423de19db37ba0"
----
-
-[热点索引](README.md) / 杀鸡取卵 / 魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】
+[热点索引](README.md)
 
 # 魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:51:31+08:00
-
-## 事件概览
-
-一键三连推荐给更多朋友！
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：1126016 · 分类：人文历史 · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】”位列第 12 位，公开热度指标为 1119736，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】”位列第 12 位，公开热度指标为 1126016，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：一键三连推荐给更多朋友！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
-
-## 当前榜单信息
-
-- 来源平台：哔哩哔哩热门
-- 当前排名：第 12 位
-- 热度：1119736
-- 分类：人文历史
-- 固定索引：杀鸡取卵（sha-ji-qu-luan）
-
-## 阅读关注点
-
-- 该话题当前位于哔哩哔哩热门第 12 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
@@ -52,30 +18,23 @@ content_fingerprint: "8dc312423de19db37ba0"
 
 ## 相关热点
 
-- [直击东北超：沈阳vs哈尔滨](yin-zhen-zhi-ke.md)（饮鸩止渴）
-- [全国电力应急支援能力大幅提升](ke-zhou-qiu-jian.md)（刻舟求剑）
-- [朝鲜通报特大腐败犯罪](yan-er-dao-ling.md)（掩耳盗铃）
-- [长征十号乙回收时为什么会冒出大量黑烟？](nan-yuan-bei-zhe.md)（南辕北辙）
+- [直击东北超：沈阳vs哈尔滨](yin-zhen-zhi-ke.md)
+- [功夫女足票房已破2亿](ke-zhou-qiu-jian.md)
+- [应对台风上海转移3.4万人](yan-er-dao-ling.md)
+- [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](nan-yuan-bei-zhe.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](yuan-mu-qiu-yu.md)（缘木求鱼）
-- 下一篇：[直击东北超：沈阳vs哈尔滨](yin-zhen-zhi-ke.md)（饮鸩止渴）
+- [你会去看周星驰的新电影《功夫女足》吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [金鳞岂是池中物，哄好岳母便化龙](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [150斤男记者在浙江沿海被吹到变形](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
-## 热点仓库导航
-
-- [bing-tian-xue-di.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)（冰天雪地）
-- [yi-ming-jing-ren.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)（一鸣惊人）
-- [sha-ji-qu-luan.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)（杀鸡取卵）
-- [zi-qiang-bu-xi.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)（自强不息）
-- [you-sheng-you-se.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)（有声有色）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](https://www.abc.com/0667245.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](https://www.abc.com/emelqoad.html)
@@ -130,8 +89,10 @@ content_fingerprint: "8dc312423de19db37ba0"
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](https://b23.tv/BV1xoNE6yEXP)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: 960c9804261c2250928d -->
