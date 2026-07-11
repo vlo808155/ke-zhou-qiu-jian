@@ -2,7 +2,7 @@
 
 # 美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：247 万热度 · 分类：问答 · 更新：2026-07-11T21:13:48+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：247 万热度 · 分类：问答 · 更新：2026-07-11T21:14:36+08:00
 
 ## 热点正文
 
@@ -50,7 +50,7 @@
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.abc.com/6169932.html)
 - [各地全力以赴防范台风巴威](http://www.abc.com/mkvjwvtw.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/ccduagnb.html)
-- [“26版西游记”团队回应爆火出圈](http://www.abc.com/3151937.html)
+- [博主：泽连斯基避谈乌国内战损情况](http://www.abc.com/3151937.html)
 - [日媒拆台日本火箭只飞了11米](http://www.abc.com/0380625.html)
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](http://www.abc.com/2975968.html)
 - [北京暴雨红色预警](http://www.abc.com/bymsxzoc.html)
@@ -59,15 +59,15 @@
 - [浙江湖州市长：全面进入战时状态](http://www.abc.com/6648136.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/nqvmlpgk.html)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/6532248.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/cbeqemxm.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/cbeqemxm.html)
 - [浙江海边掀起10多米巨浪](http://www.abc.com/4865530.html)
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/2204688.html)
 - [路怒症被反杀，真的很解气](http://www.abc.com/9740223.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/uwutmiqf.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/uwutmiqf.html)
 - [《大扫除是你的谎言》](http://www.abc.com/7696303.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/2358471.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/2358471.html)
 - [上海天空](http://www.abc.com/ipfvuxrx.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/zcncqiyy.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/zcncqiyy.html)
 - [没有人！比我！更懂！重庆！](http://www.abc.com/1152069.html)
 - [直击东北超：沈阳vs哈尔滨](http://www.abc.com/1835948.html)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.abc.com/6613208.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8f3effe5bb80a23d5b89 -->
+<!-- content-fingerprint: 719601855a2831b53d15 -->

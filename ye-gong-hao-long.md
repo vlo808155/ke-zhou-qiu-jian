@@ -2,7 +2,7 @@
 
 # 知名主持人喷周星驰新电影：好难看
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6952992 · 更新：2026-07-11T21:13:48+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6952992 · 更新：2026-07-11T21:14:36+08:00
 
 ## 热点正文
 
@@ -19,7 +19,7 @@
 ## 相关热点
 
 - [HLE晋级MSI决赛](lan-yu-chong-shu.md)
-- [巴威路线东移](zi-xiang-mao-dun.md)
+- [哈兰德被评“世界第一玩得起的人”](zi-xiang-mao-dun.md)
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](bei-gong-she-ying.md)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](jing-gong-zhi-niao.md)
 
@@ -41,13 +41,13 @@
 - [迪丽热巴工作室发的live图](http://www.abc.com/jmuiqxad.html)
 - [台风巴威1小时走30到50公里](http://www.abc.com/ijzjvjey.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/ynslwrka.html)
-- [巴威路线东移](http://www.abc.com/3667958.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/3667958.html)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/1121111.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/xrsbyefb.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/xrsbyefb.html)
 - [周星驰官宣星女郎雪野](http://www.abc.com/1150962.html)
 - [《下一个是谁》第七季（1）](http://www.abc.com/6030105.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/6049712.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/0072835.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/0072835.html)
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.abc.com/gnfibwxo.html)
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.abc.com/srgcyaxb.html)
 - [无人机吊起2人神图系AI合成](http://www.abc.com/bzszxxjp.html)
@@ -60,9 +60,9 @@
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.abc.com/udlwfubq.html)
 - [曝余承东内部群发飙](http://www.abc.com/kwtpzryj.html)
 - [巴威实时路径](http://www.abc.com/9960276.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/6124561.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/6124561.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/ijwwzyzc.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/acawmkym.html)
+- [巴威路线东移](http://www.abc.com/acawmkym.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/2864123.html)
 - [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/9990874.html)
 - [广西贵港原副市长潘汉胜被双开](http://www.abc.com/qduzkpjy.html)
@@ -75,14 +75,14 @@
 - [浙江湖州市长：全面进入战时状态](http://www.abc.com/5210536.html)
 - [TF四代考核人气分](http://www.abc.com/9264446.html)
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/ynhrimnv.html)
-- [“26版西游记”团队回应爆火出圈](http://www.abc.com/5279684.html)
+- [博主：泽连斯基避谈乌国内战损情况](http://www.abc.com/5279684.html)
 - [曝25岁南非国脚自杀离世](http://www.abc.com/4187325.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/tkuzhrlc.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/tkuzhrlc.html)
 - [巴威发威了暴雨狂风高温一起来](http://www.abc.com/fbykixpk.html)
 - [如何评价凡人修仙传182集，慕兰之战第六集？](http://www.abc.com/zpvtebod.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/xtmuqhjy.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](http://www.abc.com/2031140.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/mpxoosll.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/mpxoosll.html)
 - [杭州：台风影响期间非必要不外出](http://www.abc.com/bepaelsz.html)
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/eogiqqwe.html)
 - [15岁男生因女同桌送画遭围殴](http://www.abc.com/8576307.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bf57874039e1f7c796a5 -->
+<!-- content-fingerprint: 74ebdf2254033113c7bf -->

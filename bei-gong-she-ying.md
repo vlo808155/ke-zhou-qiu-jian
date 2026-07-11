@@ -2,7 +2,7 @@
 
 # 为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：248 万热度 · 分类：问答 · 更新：2026-07-11T21:13:48+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：248 万热度 · 分类：问答 · 更新：2026-07-11T21:14:36+08:00
 
 ## 热点正文
 
@@ -43,9 +43,9 @@
 - [台风巴威实时路径](http://www.abc.com/fpphrupt.html)
 - [去了一趟得克萨斯州。](http://www.abc.com/4521364.html)
 - [日媒拆台日本火箭只飞了11米](http://www.abc.com/3382870.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/qviismnq.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/qviismnq.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](http://www.abc.com/7563475.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/5495118.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/5495118.html)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.abc.com/ndvbbksz.html)
 - [台风巴威1小时走30到50公里](http://www.abc.com/xizsxzun.html)
 - [北京暴雨红色预警](http://www.abc.com/ievscmko.html)
@@ -64,7 +64,7 @@
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/6499748.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/oeoneatd.html)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/spbrzmux.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/kemrlqqs.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/kemrlqqs.html)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.abc.com/4908677.html)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/pqcmxdoj.html)
 - [《大扫除是你的谎言》](http://www.abc.com/0566718.html)
@@ -79,7 +79,7 @@
 - [广西贵港原副市长潘汉胜被双开](http://www.abc.com/3269713.html)
 - [杭州 台风](http://www.abc.com/nwdbkuul.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/egwtxnix.html)
-- [巴威路线东移](http://www.abc.com/8382511.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/8382511.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/qnysisfu.html)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.abc.com/vsbphggi.html)
 - [Jennie神图诞生了](http://www.abc.com/mcfhtnvc.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 85e4ee9d5afe39ea9281 -->
+<!-- content-fingerprint: 31376977668c6ce0805d -->

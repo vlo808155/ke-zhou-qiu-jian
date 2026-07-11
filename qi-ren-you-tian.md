@@ -2,7 +2,7 @@
 
 # 去了一趟得克萨斯州。
 
-> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：2145980 · 分类：数码 · 更新：2026-07-11T21:13:48+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：2145980 · 分类：数码 · 更新：2026-07-11T21:14:36+08:00
 
 ## 热点正文
 
@@ -43,7 +43,7 @@
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.abc.com/7376607.html)
 - [台风来袭科学避险完整指南](http://www.abc.com/0265725.html)
 - [杭州地铁停运](http://www.abc.com/3469328.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/8764869.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/8764869.html)
 - [各地全力以赴防范台风巴威](http://www.abc.com/3748137.html)
 - [北京暴雨红色预警](http://www.abc.com/5580577.html)
 - [巴威登陆地点范围再缩小](http://www.abc.com/5252587.html)
@@ -55,14 +55,14 @@
 - [小米澎程起售价预测](http://www.abc.com/pyymwide.html)
 - [巴威发威了暴雨狂风高温一起来](http://www.abc.com/3631840.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](http://www.abc.com/3212467.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/yzmzbikv.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/yzmzbikv.html)
 - [功夫女足票房已破2亿](http://www.abc.com/thncperm.html)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.abc.com/ozzpmtzz.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/zieafbya.html)
 - [浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？](http://www.abc.com/4191221.html)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.abc.com/2730715.html)
 - [HLE晋级MSI决赛](http://www.abc.com/8027898.html)
-- [“26版西游记”团队回应爆火出圈](http://www.abc.com/8592193.html)
+- [博主：泽连斯基避谈乌国内战损情况](http://www.abc.com/8592193.html)
 - [广西贵港原副市长潘汉胜被双开](http://www.abc.com/oqtqhbkr.html)
 - [巴威实时路径](http://www.abc.com/6142057.html)
 - [PC今日公测！《遗忘之海》PV「初航乐章」](http://www.abc.com/4715643.html)
@@ -80,12 +80,12 @@
 - [最新研判！台风巴威登陆时间或提前](http://www.abc.com/vircsdfn.html)
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/7742658.html)
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](http://www.abc.com/2135951.html)
-- [巴威路线东移](http://www.abc.com/qifmmrta.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/qifmmrta.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](http://www.abc.com/2214897.html)
 - [金鳞岂是池中物，哄好岳母便化龙](http://www.abc.com/3414297.html)
 - [上海台风](http://www.abc.com/qjaudivo.html)
 - [暑期防汛科普小知识请查收](http://www.abc.com/xjnmnskc.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/zxgjvafg.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/zxgjvafg.html)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 143ecec9396387d04e09 -->
+<!-- content-fingerprint: a719e71c3f28035b1148 -->

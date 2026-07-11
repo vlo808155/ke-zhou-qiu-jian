@@ -2,7 +2,7 @@
 
 # 《下一个是谁》第七季（1）
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：2748858 · 分类：日常 · 更新：2026-07-11T21:13:48+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：2748858 · 分类：日常 · 更新：2026-07-11T21:14:36+08:00
 
 ## 热点正文
 
@@ -20,7 +20,7 @@
 
 - [知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md)
 - [HLE晋级MSI决赛](lan-yu-chong-shu.md)
-- [巴威路线东移](zi-xiang-mao-dun.md)
+- [哈兰德被评“世界第一玩得起的人”](zi-xiang-mao-dun.md)
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](bei-gong-she-ying.md)
 
 ## 站内推荐
@@ -50,7 +50,7 @@
 - [巴威发威了暴雨狂风高温一起来](http://www.abc.com/meivfzuq.html)
 - [路怒症被反杀，真的很解气](http://www.abc.com/jpicfquo.html)
 - [周星驰官宣星女郎雪野](http://www.abc.com/apxyxwgb.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/8501722.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/8501722.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/7200373.html)
 - [台风巴威实时路径](http://www.abc.com/zsmrvjrv.html)
 - [曝25岁南非国脚自杀离世](http://www.abc.com/7261960.html)
@@ -62,7 +62,7 @@
 - [海水倒灌](http://www.abc.com/bvxuzrjm.html)
 - [浙江福建的朋友们，等待台风来临是一种什么心情？它一拖再拖都还没来，是不是有点烦？](http://www.abc.com/5274569.html)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](http://www.abc.com/5597043.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/5571388.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/5571388.html)
 - [日媒拆台日本火箭只飞了11米](http://www.abc.com/8826741.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/pgqycwwx.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/5539031.html)
@@ -71,7 +71,7 @@
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/npqsfvvm.html)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.abc.com/6060019.html)
 - [上海台风](http://www.abc.com/8212106.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/9728753.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/9728753.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/5906999.html)
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](http://www.abc.com/9025317.html)
 - [PC今日公测！《遗忘之海》PV「初航乐章」](http://www.abc.com/0536689.html)
@@ -80,7 +80,7 @@
 - [北京暴雨红色预警](http://www.abc.com/nfskemvj.html)
 - [最新研判！台风巴威登陆时间或提前](http://www.abc.com/qrgabtia.html)
 - [无人机吊起2人神图系AI合成](http://www.abc.com/0044796.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/0802682.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/0802682.html)
 - [如何评价凡人修仙传182集，慕兰之战第六集？](http://www.abc.com/vldnlkxg.html)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/5937702.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/6543810.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0944420672846d93355e -->
+<!-- content-fingerprint: c7bbe7716b44bc892195 -->

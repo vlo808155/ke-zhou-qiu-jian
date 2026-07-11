@@ -2,7 +2,7 @@
 
 # 如何评价周星驰执导、编剧的电影《功夫女足》？
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：410 万热度 · 分类：问答 · 更新：2026-07-11T21:13:48+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：410 万热度 · 分类：问答 · 更新：2026-07-11T21:14:36+08:00
 
 ## 热点正文
 
@@ -21,7 +21,7 @@
 - [《下一个是谁》第七季（1）](mai-du-huan-zhu.md)
 - [知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md)
 - [HLE晋级MSI决赛](lan-yu-chong-shu.md)
-- [巴威路线东移](zi-xiang-mao-dun.md)
+- [哈兰德被评“世界第一玩得起的人”](zi-xiang-mao-dun.md)
 
 ## 站内推荐
 
@@ -53,21 +53,21 @@
 - [曝余承东内部群发飙](http://www.abc.com/2031255.html)
 - [大雨中吃盒饭的消防员找到了](http://www.abc.com/6643028.html)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/vlzxfnwq.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/jxxjiahq.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/jxxjiahq.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/mwggbpaf.html)
-- [巴威路线东移](http://www.abc.com/2050168.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/2050168.html)
 - [直击东北超：沈阳vs哈尔滨](http://www.abc.com/5153650.html)
 - [巴威发威了暴雨狂风高温一起来](http://www.abc.com/vqrjjkvd.html)
 - [没有人！比我！更懂！重庆！](http://www.abc.com/1520351.html)
 - [《下一个是谁》第七季（1）](http://www.abc.com/8215152.html)
 - [TF四代考核人气分](http://www.abc.com/eqcjhqci.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/qetliqip.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/qetliqip.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/qfjzxwfb.html)
 - [Jennie神图诞生了](http://www.abc.com/6545305.html)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/xlnrxlqt.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/eqehvept.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](http://www.abc.com/2140626.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/8383898.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/8383898.html)
 - [巴威最新位置](http://www.abc.com/qwbiolqx.html)
 - [广西贵港原副市长潘汉胜被双开](http://www.abc.com/3501848.html)
 - [2026年温网男单半决赛，德约科维奇三盘不敌辛纳，全场只获一个破发点，未能复刻澳网逆转奇迹。如何评价？](http://www.abc.com/2783688.html)
@@ -80,7 +80,7 @@
 - [前瞻：三狮军团能否锁死哈兰德](http://www.abc.com/tcfmfzrp.html)
 - [上海天空](http://www.abc.com/4928100.html)
 - [金鳞岂是池中物，哄好岳母便化龙](http://www.abc.com/oihxfowk.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/isdvftbu.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/isdvftbu.html)
 - [HLE晋级MSI决赛](http://www.abc.com/vtlwrpwa.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/3025035.html)
 - [巴威实时路径](http://www.abc.com/bwgstjvk.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f16e2aa786a4352c4f6f -->
+<!-- content-fingerprint: 6ab4c91117ede1d45a36 -->
