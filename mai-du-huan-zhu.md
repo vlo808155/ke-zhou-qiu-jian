@@ -1,35 +1,43 @@
 ---
-title: "我----问你为什么要折断奥特钥匙！大结局！（中）"
-description: "-"
-keywords: "哔哩哔哩热门, 实时热搜, 热点资讯, 特摄, 买椟还珠, mai-du-huan-zhu"
+title: "《下一个是谁》第七季（1）"
+description: "《下一个是谁》第七季来啦！！ 每期都会抽一台iPhone17 Pro！每期抽奖去主投up主（@雨哥到处跑）的主页抽！ 抽奖资金由本期最后一名倒霉蛋出！所以不涉及剧透！"
+keywords: "哔哩哔哩热门, 实时热搜, 热点资讯, 日常, 买椟还珠, mai-du-huan-zhu"
 tags:
   - "哔哩哔哩热门"
   - "实时热搜"
   - "热点资讯"
-  - "特摄"
+  - "日常"
 source: "哔哩哔哩热门"
-source_url: "https://b23.tv/BV1kANJ66Ex5"
+source_url: "https://b23.tv/BV1UjMn6hEXQ"
 rank: 9
-updated_at: "2026-07-11T20:30:07+08:00"
-content_fingerprint: "2617843d0f1b5c6bc1a0"
+updated_at: "2026-07-11T20:42:49+08:00"
+content_fingerprint: "85cfe9f6ae1c10e72945"
 ---
 
-[热点索引](README.md) / 买椟还珠 / 我----问你为什么要折断奥特钥匙！大结局！（中）
+[热点索引](README.md) / 买椟还珠 / 《下一个是谁》第七季（1）
 
-# 我----问你为什么要折断奥特钥匙！大结局！（中）
+# 《下一个是谁》第七季（1）
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:30:07+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:42:49+08:00
 
 ## 事件概览
 
--
+《下一个是谁》第七季来啦！！ 每期都会抽一台iPhone17 Pro！每期抽奖去主投up主（@雨哥到处跑）的主页抽！ 抽奖资金由本期最后一名倒霉蛋出！所以不涉及剧透！
+
+## 热点正文
+
+根据哔哩哔哩热门当前公开榜单，“《下一个是谁》第七季（1）”位列第 9 位，公开热度指标为 2722900，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+
+来源公开摘要显示：《下一个是谁》第七季来啦！！ 每期都会抽一台iPhone17 Pro！每期抽奖去主投up主（@雨哥到处跑）的主页抽！ 抽奖资金由本期最后一名倒霉蛋出！所以不涉及剧透！
+
+阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 当前榜单信息
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 9 位
-- 热度：797147
-- 分类：特摄
+- 热度：2722900
+- 分类：日常
 - 固定索引：买椟还珠（mai-du-huan-zhu）
 
 ## 阅读关注点
@@ -40,30 +48,90 @@ content_fingerprint: "2617843d0f1b5c6bc1a0"
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `特摄`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
 - [知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md)（叶公好龙）
-- [凯恩希望哈兰德别进球](lan-yu-chong-shu.md)（滥竽充数）
-- [哈兰德被评“世界第一玩得起的人”](zi-xiang-mao-dun.md)（自相矛盾）
+- [HLE翻车](lan-yu-chong-shu.md)（滥竽充数）
+- [河南多地路面突破72℃](zi-xiang-mao-dun.md)（自相矛盾）
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](bei-gong-she-ying.md)（杯弓蛇影）
 
 ## 前后篇导航
 
-- 上一篇：[商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](nan-yuan-bei-zhe.md)（南辕北辙）
+- 上一篇：[长征十号乙回收时为什么会冒出大量黑烟？](nan-yuan-bei-zhe.md)（南辕北辙）
 - 下一篇：[知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md)（叶公好龙）
 
 ## 热点仓库导航
 
-- [hua-she-tian-zu](https://github.com/vlo808155/hua-she-tian-zu)
-- [shou-zhu-dai-tu](https://github.com/vlo808155/shou-zhu-dai-tu)
-- [ke-zhou-qiu-jian](https://github.com/vlo808155/ke-zhou-qiu-jian)
-- [wang-yang-bu-lao](https://github.com/vlo808155/wang-yang-bu-lao)
-- [jing-di-zhi-wa](https://github.com/vlo808155/jing-di-zhi-wa)
+- [si-hai-wei-jia.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)（四海为家）
+- [wo-xin-chang-dan.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)（卧薪尝胆）
+- [mai-du-huan-zhu.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)（买椟还珠）
+- [nang-ying-ying-xue.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)（囊萤映雪）
+- [xiong-you-cheng-zhu.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)（胸有成竹）
+
+## 标签扩展阅读
+
+以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+
+<details>
+<summary>查看 50 条标签相关链接</summary>
+
+- [哔哩哔哩热门延伸阅读 1](https://www.abc.com/6719392.html)
+- [实时热搜延伸阅读 2](https://www.abc.com/uiqydero.html)
+- [热点资讯延伸阅读 3](https://www.abc.com/ypnydglr.html)
+- [日常延伸阅读 4](https://www.abc.com/jkacfrwo.html)
+- [哔哩哔哩热门延伸阅读 5](https://www.abc.com/6890638.html)
+- [实时热搜延伸阅读 6](https://www.abc.com/3824222.html)
+- [热点资讯延伸阅读 7](https://www.abc.com/0932640.html)
+- [日常延伸阅读 8](https://www.abc.com/dlrzwukp.html)
+- [哔哩哔哩热门延伸阅读 9](https://www.abc.com/hnthjvlv.html)
+- [实时热搜延伸阅读 10](https://www.abc.com/8321908.html)
+- [热点资讯延伸阅读 11](https://www.abc.com/6339102.html)
+- [日常延伸阅读 12](https://www.abc.com/qpyxewup.html)
+- [哔哩哔哩热门延伸阅读 13](https://www.abc.com/0015521.html)
+- [实时热搜延伸阅读 14](https://www.abc.com/4317071.html)
+- [热点资讯延伸阅读 15](https://www.abc.com/2281608.html)
+- [日常延伸阅读 16](https://www.abc.com/puzwgifc.html)
+- [哔哩哔哩热门延伸阅读 17](https://www.abc.com/0675799.html)
+- [实时热搜延伸阅读 18](https://www.abc.com/0597445.html)
+- [热点资讯延伸阅读 19](https://www.abc.com/0707014.html)
+- [日常延伸阅读 20](https://www.abc.com/epryrnhu.html)
+- [哔哩哔哩热门延伸阅读 21](https://www.abc.com/5440286.html)
+- [实时热搜延伸阅读 22](https://www.abc.com/movqexdm.html)
+- [热点资讯延伸阅读 23](https://www.abc.com/4775006.html)
+- [日常延伸阅读 24](https://www.abc.com/8392271.html)
+- [哔哩哔哩热门延伸阅读 25](https://www.abc.com/5604887.html)
+- [实时热搜延伸阅读 26](https://www.abc.com/dkcegzmq.html)
+- [热点资讯延伸阅读 27](https://www.abc.com/louhjzfq.html)
+- [日常延伸阅读 28](https://www.abc.com/xshjocuu.html)
+- [哔哩哔哩热门延伸阅读 29](https://www.abc.com/znwdmcqq.html)
+- [实时热搜延伸阅读 30](https://www.abc.com/6509829.html)
+- [热点资讯延伸阅读 31](https://www.abc.com/7156609.html)
+- [日常延伸阅读 32](https://www.abc.com/4582964.html)
+- [哔哩哔哩热门延伸阅读 33](https://www.abc.com/rvvgkymz.html)
+- [实时热搜延伸阅读 34](https://www.abc.com/6522004.html)
+- [热点资讯延伸阅读 35](https://www.abc.com/0381697.html)
+- [日常延伸阅读 36](https://www.abc.com/ckrhahiq.html)
+- [哔哩哔哩热门延伸阅读 37](https://www.abc.com/4815481.html)
+- [实时热搜延伸阅读 38](https://www.abc.com/vwwwyrlj.html)
+- [热点资讯延伸阅读 39](https://www.abc.com/eanyfpnb.html)
+- [日常延伸阅读 40](https://www.abc.com/1909241.html)
+- [哔哩哔哩热门延伸阅读 41](https://www.abc.com/xashkemr.html)
+- [实时热搜延伸阅读 42](https://www.abc.com/3537797.html)
+- [热点资讯延伸阅读 43](https://www.abc.com/8095060.html)
+- [日常延伸阅读 44](https://www.abc.com/4562987.html)
+- [哔哩哔哩热门延伸阅读 45](https://www.abc.com/7711252.html)
+- [实时热搜延伸阅读 46](https://www.abc.com/3131798.html)
+- [热点资讯延伸阅读 47](https://www.abc.com/plajxjkm.html)
+- [日常延伸阅读 48](https://www.abc.com/hafidchx.html)
+- [哔哩哔哩热门延伸阅读 49](https://www.abc.com/vtqiwsoo.html)
+- [实时热搜延伸阅读 50](https://www.abc.com/1714904.html)
+
+</details>
 
 ## 来源与延伸阅读
 
-- [我----问你为什么要折断奥特钥匙！大结局！（中）](https://b23.tv/BV1kANJ66Ex5)
+- [《下一个是谁》第七季（1）](https://b23.tv/BV1UjMn6hEXQ)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
