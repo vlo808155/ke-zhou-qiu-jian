@@ -10,15 +10,15 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2058945292020315835"
 rank: 12
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "93f989fb67e6a8ff41e0"
+updated_at: "2026-07-11T20:30:07+08:00"
+content_fingerprint: "165bcbfccec07ebe003f"
 ---
 
 [热点索引](README.md) / 缘木求鱼 / 长征十号乙回收时为什么会冒出大量黑烟？
 
 # 长征十号乙回收时为什么会冒出大量黑烟？
 
-> 来源：知乎热榜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：知乎热榜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:30:07+08:00
 
 ## 事件概览
 
@@ -46,7 +46,7 @@ content_fingerprint: "93f989fb67e6a8ff41e0"
 
 - [《大扫除是你的谎言》](sha-ji-qu-luan.md)（杀鸡取卵）
 - [直击东北超：沈阳vs哈尔滨](yin-zhen-zhi-ke.md)（饮鸩止渴）
-- [无限暖暖前瞻直播](ke-zhou-qiu-jian.md)（刻舟求剑）
+- [HLE翻车](ke-zhou-qiu-jian.md)（刻舟求剑）
 - [杭州：台风影响期间非必要不外出](yan-er-dao-ling.md)（掩耳盗铃）
 
 ## 前后篇导航

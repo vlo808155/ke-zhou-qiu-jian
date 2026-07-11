@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=5%E5%B9%B4%E4%B8%8D%E4%B8%8A%E7%8F%AD%E7%9A%84%E7%9C%9F%E5%AE%9E%E6%84%9F%E5%8F%97"
 rank: 12
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "4b320aaec210f427c07c"
+updated_at: "2026-07-11T20:30:07+08:00"
+content_fingerprint: "5aeba97731b07f06ac5e"
 ---
 
 [热点索引](README.md) / 对牛弹琴 / 5年不上班的真实感受
 
 # 5年不上班的真实感受
 
-> 来源：微博热搜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：微博热搜 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:30:07+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "4b320aaec210f427c07c"
 
 - 来源平台：微博热搜
 - 当前排名：第 12 位
-- 热度：569560
+- 热度：613979
 - 分类：幽默
 - 固定索引：对牛弹琴（dui-niu-tan-qin）
 

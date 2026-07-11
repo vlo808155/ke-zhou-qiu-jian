@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E5%91%A8%E6%98%9F%E9%A9%B0%E5%AE%98%E5%AE%A3%E6%98%9F%E5%A5%B3%E9%83%8E%E9%9B%AA%E9%87%8E"
 rank: 11
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "5eb1ab54c3d009aad6f7"
+updated_at: "2026-07-11T20:30:07+08:00"
+content_fingerprint: "6017e536da65a2dc406b"
 ---
 
 [热点索引](README.md) / 鱼目混珠 / 周星驰官宣星女郎雪野
 
 # 周星驰官宣星女郎雪野
 
-> 来源：微博热搜 · 榜单排名：第 11 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：微博热搜 · 榜单排名：第 11 位 · 更新时间：2026-07-11T20:30:07+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "5eb1ab54c3d009aad6f7"
 
 - 来源平台：微博热搜
 - 当前排名：第 11 位
-- 热度：570795
+- 热度：618762
 - 分类：电影
 - 固定索引：鱼目混珠（yu-mu-hun-zhu）
 

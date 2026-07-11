@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E7%9F%A5%E5%90%8D%E4%B8%BB%E6%8C%81%E4%BA%BA%E5%96%B7%E5%91%A8%E6%98%9F%E9%A9%B0%E6%96%B0%E7%94%B5%E5%BD%B1%EF%BC%9A%E5%A5%BD%E9%9A%BE%E7%9C%8B&sa=fyb_news&rsv_dl=fyb_news"
 rank: 9
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "0016a867e146e22c7446"
+updated_at: "2026-07-11T20:30:07+08:00"
+content_fingerprint: "aca58a74dc28078a23ec"
 ---
 
 [热点索引](README.md) / 叶公好龙 / 知名主持人喷周星驰新电影：好难看
 
 # 知名主持人喷周星驰新电影：好难看
 
-> 来源：百度热搜 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:30:07+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "0016a867e146e22c7446"
 
 - 来源平台：百度热搜
 - 当前排名：第 9 位
-- 热度：6946799
+- 热度：6950903
 - 固定索引：叶公好龙（ye-gong-hao-long）
 
 ## 阅读关注点
@@ -42,7 +42,7 @@ content_fingerprint: "0016a867e146e22c7446"
 
 ## 相关热点
 
-- [HLE翻车](lan-yu-chong-shu.md)（滥竽充数）
+- [凯恩希望哈兰德别进球](lan-yu-chong-shu.md)（滥竽充数）
 - [哈兰德被评“世界第一玩得起的人”](zi-xiang-mao-dun.md)（自相矛盾）
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](bei-gong-she-ying.md)（杯弓蛇影）
 - [去了一趟得克萨斯州。](jing-gong-zhi-niao.md)（惊弓之鸟）
@@ -50,7 +50,7 @@ content_fingerprint: "0016a867e146e22c7446"
 ## 前后篇导航
 
 - 上一篇：[我----问你为什么要折断奥特钥匙！大结局！（中）](mai-du-huan-zhu.md)（买椟还珠）
-- 下一篇：[HLE翻车](lan-yu-chong-shu.md)（滥竽充数）
+- 下一篇：[凯恩希望哈兰德别进球](lan-yu-chong-shu.md)（滥竽充数）
 
 ## 热点仓库导航
 

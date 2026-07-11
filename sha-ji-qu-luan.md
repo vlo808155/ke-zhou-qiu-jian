@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1jfNJ6AEBe"
 rank: 12
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "246a74408202836985b7"
+updated_at: "2026-07-11T20:30:07+08:00"
+content_fingerprint: "ed2aebf2b1bc07bc0485"
 ---
 
 [热点索引](README.md) / 杀鸡取卵 / 《大扫除是你的谎言》
 
 # 《大扫除是你的谎言》
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:30:07+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "246a74408202836985b7"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 12 位
-- 热度：1832893
+- 热度：1835390
 - 分类：搞笑
 - 固定索引：杀鸡取卵（sha-ji-qu-luan）
 
@@ -45,7 +45,7 @@ content_fingerprint: "246a74408202836985b7"
 ## 相关热点
 
 - [直击东北超：沈阳vs哈尔滨](yin-zhen-zhi-ke.md)（饮鸩止渴）
-- [无限暖暖前瞻直播](ke-zhou-qiu-jian.md)（刻舟求剑）
+- [HLE翻车](ke-zhou-qiu-jian.md)（刻舟求剑）
 - [杭州：台风影响期间非必要不外出](yan-er-dao-ling.md)（掩耳盗铃）
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](nan-yuan-bei-zhe.md)（南辕北辙）
 

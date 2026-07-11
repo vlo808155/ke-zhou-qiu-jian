@@ -10,15 +10,15 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2058959918087018226"
 rank: 9
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "d78bcf7829f71faecd26"
+updated_at: "2026-07-11T20:30:07+08:00"
+content_fingerprint: "0b48f369ff23786b1dad"
 ---
 
 [热点索引](README.md) / 南辕北辙 / 商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？
 
 # 商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？
 
-> 来源：知乎热榜 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：知乎热榜 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:30:07+08:00
 
 ## 事件概览
 
@@ -46,7 +46,7 @@ content_fingerprint: "d78bcf7829f71faecd26"
 
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](mai-du-huan-zhu.md)（买椟还珠）
 - [知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md)（叶公好龙）
-- [HLE翻车](lan-yu-chong-shu.md)（滥竽充数）
+- [凯恩希望哈兰德别进球](lan-yu-chong-shu.md)（滥竽充数）
 - [哈兰德被评“世界第一玩得起的人”](zi-xiang-mao-dun.md)（自相矛盾）
 
 ## 前后篇导航

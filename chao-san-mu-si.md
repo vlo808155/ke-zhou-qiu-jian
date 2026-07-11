@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=16%E5%B2%81%E9%AB%98%E4%B8%AD%E7%94%9F%E8%B8%A2%E9%97%A8%E7%8E%A9%E9%97%B9%E5%90%8E%E8%A2%AB%E6%8D%85%E6%9D%80&sa=fyb_news&rsv_dl=fyb_news"
 rank: 11
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "c5facdda2a7e64dfafa9"
+updated_at: "2026-07-11T20:30:07+08:00"
+content_fingerprint: "791fac1b89dfb511d2b1"
 ---
 
 [热点索引](README.md) / 朝三暮四 / 16岁高中生踢门玩闹后被捅杀
 
 # 16岁高中生踢门玩闹后被捅杀
 
-> 来源：百度热搜 · 榜单排名：第 11 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 11 位 · 更新时间：2026-07-11T20:30:07+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "c5facdda2a7e64dfafa9"
 
 - 来源平台：百度热搜
 - 当前排名：第 11 位
-- 热度：6756539
+- 热度：6753915
 - 固定索引：朝三暮四（chao-san-mu-si）
 
 ## 阅读关注点

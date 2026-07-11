@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1kANJ66Ex5"
 rank: 9
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "7151eff3c98e4e2f9d48"
+updated_at: "2026-07-11T20:30:07+08:00"
+content_fingerprint: "2617843d0f1b5c6bc1a0"
 ---
 
 [热点索引](README.md) / 买椟还珠 / 我----问你为什么要折断奥特钥匙！大结局！（中）
 
 # 我----问你为什么要折断奥特钥匙！大结局！（中）
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 9 位 · 更新时间：2026-07-11T20:30:07+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "7151eff3c98e4e2f9d48"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 9 位
-- 热度：796014
+- 热度：797147
 - 分类：特摄
 - 固定索引：买椟还珠（mai-du-huan-zhu）
 
@@ -45,7 +45,7 @@ content_fingerprint: "7151eff3c98e4e2f9d48"
 ## 相关热点
 
 - [知名主持人喷周星驰新电影：好难看](ye-gong-hao-long.md)（叶公好龙）
-- [HLE翻车](lan-yu-chong-shu.md)（滥竽充数）
+- [凯恩希望哈兰德别进球](lan-yu-chong-shu.md)（滥竽充数）
 - [哈兰德被评“世界第一玩得起的人”](zi-xiang-mao-dun.md)（自相矛盾）
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](bei-gong-she-ying.md)（杯弓蛇影）
 
