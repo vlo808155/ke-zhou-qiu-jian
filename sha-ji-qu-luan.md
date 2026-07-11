@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1xoNE6yEXP"
 rank: 12
-updated_at: "2026-07-11T20:50:44+08:00"
-content_fingerprint: "4e373127d1ae8ec6732d"
+updated_at: "2026-07-11T20:51:31+08:00"
+content_fingerprint: "8dc312423de19db37ba0"
 ---
 
 [热点索引](README.md) / 杀鸡取卵 / 魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】
 
 # 魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:50:44+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 12 位 · 更新时间：2026-07-11T20:51:31+08:00
 
 ## 事件概览
 
@@ -53,7 +53,7 @@ content_fingerprint: "4e373127d1ae8ec6732d"
 ## 相关热点
 
 - [直击东北超：沈阳vs哈尔滨](yin-zhen-zhi-ke.md)（饮鸩止渴）
-- [南非25岁世界杯参赛球员去世](ke-zhou-qiu-jian.md)（刻舟求剑）
+- [全国电力应急支援能力大幅提升](ke-zhou-qiu-jian.md)（刻舟求剑）
 - [朝鲜通报特大腐败犯罪](yan-er-dao-ling.md)（掩耳盗铃）
 - [长征十号乙回收时为什么会冒出大量黑烟？](nan-yuan-bei-zhe.md)（南辕北辙）
 
