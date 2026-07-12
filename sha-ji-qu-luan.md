@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 盛唐时期大部分唐朝人真的能每天以肉饼为食吗？
+# 《无限暖暖》2.8版本套装PV | 白夜长旋舞&心光破晓时
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：451 万热度 · 分类：问答 · 更新：2026-07-12T15:18:57+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：1042764 · 分类：手机游戏 · 更新：2026-07-12T19:42:59+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“盛唐时期大部分唐朝人真的能每天以肉饼为食吗？”位列第 12 位，公开热度指标为 451 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《无限暖暖》2.8版本套装PV | 白夜长旋舞&心光破晓时”位列第 12 位，公开热度指标为 1042764，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：咔哒，咔哒…… 她听到机械之心在跳动—— 金羽纷飞，金鬃破镜， 她看到神的灵魂在燃烧—— 残破的镜框中，是迟来的神迹，是与自己重逢。 ♾️「白夜长旋舞」 &gt;&gt;服装主属性·帅气 &gt;&gt;套装具有【镜影旋舞】能力 施展【镜影旋舞】能力后，暖暖将破镜而出，随着镜面绽开的光芒优雅起舞，轻盈的舞步将大幅提升移动速度。若在滑行时走向墙面，暖暖可顺着墙体而上，继续自如滑行。滑行时会持续消耗能量，当能量耗尽时，将自动退出滑行状态。在墙体表面移动时，会消耗更多能量。在墙体上滑行期间，可通过跳跃越过障碍。此外，也可以进入漂浮状
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
 
 ## 相关热点
 
-- [吾从人族来，自当为人族竭尽全力！](yin-zhen-zhi-ke.md)
-- [云南富源通报搅拌车侧翻致6死](ke-zhou-qiu-jian.md)
-- [台风巴威已移出浙江](yan-er-dao-ling.md)
-- [瑟洛特为何不传球给哈兰德](nan-yuan-bei-zhe.md)
+- [热恋半年发现媒人和女友是同一人](yin-zhen-zhi-ke.md)
+- [长大后继承了父母的支付密码](ke-zhou-qiu-jian.md)
+- [王力宏晒伤口恢复情况](yan-er-dao-ling.md)
+- [为什么台风预报的时候来势汹汹，但真登陆了感觉没有那么强烈？](nan-yuan-bei-zhe.md)
 
 ## 站内推荐
 
-- [特厨隋坡探店全差评餐厅引争议，老板「逆天回怼」是高明还是失策？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [云南花 4950 万元建的政务 APP「曲靖通」关停，仅运营 4 年多，为什么会这样？暴露出哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [孙悟空打死六耳猕猴后变得顺从乖巧，再也没被念紧箍咒，原因是什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [路怒症被反杀，真的很解气](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [玻璃不要贴米字胶带，会起到反作用](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [【第四十四赛季·精华1】故事视频——《斯特瓦德的舞宴·下篇》公开：——“与我共舞吧，不停下坠，不停沉沦……”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [《我推的孩子》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [去了一趟得克萨斯州。](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [6月新增新冠确诊7.9万例](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [22岁女子多次求饶仍被前男友杀害](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [艾米北电正式录取](http://www.movie.hkepx.cn/movie/8955570.htm)
-- [如何看待瑞士前锋恩博洛偷鸡不成蚀把米，假摔骗黄未遂，VAR回放后反被裁判罚下，离场时抱头痛哭？](http://www.daogukj.com/krvvnboj/)
-- [哈兰德足足夸了贝林厄姆一分钟](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
-- [瑟洛特为何不传球给哈兰德](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
-- [黄仁勋称「Prompt 已死，AI 圈正追逐 Loop」，这对 AI 开发及工程师意味着什么？](http://www.movie.hkepx.cn/movie/1401219.htm)
-- [《西虹市首富》里面想花完钱却越花越多的情况，现实里面会发生吗？](http://www.movie.hkepx.cn/movie/1801460.htm)
-- [特厨隋坡探店全差评餐厅引争议，老板「逆天回怼」是高明还是失策？](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
-- [挪威航空真把头像换成英国航空了](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
-- [阿根廷3比1战胜瑞士](http://www.movie.hkepx.cn/xiju/0216852.htm)
-- [伊朗议长：单方面协议时代已经结束](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
-- [世界杯四强恰好是FIFA世界前四](http://www.daogukj.com/3303781)
-- [如何看待papi酱节目《热烈欢迎》邀请梁靖崑出席？](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
-- [为什么2026年，大家才发现英雄联盟“adc”位置不需要ad射手？](http://www.movie.hkepx.cn/movie/5835677.htm)
-- [受台风影响温州永嘉8个站点超400毫米](http://www.daogukj.com/6841256)
-- [当你穿进老钱班29](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
-- [世界前四齐聚世界杯四强](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
-- [足坛真神TOP：哈兰德！离开世界杯！他就是最凶猛最可爱的超级魔人！](http://www.daogukj.com/8289580)
-- [路怒症被反杀，真的很解气](http://www.daogukj.com/ketbkhri/)
-- [女装的钱太好赚了](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
-- [听起来很贵其实很便宜的东西](http://www.movie.hkepx.cn/movie/9768501.htm)
-- [洪水泡过的食物不能吃 煮熟也不行](http://www.movie.hkepx.cn/xiju/6011810.htm)
-- [沉默的周星驰和上涨的票房](http://www.movie.hkepx.cn/xiju/6600784.htm)
-- [玻璃不要贴米字胶带，会起到反作用](http://www.movie.hkepx.cn/xiju/0855885.htm)
-- [为什么这次的台风巴威会这样铺天盖地的宣传，身边以前不关注的人也抢物资，是什么原因造成的？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
-- [6月全国新增新冠确诊7.9万例](http://www.daogukj.com/vnsrnwfs/)
-- [世界排名前4球队均晋级世界杯4强](http://www.movie.hkepx.cn/movie/9967199.htm)
-- [曝余承东内部群发飙，要求立刻整改「问界M8致车主行踪暴露」一事，是真的吗？这种bug是什么环节的问题？](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
-- [东西没了就没了 人在就好](http://www.movie.hkepx.cn/movie/6293448.htm)
-- [功夫女足用了迪丽热巴维语拼音全名](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
-- [世界杯半决赛，阿根廷将和英格兰复刻英阿大战，两队历史上有何恩怨，对本场比赛你有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
-- [遭遇强降雨有关险情如何避险自救](http://www.play.hengshemaoyi.cn/xiju/0952353.htm)
-- [“我不在的日子里，你们很嚣张啊”](http://www.movie.hkepx.cn/movie/5654110.htm)
-- [这就是节节攀升的中国发展成绩单](http://www.play.hengshemaoyi.cn/kongbu/6410086.htm)
+- [“星女郎”艾米被北电录取](http://www.movie.hkepx.cn/movie/8955570.htm)
+- [【独家】牧神记 第91集 皇帝，道主，侞莱](http://www.daogukj.com/krvvnboj/)
+- [郑州一排污口被居民当游泳池戏水](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
+- [为什么台风预报的时候来势汹汹，但真登陆了感觉没有那么强烈？](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
+- [阿根廷庆祝晋级 高喊不跳是英国人](http://www.movie.hkepx.cn/movie/1401219.htm)
+- [今天装饰了一下小卖部，希望你能喜欢](http://www.movie.hkepx.cn/movie/1801460.htm)
+- [【第四十四赛季·精华1】故事视频——《斯特瓦德的舞宴·下篇》公开：——“与我共舞吧，不停下坠，不停沉沦……”](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
+- [中华人民共和国外交部郑重声明](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
+- [菲律宾曾书面承认黄岩岛非其领土](http://www.movie.hkepx.cn/xiju/0216852.htm)
+- [你比泰森还牛比](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
+- [瑞士主帅：裁判误判偷走了胜利](http://www.daogukj.com/3303781)
+- [网络热传生物鉴定 第62期](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
+- [女演员称功夫女足剧组餐标很高](http://www.movie.hkepx.cn/movie/5835677.htm)
+- [前北京国安外援马努因车祸离世](http://www.daogukj.com/6841256)
+- [【STN快报第8.5季13】在大学打游戏将不再被称为不务正业](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
+- [一直以为取卡针的作用只有换电话卡](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
+- [超强厄尔尼诺事件要来了](http://www.daogukj.com/8289580)
+- [6月新增新冠确诊7.9万例](http://www.daogukj.com/ketbkhri/)
+- [交警罚完瓜农又掏钱买下110元瓜](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
+- [邹市明夫妇“两亿败局”的商业复盘](http://www.movie.hkepx.cn/movie/9768501.htm)
+- [台风巴威对山东发力了](http://www.movie.hkepx.cn/xiju/6011810.htm)
+- [孙悟空打死六耳猕猴后变得顺从乖巧，再也没被念紧箍咒，原因是什么？](http://www.movie.hkepx.cn/xiju/6600784.htm)
+- [22岁女子多次求饶仍被前男友杀害](http://www.movie.hkepx.cn/xiju/0855885.htm)
+- [狼 鬼 情 未 了](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
+- [如何看待 7 月 12 日伊朗再次宣布关闭霍尔木兹海峡？这种封锁会成为常态吗？从长期看，要怎么应对？](http://www.daogukj.com/vnsrnwfs/)
+- [7月17日油价将调整](http://www.movie.hkepx.cn/movie/9967199.htm)
+- [吾从人族来，自当为人族竭尽全力！](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
+- [小蜘蛛攻入本届个人首球获全场最佳](http://www.movie.hkepx.cn/movie/6293448.htm)
+- [峨眉武术传人谈《功夫女足》](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
+- [蔡徐坤直播](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
+- [多场景防汛避险指南](http://www.play.hengshemaoyi.cn/xiju/0952353.htm)
+- [在迪丽热巴身上看到了郭京飞的影子](http://www.movie.hkepx.cn/movie/5654110.htm)
+- [世界杯1/4决赛，阿根廷加时3-1瑞士进4强，小蜘蛛破门恩博洛假摔染红，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/6410086.htm)
 - [《崩坏：星穹铁道》动画短片——「你的终点，我的起点」](http://www.daogukj.com/8061636)
-- [一个台风治好了大家的饭压抑](http://www.movie.hkepx.cn/xiju/3678798.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.daogukj.com/4240143)
-- [委内瑞拉代总统是美国傀儡吗](http://www.movie.hkepx.cn/xiju/6821618.htm)
-- [普通人该如何科学避险](http://www.movie.hkepx.cn/xiju/6143707.htm)
-- [假如你生活在十万人的宿舍营](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
-- [周星驰功夫女足豆瓣开分](http://www.daogukj.com/ipksuuvb/)
-- [台风巴威登陆现场画面](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
-- [巴威登陆威力巨大 2米树枝插进房顶](http://www.movie.hkepx.cn/xiju/1798043.htm)
-- [赵牧辰女友否认知三当三](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
-- [台风巴威深入内陆](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
-- [邹市明拒绝和冉莹颖沟通](http://www.movie.hkepx.cn/xiju/0765053.htm)
-- [【独家】牧神记 第91集 皇帝，道主，侞莱](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
-- [特斯拉拆除Model S和X生产线](http://www.movie.hkepx.cn/xiju/3626228.htm)
-- [不久前，在瑞幸隔壁，有家烧饼店的视频火了](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
-- [男子发布涉台风不实信息被行拘](http://www.movie.hkepx.cn/xiju/4004417.htm)
-- [国企董事长办公室收礼监控曝光](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
+- [台风巴威实时路径](http://www.movie.hkepx.cn/xiju/3678798.htm)
+- [哈兰德：我现在已经彻底累垮了](http://www.daogukj.com/4240143)
+- [《明日方舟》集成战略「沉沦者的黑流树海」宣传PV · 玩法介绍](http://www.movie.hkepx.cn/xiju/6821618.htm)
+- [上半年高频数据折射我国经济稳中向优](http://www.movie.hkepx.cn/xiju/6143707.htm)
+- [韩红武汉演唱会宣布取消](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
+- [世界杯四强恰好是FIFA世界前四](http://www.daogukj.com/ipksuuvb/)
+- [房间里爱放谷子和手办的天塌了](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
+- [如何看待papi酱节目《热烈欢迎》邀请梁靖崑出席？](http://www.movie.hkepx.cn/xiju/1798043.htm)
+- [云南花 4950 万元建的政务 APP「曲靖通」关停，仅运营 4 年多，为什么会这样？暴露出哪些问题？](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
+- [评论员：受够了西班牙队阿根廷队](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
+- [功夫女足豆瓣6.6票房却杀疯了](http://www.movie.hkepx.cn/xiju/0765053.htm)
+- [观众吐槽：周星驰 到底谁欠谁电影票](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
+- [5000 元以下笔记本基本绝迹，购机门槛升至万元以上，为啥涨价幅度这么大？对行业和消费者有哪些影响？](http://www.movie.hkepx.cn/xiju/3626228.htm)
+- [汪苏泷原本打算开30分钟后退票](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
+- [盛唐时期大部分唐朝人真的能每天以肉饼为食吗？](http://www.movie.hkepx.cn/xiju/4004417.htm)
+- [网传大 S 遗产卡里仅有 200 万台币，这一消息真实性如何？](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
 
 </details>
 
 ## 原始来源
 
-- [盛唐时期大部分唐朝人真的能每天以肉饼为食吗？](https://www.zhihu.com/question/1920148899752023682)
+- [《无限暖暖》2.8版本套装PV | 白夜长旋舞&心光破晓时](https://b23.tv/BV1dtNA6JEMZ)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bc4304e1f65947077f22 -->
+<!-- content-fingerprint: a122649bfa163ec95b41 -->
