@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 周星驰官宣新「星女郎」雪野，她未来的发展潜力如何？
+# 多人因捏造散布涉汛谣言被拘
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：110 万热度 · 分类：问答 · 更新：2026-07-13T05:34:33+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6856409 · 更新：2026-07-13T16:37:20+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“周星驰官宣新「星女郎」雪野，她未来的发展潜力如何？”位列第 10 位，公开热度指标为 110 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“多人因捏造散布涉汛谣言被拘”位列第 10 位，公开热度指标为 6856409。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据灯塔专业版数据，截至7月11日11时32分，电影 《功夫女足》上映首日，总票房破1亿。 11日上午，@电影功夫女足 官方微博发文：累计票房破亿！“1”往无前勇闯赛场，一身功夫燃炸全场，感谢大家的喜爱与支持！ 据灯塔专业版，《功夫女足 》已打破3项影史纪录：中国影史暑期档影片首映日场次纪录、过去三年暑期档影片首映日场次纪录、过去三年暑期档影片预售票房纪录。 《功夫女足》是由周星驰执导并担任编剧，张小斐、迪丽热巴、张艺兴领衔主演，刘嘉玲、佐藤健特别出演，陈旻、李卓媚、秦鹏飞等主演的电影，于2026年7月11日在中国内地上映。 该片讲述了中国女子足球队“峨眉
+来源公开摘要显示：近日，网传“杭州建德车辆被淹”“钦州全域停电”“百合水库决堤”“复电收抢修费”均不实，造谣者已被依法处罚。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [网络热传生物鉴定 第62期](bei-gong-she-ying.md)
-- [浙江28人借巴威造谣被查处](jing-gong-zhi-niao.md)
-- [范志毅批哈兰德表现糟糕](hu-jia-hu-wei.md)
-- [男子发布涉台风不实信息被行拘](yu-mu-hun-zhu.md)
+- [曝李小冉徐佳宁离婚](bei-gong-she-ying.md)
+- [光模块龙头中际旭创辟谣多项传言](jing-gong-zhi-niao.md)
+- [曝具俊晔拟推翻放弃遗产声明，准备争夺大S儿女继承的2/3遗产，如何看待这一消息？从法律上看他能如愿吗？](hu-jia-hu-wei.md)
+- [世界纪录](yu-mu-hun-zhu.md)
 
 ## 站内推荐
 
-- [冉莹颖说把北京贵阳美国的房子都卖了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [英前大臣：指责中国称霸完全站不住脚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [2026 MSI 总决赛 HLE 3:2 复仇 BLG 夺得冠军，如何评价这场比赛？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [全国 6 月新增新冠超 7 万例，病例数呈上升趋势，这意味着什么？普通人需要打加强针吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [多名网络主播偷逃税被查，税务部门追缴税费并处罚款超 1330 万元，具有哪些警示意义？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [新能源车成「快消品」，平均车龄仅 1.8 年，年轻人为何把电车当手机一样换这么频繁？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [蒙古獒为保护牛群孤身迎战五匹狼](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [17天新生儿被宠物狗咬伤脑袋](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [广西男子在淤泥中挖出自家保险柜](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [黑中介以学历低为由逼人离职](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [7岁男孩帮爷爷卖瓜1秒套袋](http://www.movie.hkepx.cn/movie/6811296.htm)
-- [辛纳卫冕温网男单冠军](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
-- [7月17日油价将调整](http://www.movie.hkepx.cn/movie/3422828.htm)
-- [为什么有些人明明逻辑清晰，却总是无法清晰地表达出来？](http://www.daogukj.com/ydwohxdl/)
-- [洪水退去 狗狗踱步守候房子](http://www.movie.hkepx.cn/xiju/2720207.htm)
-- [江苏东台发生3.0级地震](http://www.movie.hkepx.cn/movie/8905156.htm)
-- [荒野大啾比](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
-- [央视曝违规售卖屏蔽器乱象](http://www.movie.hkepx.cn/movie/6751227.htm)
-- [河南的最高礼仪给谢霆锋整不会了](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
-- [台风巴威风力持续减小 最新预测](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
-- [如何看待中华人民共和国外交部发布关于有关国家炒作「南海仲裁案裁决」出台十年的声明？释放了哪些信号？](http://www.movie.hkepx.cn/movie/6134002.htm)
-- [英前大臣：指责中国称霸完全站不住脚](http://www.movie.hkepx.cn/xiju/5097281.htm)
-- [西班牙vs法国](http://www.movie.hkepx.cn/xiju/1723334.htm)
-- [小红书前员工再发文实名举报 IPO 合规，哪些信息值得关注？](http://www.daogukj.com/8560862)
-- [交警罚完瓜农又掏钱买下110元瓜](http://www.movie.hkepx.cn/movie/0534103.htm)
-- [哈兰德快哭了](http://www.daogukj.com/egppjxgx/)
-- [巴威发威青岛巨浪滔天](http://www.daogukj.com/kdnhmkcj/)
-- [新能源车平均车龄仅1.8年](http://www.daogukj.com/khgfsqiu/)
-- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.movie.hkepx.cn/xiju/9522986.htm)
-- [特厨隋坡探店全差评餐厅引争议，老板「逆天回怼」是高明还是失策？](http://www.daogukj.com/sygihuae/)
-- [外交部用冲之鸟礁反问日本](http://www.daogukj.com/sucemorm/)
-- [Bin](http://www.movie.hkepx.cn/xiju/6593136.htm)
-- [江苏盐城发生3.0级地震](http://www.daogukj.com/pencausq/)
-- [中华人民共和国外交部郑重声明](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
-- [周深现场把伴舞开了](http://www.daogukj.com/2517745)
-- [男子发布涉台风不实信息被行拘](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
-- [一图读懂“六张网”之新型电网](http://www.movie.hkepx.cn/xiju/5387412.htm)
-- [功夫女足票房破5亿](http://www.movie.hkepx.cn/movie/2763004.htm)
-- [《崩坏：星穹铁道》动画短片——「你的终点，我的起点」](http://www.movie.hkepx.cn/xiju/8265001.htm)
-- [“雷霆动物集体蹦迪，汽车光头百万撤离”【天堂的彼端-变速】【顶级智斗の小曲】](http://www.daogukj.com/pbivxwuy/)
-- [张雪机车WSBK英国站第二回合第10名](http://www.daogukj.com/msnbkunl/)
-- [世界杯史上最强半决赛](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
-- [网络热传生物鉴定 第62期](http://www.movie.hkepx.cn/movie/3294285.htm)
-- [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
-- [哈兰德首次世界杯5场7球](http://www.daogukj.com/7751528)
-- [假如你生活在十万人的宿舍营](http://www.movie.hkepx.cn/xiju/5949359.htm)
-- [巴威接下来携暴雨大暴雨去哪儿](http://www.movie.hkepx.cn/movie/9383605.htm)
-- [《下一个是谁》第七季（1）](http://www.daogukj.com/0705031)
-- [中央考核巡查组：您懂得怎么操作吗](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
-- [《功夫女足》已打破9项中国影史纪录](http://www.daogukj.com/iaxbxgkd/)
-- [“我不在的日子里，你们很嚣张啊”](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
-- [邹市明夫妇“两亿败局”的商业复盘](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
-- [足坛真神TOP：哈兰德！离开世界杯！他就是最凶猛最可爱的超级魔人！](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
-- [航天员太空锻炼姿势又上新了](http://www.movie.hkepx.cn/xiju/9594303.htm)
-- [四川最近的现状](http://www.daogukj.com/3727264)
-- [郭涵煜组合夺温网女双冠军](http://www.movie.hkepx.cn/movie/8918029.htm)
-- [吾从人族来，自当为人族竭尽全力！](http://www.daogukj.com/5225618)
-- [如何看待 7 月 12 日伊朗再次宣布关闭霍尔木兹海峡？这种封锁会成为常态吗？从长期看，要怎么应对？](http://www.daogukj.com/7483927)
-- [台风把瀑布吹到倒流](http://www.daogukj.com/hmowpwmp/)
-- [范志毅批哈兰德表现糟糕](http://www.movie.hkepx.cn/movie/8474409.htm)
+- [消费观突然就被矫正了](http://www.movie.hkepx.cn/movie/6811296.htm)
+- [网络热传生物鉴定 第62期](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
+- [男子称吃饭发现桌子是清代贡元匾额](http://www.movie.hkepx.cn/movie/3422828.htm)
+- [中国籍女医生在柬埔寨诊所内遇害](http://www.daogukj.com/ydwohxdl/)
+- [如果按拍《权游》的方法拍摄三国演义，是不是会火爆全球？](http://www.movie.hkepx.cn/xiju/2720207.htm)
+- [中方：英国没资格对南海问题说三道四](http://www.movie.hkepx.cn/movie/8905156.htm)
+- [张小斐迪丽热巴你俩在害羞什么](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
+- [冉莹颖自曝曾多次想离婚，如何看待明星夫妇对外公开婚姻中的挣扎？](http://www.movie.hkepx.cn/movie/6751227.htm)
+- [大连发布暴雨强对流蓝色预警](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
+- [如何看待FIFA主席正式确认世界杯将考虑扩至64支球队：每个国家都应该有机会参加世界杯？](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
+- [超智障足球 Part3](http://www.movie.hkepx.cn/movie/6134002.htm)
+- [蒙古獒为保护牛群孤身迎战五匹狼](http://www.movie.hkepx.cn/xiju/5097281.htm)
+- [挪威被淘汰后，哈兰德老爹社媒阴阳裁判「干的漂亮」，这场比赛的吹罚有什么明显的问题吗？](http://www.movie.hkepx.cn/xiju/1723334.htm)
+- [多元业态激发夏日经济活力](http://www.daogukj.com/8560862)
+- [观众对周星驰的期待不止于无厘头](http://www.movie.hkepx.cn/movie/0534103.htm)
+- [售价1.25万的YSL男士PVC透明皮鞋遭吐槽「脚臭可视化」，如何看待这一设计？这种材料会加重脚臭吗？](http://www.daogukj.com/egppjxgx/)
+- [《八仙！》开点映了，看完的朋友来说说，如何评价这部电影？](http://www.daogukj.com/kdnhmkcj/)
+- [李小冉徐佳宁已无直接商业关联](http://www.daogukj.com/khgfsqiu/)
+- [大桥被淹没 巴威外围已开始影响东北](http://www.movie.hkepx.cn/xiju/9522986.htm)
+- [青岛 海水倒灌](http://www.daogukj.com/sygihuae/)
+- [用玻璃手搓了雷电将军…](http://www.daogukj.com/sucemorm/)
+- [美国共和党「鹰派」参议员林赛·格雷厄姆在家中突发疾病去世，他有哪些政治主张？其去世会带来什么影响？](http://www.movie.hkepx.cn/xiju/6593136.htm)
+- [【纪录片】闪闪的儿科医生4 第7集 父爱练习手册](http://www.daogukj.com/pencausq/)
+- [如何评价赛力斯 2026 年上半年预计亏损 15-18 亿？为什么销量不低却依然巨亏？](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
+- [足球解说员詹俊透露，樊振东将解说世界杯决赛，对此大家有什么期待？](http://www.daogukj.com/2517745)
+- [世界纪录](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
+- [《无限暖暖》2.8版本PV | 黄金尘](http://www.movie.hkepx.cn/xiju/5387412.htm)
+- [有没有一种「落后」的生活方式，仔细想后竟让人有点羡慕？](http://www.movie.hkepx.cn/movie/2763004.htm)
+- [“怕作秀”的女干部再次拒绝采访](http://www.movie.hkepx.cn/xiju/8265001.htm)
+- [净网：严打编造传播涉汛等涉灾谣言](http://www.daogukj.com/pbivxwuy/)
+- [阿根廷队成世界杯公敌了吗](http://www.daogukj.com/msnbkunl/)
+- [《争洛阳》票房不佳，《星三国》弃拍续集，以曹操为主角的三国电影究竟出路何在？](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
+- [曝李小冉徐佳宁离婚](http://www.movie.hkepx.cn/movie/3294285.htm)
+- [17天新生儿被自家宠物狗咬开脑袋](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
+- [孩子总把网络烂梗挂嘴边怎么办？【AI全民制作人】](http://www.daogukj.com/7751528)
+- [严打编造传播涉汛等涉灾网络谣言](http://www.movie.hkepx.cn/xiju/5949359.htm)
+- [中国首个禁售燃油车省份确认](http://www.movie.hkepx.cn/movie/9383605.htm)
+- [女子在景区厕所被满墙壁虎“围观”](http://www.daogukj.com/0705031)
+- [为什么要蒸唐僧，而不是炒呢？](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
+- [日本民众集会举牌“中国对不起”](http://www.daogukj.com/iaxbxgkd/)
+- [沈阳地铁](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
+- [“再见了，所有的NiKo烂梗”『拼接遗憾』](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
+- [浙江17天新生儿被宠物狗咬伤](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
+- [如何看待周星驰新电影《功夫女足》预测票房大幅飙升至 25 亿人民币？](http://www.movie.hkepx.cn/xiju/9594303.htm)
+- [看完《功夫女足》后，你最大的感受是什么？](http://www.daogukj.com/3727264)
+- [空洗衣液瓶塞衣服里可防溺水自救](http://www.movie.hkepx.cn/movie/8918029.htm)
+- [沪指险守3900点 A股能否修复](http://www.daogukj.com/5225618)
+- [演唱会惊现一种很新的拍法](http://www.daogukj.com/7483927)
+- [iPhone20再曝光](http://www.daogukj.com/hmowpwmp/)
+- [曝具俊晔拟推翻放弃遗产声明，准备争夺大S儿女继承的2/3遗产，如何看待这一消息？从法律上看他能如愿吗？](http://www.movie.hkepx.cn/movie/8474409.htm)
 
 </details>
 
 ## 原始来源
 
-- [周星驰官宣新「星女郎」雪野，她未来的发展潜力如何？](https://www.zhihu.com/question/2059265190982693711)
+- [多人因捏造散布涉汛谣言被拘](https://www.baidu.com/s?wd=%E5%A4%9A%E4%BA%BA%E5%9B%A0%E6%8D%8F%E9%80%A0%E6%95%A3%E5%B8%83%E6%B6%89%E6%B1%9B%E8%B0%A3%E8%A8%80%E8%A2%AB%E6%8B%98&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a615857cbb10e50ea4a9 -->
+<!-- content-fingerprint: 8743e3dca73ce033772d -->
