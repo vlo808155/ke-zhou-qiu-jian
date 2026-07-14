@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何评价赛力斯 2026 年上半年预计亏损 15-18 亿？为什么销量不低却依然巨亏？
+# 浙江一住户为防台风用「米」字胶带加固窗户，却成为全楼唯一一户碎玻璃的，为啥会这样？「米」字封窗有用吗？
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：93 万热度 · 分类：问答 · 更新：2026-07-14T07:38:46+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：168 万热度 · 分类：问答 · 更新：2026-07-14T15:22:53+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价赛力斯 2026 年上半年预计亏损 15-18 亿？为什么销量不低却依然巨亏？”位列第 12 位，公开热度指标为 93 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“浙江一住户为防台风用「米」字胶带加固窗户，却成为全楼唯一一户碎玻璃的，为啥会这样？「米」字封窗有用吗？”位列第 12 位，公开热度指标为 168 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：36氪获悉，赛力斯公告，预计2026年上半年归母净利润亏损15亿元到18亿元，上年同期盈利29.41亿元。受存储芯片、工业金属、碳酸锂等主要原材料价格上涨等因素的影响，公司生产成本随之增加；基于审慎性原则并进一步夯实整体资产质量，结合资产后续收益预期，对部分因技术迭代、车型换代导致适配性有限的存量资产调整账面价值。受上述因素影响，公司核心子公司问界汽车业绩出现波动，由盈转亏。因此，预计公司本期合并口径归属于上市公司股东的净利润为负值。公告原文赛力斯：预计上半年净亏损15亿元-18亿元-36氪
+来源公开摘要显示：[视频]
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [今天来广东韶关，挑战在200多年历史的悬崖小屋上住一晚，体验一把野外生存](sha-ji-qu-luan.md)
-- [沈阳再次通告全市](yin-zhen-zhi-ke.md)
-- [中国自研AI芯片取得架构突破](ke-zhou-qiu-jian.md)
-- [不用“外挂”的中国空调在欧洲杀疯了](yan-er-dao-ling.md)
+- [动态视频｜世界上所有的钱，加起来有多少？](sha-ji-qu-luan.md)
+- [“美丽明天”会是下一个与辉同行吗](yin-zhen-zhi-ke.md)
+- [AI杀死时尚行业](ke-zhou-qiu-jian.md)
+- [超250万人请愿将阿根廷逐出世界杯](yan-er-dao-ling.md)
 
 ## 站内推荐
 
-- [格雷厄姆猝死将如何影响美中期选举](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [特朗普称美国将恢复「针对伊朗的封锁」，如何解读美伊此轮博弈？将如何影响中东局势和全球能源市场？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [如何看待巴西网友被阿根廷战绩打破防，巴西如今的足球水平被阿根廷拉开档次差距了吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [bw漫展神级现场！无耳返全开麦无修音稳如CD！！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [超智障足球 Part3](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [厨师离职被要求交出烹饪配方才结工资，饭店称为了标准化作业，烹饪配方属于个人还是饭店？可以和工资绑定吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [特朗普通知国会伊朗战事重新爆发，伊朗称袭击美国海军第五舰队司令部，局势将如何发展？本轮战事会持续多久？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [长沙女干部占车位通报被指有「拉偏架」嫌疑，体育局称还在核实，怎样看待此前通报的措辞？哪些事实待厘清？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [《士兵突击》中，李晨饰演的吴哲去了 A 大队，真的屈才了吗？会不会就是待两三个月就离开？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [你认为补课时间长一定能提高成绩吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [乒乓是真断代了](http://www.daogukj.com/3439248)
-- [重庆男子带“移动空调”江边钓鱼](http://www.movie.hkepx.cn/xiju/5723356.htm)
-- [周星驰电影《功夫女足》次日票房 2.39 亿，首周票房 5 亿，预测将破20亿甚至25亿，希望有多大？](http://www.daogukj.com/6000433)
-- [男子发现家里桌子是清代贡元匾额](http://www.daogukj.com/7456083)
-- [法国vs西班牙半决赛前将进行默哀仪式](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
-- [狼 鬼 情 未 了](http://www.movie.hkepx.cn/movie/2238087.htm)
-- [女子在景区厕所被满墙壁虎“围观”](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
-- [家道突然中落是一种什么样的体验](http://www.movie.hkepx.cn/xiju/4841059.htm)
-- [日本民众集会举牌“中国对不起”](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
-- [两位院士感慨「现在是基础研究最好的时代」，你认为这一判断是基于哪些考量？](http://www.movie.hkepx.cn/xiju/8193455.htm)
-- [05年女孩独自开9.6米货车打拼生活](http://www.movie.hkepx.cn/xiju/1574035.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/xiju/0717269.htm)
-- [中国自研AI芯片取得架构突破](http://www.daogukj.com/9326450)
-- [建议大家都试试生活反差法](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
-- [中山大学222人取消录取资格](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
-- [人均日通话降至8.7分钟](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
-- [长鑫近2万员工每人或可分超百万](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
-- [《功夫女足》爆了 但周星驰有点偷懒](http://www.movie.hkepx.cn/xiju/7062133.htm)
-- [台风位置](http://www.daogukj.com/amzovuov/)
-- [欧洲高温下中国小电器花样百出](http://www.daogukj.com/2011735)
-- [为什么说中餐正在悄悄退化？](http://www.movie.hkepx.cn/xiju/2237302.htm)
-- [本科毕业无法进入教师岗位？假的](http://www.movie.hkepx.cn/movie/3232131.htm)
-- [关于台风天的几个误区](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
-- [调查显示近千只瘫痪小猫超 65%食用同一品牌猫粮，真是猫粮问题吗？猫粮中哪些成分可能导致这一问题？](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
-- [超智障足球 Part3](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
-- [如何看待巴西网友被阿根廷战绩打破防，巴西如今的足球水平被阿根廷拉开档次差距了吗？](http://www.movie.hkepx.cn/movie/7476543.htm)
-- [沈阳暴雨 路人撑船穿梭街道](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
-- [空调开多少度最省电](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
-- [为什么工作痛苦但不离职](http://www.daogukj.com/7278634)
-- [领导是不是伪善，从哪些细节可以看出端倪吗？](http://www.daogukj.com/kjritwpu/)
-- [湖北黄冈龙卷风灾后清理修复持续推进](http://www.movie.hkepx.cn/movie/7092438.htm)
-- [未来五年 这样提高国民健康水平](http://www.movie.hkepx.cn/movie/3129013.htm)
-- [海南将禁售燃油车 释放什么信号](http://www.movie.hkepx.cn/xiju/7500457.htm)
-- [哈兰德女朋友穿高跟鞋颠球](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
-- [动态视频｜世界上所有的钱，加起来有多少？](http://www.daogukj.com/pgoxgqgc/)
-- [景区10万元高薪招募的野人上岗了](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
-- [台风巴威远程发威](http://www.daogukj.com/euynrtzl/)
-- [热烈欢庆传奇反华魔怔人 林赛-格雷厄姆暴毙](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
-- [苹果开始测试中国企业长鑫存储内存芯片，背后有哪些战略考量？此举将带来哪些产业影响？](http://www.movie.hkepx.cn/xiju/8147435.htm)
-- [天津一医院主任通过APP答题受贿](http://www.daogukj.com/soikllri/)
-- [医生：想让孩子长高这些食物要少碰](http://www.daogukj.com/3156407)
-- [老人为救女子被咬掉鼻子 本人发声](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
-- [南方两倍做多海力士已跌近70%](http://www.movie.hkepx.cn/xiju/1247424.htm)
-- [ChiliChill乐团×花玲宴宁×回声少年，森林说《我不曾忘记》【BML-PLAY! 2026】](http://www.daogukj.com/urlgwtmt/)
-- [bw漫展神级现场！无耳返全开麦无修音稳如CD！！](http://www.movie.hkepx.cn/movie/3044896.htm)
-- [国务院：逐步提高城乡居民基础养老金](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
-- [美籍华裔女演员何炜晴去世](http://www.movie.hkepx.cn/xiju/3522057.htm)
-- [法男子来华给93岁母亲背回一台空调](http://www.daogukj.com/1068378)
-- [今天来广东韶关，挑战在200多年历史的悬崖小屋上住一晚，体验一把野外生存](http://www.movie.hkepx.cn/xiju/2722752.htm)
-- [《八仙！》开点映了，看完的朋友来说说，如何评价这部电影？](http://www.movie.hkepx.cn/xiju/6955801.htm)
+- [刘强任山东省委副书记](http://www.daogukj.com/3439248)
+- [被高铁“逼退”的大巴车换了个活法](http://www.movie.hkepx.cn/xiju/5723356.htm)
+- [周星驰为什么要在这个时候拍这么一部《功夫女足》？](http://www.daogukj.com/6000433)
+- [为什么施南生必须被记住](http://www.daogukj.com/7456083)
+- [家有儿女放在今天be like](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
+- [共享单车起步价再次全面上调，网友反映「一扫开就近两块钱」，价格为何不断上涨？会影响大家的出行选择吗？](http://www.movie.hkepx.cn/movie/2238087.htm)
+- [AI脸 恐怖谷效应](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
+- [电影《八仙！》提档7月18日上映](http://www.movie.hkepx.cn/xiju/4841059.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
+- [如何评价 OpenAI 新模型 GPT-5.6 Sol Ultra，在不到一小时内证明循环双覆盖猜想？](http://www.movie.hkepx.cn/xiju/8193455.htm)
+- [名创优品致歉](http://www.movie.hkepx.cn/xiju/1574035.htm)
+- [“父爱如山，无关智商！”](http://www.movie.hkepx.cn/xiju/0717269.htm)
+- [AI杀死时尚行业](http://www.daogukj.com/9326450)
+- [张碧晨弃赛声明](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
+- [沈阳暴雨后一车辆上爬满蜗牛](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
+- [直击沈阳局地特大暴雨](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
+- [几天没更新因为在做梦，这次的梦有点麻烦要处理事有点多所以在梦里呆了好几天才回来写歌](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
+- [燃油车的世界正在崩塌 电车也不好过](http://www.movie.hkepx.cn/xiju/7062133.htm)
+- [邹市明2亿理财亏损始末](http://www.daogukj.com/amzovuov/)
+- [灿如繁星剧粉把超话吵爆了](http://www.daogukj.com/2011735)
+- [女儿称赵本山彻底退休不会再演小品](http://www.movie.hkepx.cn/xiju/2237302.htm)
+- [数码商铺一夜之间被台风撕碎？谣言](http://www.movie.hkepx.cn/movie/3232131.htm)
+- [台风淹水致商铺狼藉图片为AI合成](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
+- [邹市明冉莹颖，谁该为之前的投资失败乃至当前的婚姻状态付更大的责？](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
+- [你认为补课时间长一定能提高成绩吗？](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
+- [长沙女干部占车位通报被指有「拉偏架」嫌疑，体育局称还在核实，怎样看待此前通报的措辞？哪些事实待厘清？](http://www.movie.hkepx.cn/movie/7476543.htm)
+- [给村里修了条公路！](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
+- [暴雨积水小伙挨个打电话通知车主挪车](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
+- [小贝不顾形象狂欢 妻子一脸不屑](http://www.daogukj.com/7278634)
+- [伊朗袭击美国海军第五舰队司令部](http://www.daogukj.com/kjritwpu/)
+- [美国25岁女子性侵男童并录像](http://www.movie.hkepx.cn/movie/7092438.htm)
+- [青春主场踏歌而行](http://www.movie.hkepx.cn/movie/3129013.htm)
+- [阿根廷主帅回击请愿逐出阿根廷](http://www.movie.hkepx.cn/xiju/7500457.htm)
+- [乐事回应薯片中被曝出现蓝色异物](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
+- [暑期游“热”起来](http://www.daogukj.com/pgoxgqgc/)
+- [机票突现“1”字头 比坐高铁还便宜](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
+- [马兴瑞被双开](http://www.daogukj.com/euynrtzl/)
+- [假如你在一个十万人宿舍查寝【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
+- [如何看待「一副局长自购 10 亿 token 月费 20 多，手搓防汛小程序」？](http://www.movie.hkepx.cn/xiju/8147435.htm)
+- [法国男子上海出差背了一台空调回国](http://www.daogukj.com/soikllri/)
+- [特斯拉官方宣传汽车寿命](http://www.daogukj.com/3156407)
+- [【复制铜镜全系列合集】ai软件生成，剧情虚构，非官方）正片+番外+解说+彩蛋](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
+- [“宇宙舅舅”的外甥们放暑假了](http://www.movie.hkepx.cn/xiju/1247424.htm)
+- [2026世界杯半决赛西班牙vs法国，你看好哪支球队？](http://www.daogukj.com/urlgwtmt/)
+- [《士兵突击》中，李晨饰演的吴哲去了 A 大队，真的屈才了吗？会不会就是待两三个月就离开？](http://www.movie.hkepx.cn/movie/3044896.htm)
+- [知友发现 2026 菲尔兹奖名单泄露，王虹、邓煜疑似双双获奖，如何看待这一信息？](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
+- [女子怀二胎工资从7000降到4500](http://www.movie.hkepx.cn/xiju/3522057.htm)
+- [房东回应民宿禁止夫妻情侣入住](http://www.daogukj.com/1068378)
+- [动态视频｜世界上所有的钱，加起来有多少？](http://www.movie.hkepx.cn/xiju/2722752.htm)
+- [放射科主任伙同女友受贿2392万获刑](http://www.movie.hkepx.cn/xiju/6955801.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价赛力斯 2026 年上半年预计亏损 15-18 亿？为什么销量不低却依然巨亏？](https://www.zhihu.com/question/2059697862565536691)
+- [浙江一住户为防台风用「米」字胶带加固窗户，却成为全楼唯一一户碎玻璃的，为啥会这样？「米」字封窗有用吗？](https://www.zhihu.com/question/2060049184527480687)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7882a5c3696f0aa5ea39 -->
+<!-- content-fingerprint: 6e89376fa61a314085c9 -->
