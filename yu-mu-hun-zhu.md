@@ -2,11 +2,11 @@
 
 # DeepSeek工资待遇太恐怖了
 
-> 来源：微博热搜 · 排名：第 11 位 · 热度：356751 · 分类：互联网 · 更新：2026-07-15T20:11:07+08:00
+> 来源：微博热搜 · 排名：第 11 位 · 热度：246446 · 分类：互联网 · 更新：2026-07-16T00:53:57+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“DeepSeek工资待遇太恐怖了”位列第 11 位，公开热度指标为 356751，榜单分类为“互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“DeepSeek工资待遇太恐怖了”位列第 11 位，公开热度指标为 246446，榜单分类为“互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -19,73 +19,73 @@
 ## 相关热点
 
 - [存100万解锁5.25%利息系假信息](dong-shi-xiao-pin.md)
-- [现在大厂都没实力提供托儿所和厂办医院，当年为啥可以，当年工人产值那么高吗？](han-dan-xue-bu.md)
-- [足坛真神TOP：姆巴佩！离开世界杯！如果最高战力，为何不能天下第一！？](qi-ren-you-tian.md)
-- [富士康打工妹逆袭成中国女首富](chao-san-mu-si.md)
+- [罗技分销商因发「像狗一样」辱客广告，被市场监管部门罚款20万，如何看待这一处罚结果？有哪些警示意义？](han-dan-xue-bu.md)
+- [带小猎豹自律的一天](qi-ren-you-tian.md)
+- [女子煲汤邻居误以为尸臭报警](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [国务院发文：未来5年涨工资、落实假期](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [国台办回应两岸统一时间](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [百花杀](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [吴绮莉公开成龙拒认吴卓林原因](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [哈萨克斯坦总统托卡耶夫抵达上海](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [《功夫女足》换片源](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [世界杯：英格兰vs阿根廷](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [王俊凯忙一天打开手机天塌了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [我也好奇冉莹颖在MBA班上都学了啥](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [专家：三伏天千万不要喝冷饮](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [孩子总是不敢尝试，怕失败，怕出丑，作为家长该怎么引导和鼓励？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [美军称对伊朗进行了90分钟打击](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [邹市明上海拳馆年租金高达5000万元，年卡定价达 8.8 万，天价投资健身房的盈利模式是怎样的？](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [富士康打工妹逆袭成中国女首富](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [路边摊吃盒饭 吃成摊主](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [黑队](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [哈萨克斯坦总统托卡耶夫抵达上海](http://www.daogukj.com/4734416)
-- [身家飙升至 360 亿美元，为什么梁文锋能超越奥特曼和达里奥成全球 AI 大模型创始人首富？](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [长鑫科技7月16日开启申购，发行价为8.66元/股，估值超4万亿，对其自身发展和半导体产业意味着什么？](http://www.daogukj.com/eujljnlh/)
-- [为什么老一辈人都觉得空调不能长时间吹？](http://www.daogukj.com/3484796)
-- [百花杀](http://www.daogukj.com/6840289)
-- [哭着剪完这条视频…](http://www.daogukj.com/8544186)
-- ["自古英雄出少年."](http://www.daogukj.com/4262842)
-- [国台办回应两岸统一时间](http://www.movie.hkepx.cn/movie/0136106.htm)
-- [打卡中国](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [吴绮莉公开成龙拒认吴卓林原因](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [高度发达的地外文明会是什么样子？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [阿根廷主帅：不要混淆足球和战争](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [网友称 LV 已将纸钱纹样注册，具体什么情况？如果属实纸钱商家会被告侵权吗？](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [女子煲汤邻居误以为尸臭报警](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [如何评价 Q2 全球智能手机出货量同比下滑，小米跌幅最大，三星、苹果、华为逆势上涨？](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [张凌赫智性恋天菜具像化](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [专家：三伏天千万不要喝冷饮](http://www.daogukj.com/4734416)
+- [四川一旅游车坠入河滩](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [韩国股市大反弹，SK海力士美股隔夜暴涨 27%，散户大规模爆仓强平后指数强势反弹，为何波动如此极端？](http://www.daogukj.com/eujljnlh/)
+- [法国队遭调侃「遇到西班牙前一点力都没出，遇到后一点力都使不出」，其杀到半决赛真是运气吗？真实水平如何？](http://www.daogukj.com/3484796)
+- [王俊凯忙一天打开手机天塌了](http://www.daogukj.com/6840289)
+- [现在大厂都没实力提供托儿所和厂办医院，当年为啥可以，当年工人产值那么高吗？](http://www.daogukj.com/8544186)
+- [20亿票房？！潮汕爆火出圈？电影和现实又有哪些区别？《给阿嬷的情书》取景地巡礼](http://www.daogukj.com/4262842)
+- [世界杯：英格兰vs阿根廷](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [二季度GDP增长4.3% 怎么看](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
+- [我也好奇冉莹颖在MBA班上都学了啥](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
 - [存100万解锁5.25%利息系假信息](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [某药企伪造专家联名信进医保集采，医保局称 80%签名不实，这反映了什么？](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [A股超3300股上涨 存储芯片再遭抛售](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [上海日式拉面挑战，超油腻！20分钟吃完奖金500元！能吃饱吗？](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [华为手机出货量逆势暴涨](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [张月陈瑶 我家那闺女](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [回 旋 彪](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [烧一桌中式家常菜，款待十年没见的法国老友！](http://www.daogukj.com/4133568)
-- [20亿票房？！潮汕爆火出圈？电影和现实又有哪些区别？《给阿嬷的情书》取景地巡礼](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [这是三角洲最强干员，你敢和他们对视3秒吗？](http://www.daogukj.com/0480016)
-- [家长月薪3500元请大学生带娃](http://www.daogukj.com/4561506)
-- [如何看待比亚迪唐电机总成脱落事件客服最新回应，为底盘发生严重磕碰所致？](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [陈翔六点半：突然大方的兄弟](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [专家：普京喊数倍回击藏着残酷现实](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [《红楼梦》刘姥姥扮演者沙玉华去世](http://www.daogukj.com/jbdvxipc/)
-- [精致女生赛道整出狠活！水下露营让人肃然起敬堪比行为艺术哈哈哈](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [猴价大涨 “囤猴”概念股有何风险](http://www.daogukj.com/awgjjjvg/)
-- [人民网开通防灾减灾建言专区](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [上集| 丧尸末日降临 而我还在送外卖](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [谁来拯救便利店](http://www.daogukj.com/ditzbwwz/)
-- [博主：西班牙踢的是“最不爽”的足球](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [丈夫私生活混乱 妻子怒要给孩子改姓](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [电视卖不动了](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [当一个孩子问「我为什么要学自己不会的东西，用AI 不就知道了」，你会怎么回答？](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [LOL官宣将推出怀旧模式，还原老版模型与旧数值且长期开放，在玩家日趋流失的现在会是个好做法吗？](http://www.daogukj.com/aqmuomii/)
-- [最伤孩子大脑的行为是什么](http://www.daogukj.com/phjdnbun/)
-- [守护公民个人身份信息安全](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [《迈亚融解》实机首曝](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [男子168万拍下“乾隆梅瓶”仅值250元](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [TF家族运动会分队官宣](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [男子醉驾怕坐牢买棺材伪造自杀](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [沈阳一水库放水 市民扎堆捕鱼](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [伊朗公布美第五舰队指挥中心被摧毁图](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [现在大厂都没实力提供托儿所和厂办医院，当年为啥可以，当年工人产值那么高吗？](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [采购被要求年降10%，供应商已经没什么利润空间了，还有什么降本方向？](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [7月17日24时国内油价将调整](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- ["自古英雄出少年."](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [【幼稚园TV】建材王哥大闹天宫](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [富士康打工妹逆袭成中国女首富](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [【战双帕弥什】「海伦汀·安魂」角色PV | 完美任务](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [我这视频看完没啥感觉，但是暖暖的！](http://www.daogukj.com/4133568)
+- [这下真的能住了哈](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [回 旋 彪](http://www.daogukj.com/0480016)
+- [日本阴阳菜单已蔓延至中小城市](http://www.daogukj.com/4561506)
+- [为什么杨瀚森在 NBA 发展联盟&夏季联赛的发挥，反而比在国家队的发挥好？](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [足坛真神TOP：姆巴佩！离开世界杯！如果最高战力，为何不能天下第一！？](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [调查显示日本逾五成家庭“过得苦”](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [功夫女足2](http://www.daogukj.com/jbdvxipc/)
+- [上集| 丧尸末日降临 而我还在送外卖](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [比亚迪高管：没美国市场销量也超丰田](http://www.daogukj.com/awgjjjvg/)
+- [于东来为啥坐到总理座谈会前排](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [搞强拆能惹多大祸？【奇葩小国53】](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [西班牙首相就“法国队没法国人”道歉](http://www.daogukj.com/ditzbwwz/)
+- [演员朱辉在黄河三门峡大坝一步跨豫晋](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [演员许鹏自曝已返乡卖菜](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [曝C罗考虑参加2030年世界杯](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [Claude Code 源码泄露后OpenCode 却没有一波大更新？是开源社区躺平了，还是另有隐情？](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [西班牙完胜法国晋级决赛，他们的极致传控有多强？夺冠概率有多大？](http://www.daogukj.com/aqmuomii/)
+- [不建议大家辞职去做自媒体](http://www.daogukj.com/phjdnbun/)
+- [哭着剪完这条视频…](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [如何正确安慰兄弟](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [家长月薪3500元请大学生暑假带娃](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [吴绮莉公开成龙拒认吴卓林原因](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [胖东来的西瓜原来是这样切的](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [姆巴佩心态崩了](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [克罗地亚正式致函FIFA抗议](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [罗技分销商因发「像狗一样」辱客广告，被市场监管部门罚款20万，如何看待这一处罚结果？有哪些警示意义？](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4034a72fbb395f1efa61 -->
+<!-- content-fingerprint: f2c74121446a9fabf996 -->
