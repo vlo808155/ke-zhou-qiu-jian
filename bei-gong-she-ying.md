@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 周星驰电影《功夫女足》剑指30亿，如何看待多年前李成儒的墙角论？周星驰电影是墙角吗？
+# 邵永灵：日本离造核弹只差一个名分
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：183 万热度 · 分类：问答 · 更新：2026-07-18T14:32:58+08:00
+> 来源：今日头条热榜 · 排名：第 10 位 · 热度：18217918 · 更新：2026-07-18T18:48:55+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“周星驰电影《功夫女足》剑指30亿，如何看待多年前李成儒的墙角论？周星驰电影是墙角吗？”位列第 10 位，公开热度指标为 183 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“邵永灵：日本离造核弹只差一个名分”位列第 10 位，公开热度指标为 18217918。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：在2020年的综艺节目《我就是演员3》中，演员许君聪和姜潮表演了周星驰电影《西游降魔篇》的片段。 表演被叫停后，李成儒对许君聪说：“希望你提高眼界，提高对艺术的鉴赏力，不要总盯在墙角、墙裙子上，往高看一看，不要盯着八十年代以后开始流行起来的无厘头的表演，就认为是高级的”。 这番话被普遍认为是在批评周星驰的表演风格。许君聪反驳：作为周星驰的粉丝-，许君聪当场回应：“周星驰老师在我眼里不是墙角”。 目前，周星驰的电影《功夫女足》剑指30亿，片中给许君聪也安排了角色。这是都是一种周星驰的积极回应？如何看待多年前李成儒的“墙角论”？周星驰电影是墙角吗？
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [这集有点邦球拉啊！](jing-gong-zhi-niao.md)
-- [“鞭炮引发重庆山体垮塌”系谣言](hu-jia-hu-wei.md)
-- [官俊臣 重庆大学](yu-mu-hun-zhu.md)
-- [广西横州抗蛇毒血清告急？假的](dong-shi-xiao-pin.md)
+- [长鑫科技开启申购，中一签需缴4330元，单一账户顶格申购334.9万股，打新性价比如何？是散户红利吗？](jing-gong-zhi-niao.md)
+- [【微电影】星河外卖员：晨昏线](hu-jia-hu-wei.md)
+- [“鞭炮引发重庆山体垮塌”系谣言](yu-mu-hun-zhu.md)
+- [白鹿海边度假](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [公安部原部长助理谭权已任重庆市领导](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [如何看待《凡人修仙传》第183集？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [EWC淘汰赛DK 2:1 BLG，lpl三支参赛队伍全部淘汰，如何评价这场比赛？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [机器人格斗赛头部脱落后仍能继续战斗，为什么头掉了还能打？这算不算人形机器人的成熟标志？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [Linus 称 Linux 不搞「反 AI」，并要求「要么 fork，要么走人」，这会带来哪些影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [上海通报申思涉嫌打骂小球员](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [女足球员孙子七本色出演《功夫女足》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [彭水塌方中立大功的网格员成功获救](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [董璇女儿获中韩国际声乐比赛一等奖](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [外媒民调：西班牙队获各洲球迷力挺](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [低精力人群为何总是看起来很疲惫](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [A股一周熊股出炉：最熊股跌超41%](http://www.daogukj.com/0517179)
-- [古典美声+喉音技巧融合](http://www.daogukj.com/yzfviyov/)
-- [🐧赛伊德：“我变成女孩了？！”🐧](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [如何评价东方梦工厂出品的动画电影《八仙！》？](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [王俊凯喝醉在厕所睡了两个半小时](http://www.daogukj.com/1191355)
-- [清华录取通知书极简但有排面](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [学历史有什么用？](http://www.daogukj.com/2850206)
-- [“鞭炮引发重庆山体垮塌”系谣言](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [EWC淘汰赛DK 2:1 BLG，lpl三支参赛队伍全部淘汰，如何评价这场比赛？](http://www.daogukj.com/5364901)
-- [重庆山体崩塌](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
-- [这集有点邦球拉啊！](http://www.daogukj.com/nisjsldl/)
-- [酒店不想再送免费早餐了](http://www.daogukj.com/xvspcmfq/)
-- [躲在超市后门拆炸弹的三人](http://www.daogukj.com/4116400)
-- [长沙一男子夜钓溺亡 钓场被判赔偿](http://www.daogukj.com/nncunhqi/)
-- [广西大姐流泪拦下救援队想请他们吃饭](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [Linus 称 Linux 不搞「反 AI」，并要求「要么 fork，要么走人」，这会带来哪些影响？](http://www.daogukj.com/svuwbdap/)
-- [阿根廷西班牙决赛均穿主场球衣](http://www.daogukj.com/qvipjsxc/)
-- [重庆崩塌最大山石体积相当于1栋楼](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
-- [锂电池要和成品油一样交消费税了](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [小店年利润不足2万遭LV索赔25万](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [网传阿根廷绝杀前犯规的「证据图」被证实为AI篡改，如何评价？球衣号码都错误的AI假图为何能被大量转发？](http://www.daogukj.com/wvyvpuql/)
-- [电影《功夫女足》韩国惹争议，韩网友不满梨花队戴美瞳、犯规设定，韩媒指影片贬低韩国足球队，对此你怎么看？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
-- [FIFA主席提议中美合办世界杯](http://www.daogukj.com/yktxglwn/)
-- [大衣哥测试除草剂草长疯了果断拒代言](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [王楚钦孙颖莎有被吓到](http://www.daogukj.com/2377613)
-- [如何评价月之暗面kimi最新发布的大模型 k3 ?](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [英国政府通过相关立法，将中国敬业集团旗下的英国钢铁公司国有化，对此你怎么看？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [😋“鲁鲁逊漂流记3”😋](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [新冠又来了](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [奥特六兄弟围攻飞升撤离点！](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [赛中对手球拍掉了莎头组合吓出表情包](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [如何看待《凡人修仙传》第183集？](http://www.daogukj.com/qkjpzqjb/)
-- [能不能在黄河边上挖一条运河，让黄河改道，把地上河铲平了，再改回去？](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [大家用过workbuddy了吗，有什么感受？](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [铠甲勇士刑天·守护初心【P1】你是谁？](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
-- [重庆女子下楼找猫时目击山体崩塌](http://www.daogukj.com/opgycgjr/)
-- [媒体：县长硬刚首富背后是权力傲慢](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [公安部原部长助理谭权已任重庆市领导](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [95后夫妻手搓500集AI漫剧爆火](http://www.daogukj.com/3894638)
-- [迪士尼《海洋奇缘：启航》票房惨败，首周全球 9500 万美元远低预期，恐净亏损 1 亿美元，原因何在？](http://www.daogukj.com/ihugvxjr/)
-- [山东多地：不得向未成年人售卖槟榔](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [黄仁勋签名皮衣卖了96万美元](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [【独家】《百日成王》第8集 女孩子们真的又勇敢又可爱！【7月国创】](http://www.daogukj.com/owscegnp/)
-- [孙怡瘦到连皮靴都直往下掉](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [19位兵哥哥在松花江畔集体娶亲](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [宗门天阶功法第二式分解教学，What a day！](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [杜华儿子崇拜李飞想去时代峰峻](http://www.daogukj.com/9324764)
-- [郭帆点赞《八仙！》：出影院汗毛还立着](http://www.daogukj.com/awlcbyru/)
-- [官俊臣 重庆大学](http://www.daogukj.com/5750670)
+- [2只高原鼠兔在路上打架后分道扬镳](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [为什么要给美甲师点奶茶](http://www.daogukj.com/0517179)
+- [为什么杭州湾和珠三角都建大桥了，可是渤海湾却没有建大桥?](http://www.daogukj.com/yzfviyov/)
+- [躲在超市后门拆炸弹的三人](http://www.movie.hkepx.cn/xiju/0529283.htm)
+- [重庆彭水872人争分夺秒开展救援](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [吃小龙虾尽量选蒜香的](http://www.daogukj.com/1191355)
+- [突然意识到开车上班花销很大](http://www.movie.hkepx.cn/xiju/7511993.htm)
+- [重庆山体崩塌最新救援方案曝光](http://www.daogukj.com/2850206)
+- [【微电影】星河外卖员：晨昏线](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
+- [彭水塌方中立大功的网格员成功获救](http://www.daogukj.com/5364901)
+- [曝大批演员计划开演唱会](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [长鑫科技开启申购，中一签需缴4330元，单一账户顶格申购334.9万股，打新性价比如何？是散户红利吗？](http://www.daogukj.com/nisjsldl/)
+- [BLG Bin单曲《螺样子》](http://www.daogukj.com/xvspcmfq/)
+- [EWC淘汰赛DK 2:1 BLG，lpl三支参赛队伍全部淘汰，如何评价这场比赛？](http://www.daogukj.com/4116400)
+- [这两天怎么遍地迪迦？！](http://www.daogukj.com/nncunhqi/)
+- [终于理解两广地区对拖鞋的执念了](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [外媒民调：西班牙队获各洲球迷力挺](http://www.daogukj.com/svuwbdap/)
+- [⚡⚡超 能 世 界 杯⚡⚡](http://www.daogukj.com/qvipjsxc/)
+- [王俊凯伴手礼](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
+- [一位中国球迷的赴美世界杯账单](http://www.movie.hkepx.cn/movie/2146522.htm)
+- [民宿定价上千 住村里比住城里还贵](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [广西横州抗蛇毒血清告急？假的](http://www.daogukj.com/wvyvpuql/)
+- [一篇文章告诉你未成年人如何申领网号](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [外交部回应英钢国有化问题](http://www.daogukj.com/yktxglwn/)
+- [县长硬刚首富背后是权力傲慢](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [一文告诉你未成年人如何申网号、网证](http://www.daogukj.com/2377613)
+- [如何评价月之暗面kimi最新发布的大模型 k3？对比全球其他大模型能力如何？](http://www.movie.hkepx.cn/movie/4178444.htm)
+- [ofo 停更近 5 年后突然发文，此次「复活」释放了什么信号？199元押金还有可能退回吗？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [遭终身禁足的前国脚申思被举报掌掴小球员，上海足协通报其所在俱乐部被警告罚款，申思可能面临哪些法律责任？](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [小鹿老公检查出不孕后说对不起](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [经济学家任泽平 VIP 付费会员群「暴雷」，有人听信操作建议亏损 1000多万，你如何看这种现象？](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [16岁女儿诬告父亲性侵称因管教太严](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [女足球员孙子七本色出演《功夫女足》](http://www.daogukj.com/qkjpzqjb/)
+- [周星驰御用“星女郎”是张美娥吗](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [男子养了多年的“九尾狐”被老婆烧毁](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [为什么体感酷热，但实际温度却只有39℃？听说气象局会卡40℃，这种说法是否合理？](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [来 躲 躲 看 1.0](http://www.daogukj.com/opgycgjr/)
+- [邹市明拒绝上海户口说我是贵州人](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [上海通报申思涉嫌打骂小球员](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [女生悄悄考上北大研究生 母亲落泪](http://www.daogukj.com/3894638)
+- [重庆崩塌最大山石体积相当于1栋楼](http://www.daogukj.com/ihugvxjr/)
+- [奥特六兄弟围攻飞升撤离点！](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [新疆真有追人蜱虫！帮大家拍到了](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [过完4.4，如何评价绝灭大君归寂？](http://www.daogukj.com/owscegnp/)
+- [《八仙！》开分8.3 暂列暑期档新片第1](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [世界杯三四名奖金差200万美元](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [三部门分步调整部分电池消费税政策，对无汞原电池、锂原电池等按 2% 税率征税，将产生哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [上海足协通报申思涉嫌打骂小球员](http://www.daogukj.com/9324764)
+- [铠甲勇士刑天·守护初心【P1】你是谁？](http://www.daogukj.com/awlcbyru/)
+- [“鞭炮引发重庆山体垮塌”系谣言](http://www.daogukj.com/5750670)
 
 </details>
 
 ## 原始来源
 
-- [周星驰电影《功夫女足》剑指30亿，如何看待多年前李成儒的墙角论？周星驰电影是墙角吗？](https://www.zhihu.com/question/2060645191220990307)
+- [邵永灵：日本离造核弹只差一个名分](https://www.toutiao.com/trending/7663779461065608758/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227663779461065608758%22%2C%22hot_board_impr_id%22%3A%222026071818485456B2DC583BDBA50AF2F7%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: eb9e1a9fae4034674364 -->
+<!-- content-fingerprint: 1842909931501249182f -->
