@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 38度天两岁娃叼奶嘴赤脚走失街头
+# 一年超8万家面包店关停
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6759873 · 更新：2026-07-19T23:32:27+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6756919 · 更新：2026-07-20T02:46:20+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“38度天两岁娃叼奶嘴赤脚走失街头”位列第 11 位，公开热度指标为 6759873。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“一年超8万家面包店关停”位列第 11 位，公开热度指标为 6756919。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月14日上海38度高温天，群众报警称一名两岁男童叼奶嘴、赤脚独自走在车流道路上。民警朱圣杰赶到将孩子带回派出所照料并多方寻亲，不久焦急的爷爷赶来认领。民警叮嘱家属暑期务必看好幼儿，可在孩子身上留存家属联系方式。
+来源公开摘要显示：近一年烘焙门店净减少超8万家，多家网红连锁业绩惨淡、大幅闭店，症结在于产品固化、难以匹配日常消费需求。反观商超烘焙凭借平价、上新快的优势火爆，行业两极分化加剧，传统烘焙需转型适配大众平价需求才能立足。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [八仙](chao-san-mu-si.md)
-- [72岁刘德凯在昆明保养车被偶遇](dui-niu-tan-qin.md)
-- [月之暗面将推出新模型 KimiK3，将给 AI 市场带来哪些新冲击？](mang-ren-mo-xiang.md)
-- [扫机风暴2](yuan-mu-qiu-yu.md)
+- [蔡依林唱心引力送给王俊凯](chao-san-mu-si.md)
+- [“鬼子专业户”王侃去世](dui-niu-tan-qin.md)
+- [如何看待EWC官方邀请其他赛区选手观看《突然的陀螺》，随后因引发LPL粉丝不满而下架并处罚相关人员？](mang-ren-mo-xiang.md)
+- [穿山甲和瓜老板的世纪同框](yuan-mu-qiu-yu.md)
 
 ## 站内推荐
 
 - [马龙/许昕获全国乒乓球锦标赛男双冠军，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [如何评价 FIFA 主席说可以中美合办世界杯？这是玩笑还是有所考量？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [挑战坐“绿皮火车”穿越美国！七天六夜，横穿美国11个州](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [妈妈辅导孩子写作业一巴掌把牙打掉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [带娃能否优先安排下铺？12306回应](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [杭州图书馆允许流浪汉免费入馆阅读，回复投诉读者“我无权拒绝任何人，但你可以离开”，这个做法是否合理？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [有什么东西正在敲你的门……](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [俄罗斯警告日本](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [72岁刘德凯在昆明保养车被偶遇](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [全新坦克300上市：空间更大越野更强](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
-- [张子枫瘦成这样了](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
-- [马龙许昕合体撕开国乒男队窘境](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
-- [回溯性嫉妒](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
-- [存钱过万一定要办理纸质存单](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
-- [感觉你是那种人 [熊大语录]](http://www.movie.hkepx.cn/xiju/2772866.htm)
-- [铠甲勇士刑天·守护初心【P3】战斗从来不是一个人](http://www.movie.hkepx.cn/movie/8157133.htm)
-- [权志龙一下没看住怎么帅成这样了](http://www.movie.hkepx.cn/movie/3703338.htm)
-- [7 月 19 日苏州、杭州、上海等地遭遇大暴雨，你那儿雨下得大吗？出行和生活有没有受到影响？](http://www.movie.hkepx.cn/xiju/3368241.htm)
-- [动物园非洲幼狮每天坐三蹦子上下班](http://www.movie.hkepx.cn/movie/9040401.htm)
+- [再诱人也别碰的十大街边小吃](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
+- [男子闪婚后发现妻子吸毒坐牢患梅毒](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
+- [85岁浙商12.9亿卖掉自家上市公司](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
+- [西班牙vs阿根廷](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
+- [TTG涵 小雪](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
+- [清华大学的学生中有80%的人是过目不忘的，这个是真的么？](http://www.movie.hkepx.cn/xiju/2772866.htm)
+- [《鸣潮》巡回演唱会「致予新世界」官方录播](http://www.movie.hkepx.cn/movie/8157133.htm)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](http://www.movie.hkepx.cn/movie/3703338.htm)
+- [《功夫女足》和《少林足球》，抛开情怀滤镜，单论电影本身，你觉得哪个更好看？为什么？](http://www.movie.hkepx.cn/xiju/3368241.htm)
+- [马龙许昕冠军](http://www.movie.hkepx.cn/movie/9040401.htm)
 - [FIFA官方晒照：大力神杯已就位](http://www.movie.hkepx.cn/movie/7194765.htm)
-- [迪丽热巴方恭喜《功夫女足》破14亿](http://www.movie.hkepx.cn/movie/6128990.htm)
-- [带娃能否优先安排下铺？12306回应](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
-- [两只猫为什么会互相舔毛？怎么知道他们是闹着玩还是真的打架？](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
-- [新乐器！订书钉演奏《千本樱》](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
-- [铠甲勇士刑天·守护初心【P2】光暗一体](http://www.movie.hkepx.cn/movie/4858272.htm)
-- [谁给代露娃做的妆造](http://www.daogukj.com/bfxepwya/)
-- [TTG让二追三AG](http://www.movie.hkepx.cn/xiju/4024765.htm)
-- [上海暴雨](http://www.movie.hkepx.cn/xiju/0737631.htm)
-- [杭州图书馆允许流浪汉免费入馆阅读，回复投诉读者“我无权拒绝任何人，但你可以离开”，这个做法是否合理？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
-- [“鬼子专业户”王侃去世](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
+- [来杯好茶摇一摇，但是英语版](http://www.movie.hkepx.cn/movie/6128990.htm)
+- [72岁刘德凯在昆明保养车被偶遇](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
+- [九尾 无畏](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
+- [⚡对 对 子 战 神 8⚡](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
+- [大姨从40℃西安到黑龙江塔河避暑](http://www.movie.hkepx.cn/movie/4858272.htm)
+- [养了一个自私的且动不动就以跳楼威胁的女儿，该如何破局？](http://www.daogukj.com/bfxepwya/)
+- [澎湖海战 撤档](http://www.movie.hkepx.cn/xiju/4024765.htm)
+- [世界杯决赛](http://www.movie.hkepx.cn/xiju/0737631.htm)
+- [7 月 19 日苏州、杭州、上海等地遭遇大暴雨，你那儿雨下得大吗？出行和生活有没有受到影响？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
+- [刘亦菲素颜现身北京环球影城](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
 - [卫健委辟谣韩红基金会物资分配不均](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
-- [九尾 无畏](http://www.movie.hkepx.cn/xiju/7334347.htm)
-- [【TF家族练习生】《突围II破局》EP04：有人在往上走（下）](http://www.daogukj.com/7849300)
-- [马龙许昕冠军](http://www.daogukj.com/aozagmkd/)
-- [八仙](http://www.daogukj.com/ioafjlkc/)
-- [扫机风暴2](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
-- [王俊凯我该哭一下应景吗](http://www.movie.hkepx.cn/xiju/2137446.htm)
-- [青春启程踏歌行](http://www.daogukj.com/0166884)
-- [多队球衣已打折 国足球衣仍105美元](http://www.movie.hkepx.cn/movie/0848231.htm)
-- [黄健翔：阿根廷面对西班牙不存在劣势](http://www.daogukj.com/tckpumpu/)
-- [如何评价7月19日上线的阿里Qwen 3.8 Max Preview模型？其性能如何？](http://www.daogukj.com/0292547)
-- [恐怖强敌！终末地1.4藏了多少伏笔？《明日方舟:终末地》剧情解析](http://www.daogukj.com/hejavvee/)
-- [宋仁宗是否配得上仁君这个称号？](http://www.movie.hkepx.cn/xiju/2863382.htm)
-- [美加墨世界杯决赛，西班牙 vs 阿根廷，你更看好哪支球队？决胜的关键是什么？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
-- [如何看待OpenAI战略未来负责人对kimi k3开源的公开发言？](http://www.daogukj.com/gurgtiup/)
-- [曝Bin自己还没考虑清楚](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
-- [有什么东西正在敲你的门……](http://www.daogukj.com/nlwlvqny/)
-- [美伊冲突正跨越“红线”](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
-- [《功夫女足》进入年度票房榜前三](http://www.daogukj.com/4367144)
-- [⚡对 对 子 战 神 8⚡](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
-- [世界杯决赛观赛指南来了](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
-- [阿根廷决赛遭四大“魔咒”缠身](http://www.movie.hkepx.cn/movie/3421929.htm)
-- [上海遭遇暴雨 锦鲤游上马路](http://www.movie.hkepx.cn/xiju/7147911.htm)
-- [养了一个自私的且动不动就以跳楼威胁的女儿，该如何破局？](http://www.movie.hkepx.cn/xiju/5231443.htm)
-- [月之暗面将推出新模型 KimiK3，将给 AI 市场带来哪些新冲击？](http://www.daogukj.com/hwjpoycr/)
-- [72岁刘德凯在昆明保养车被偶遇](http://www.movie.hkepx.cn/movie/7786575.htm)
-- [于东来建议每年新增 20 至 40 天带薪年假，严格执行每周 40 小时工作制，怎样看待他的用工理念？](http://www.movie.hkepx.cn/movie/1630389.htm)
-- [上海暴雨 盒马旗下超市被淹](http://www.daogukj.com/ijajouly/)
-- [挑战坐“绿皮火车”穿越美国！七天六夜，横穿美国11个州](http://www.daogukj.com/7130534)
+- [齐达内将现身世界杯决赛现场](http://www.movie.hkepx.cn/xiju/7334347.htm)
+- [水皮](http://www.daogukj.com/7849300)
+- [中国国新宣布增持](http://www.daogukj.com/aozagmkd/)
+- [蔡依林唱心引力送给王俊凯](http://www.daogukj.com/ioafjlkc/)
+- [穿山甲和瓜老板的世纪同框](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
+- [阿根廷世界杯决赛首发](http://www.movie.hkepx.cn/xiju/2137446.htm)
+- [世界人工智能合作组织重要阶段性进展](http://www.daogukj.com/0166884)
+- [怎样才能成为一个受人尊重和爱戴的好人？又如何避免成为一个“烂”好人呢？](http://www.movie.hkepx.cn/movie/0848231.htm)
+- [贝林厄姆在女友与哈兰德身边对比](http://www.daogukj.com/tckpumpu/)
+- [全新坦克300上市：空间更大越野更强](http://www.daogukj.com/0292547)
+- [如何评价7月19日上线的阿里Qwen 3.8 Max Preview模型？其性能如何？](http://www.daogukj.com/hejavvee/)
+- [为什么不上班反而低精力](http://www.movie.hkepx.cn/xiju/2863382.htm)
+- [于东来建议每年新增 20 至 40 天带薪年假，严格执行每周 40 小时工作制，怎样看待他的用工理念？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
+- [宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？](http://www.daogukj.com/gurgtiup/)
+- [来不及说我爱你](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
+- [1~11集合集来喽!](http://www.daogukj.com/nlwlvqny/)
+- [洪秀柱盼统一：我已近80岁等不及了](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
+- [马龙：也就我能叫得动许昕了](http://www.daogukj.com/4367144)
+- [新乐器！订书钉演奏《千本樱》](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
+- [法国门将身价堪比一杯蜜雪冰城](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
+- [上半年入境外国人超 2291 万人次，同比增长20.4%，希腊游客增长近2倍，老外为何扎堆来中国避暑？](http://www.movie.hkepx.cn/movie/3421929.htm)
+- [世界杯决赛：西班牙vs阿根廷](http://www.movie.hkepx.cn/xiju/7147911.htm)
+- [暴雨过后上海市民划皮划艇上路](http://www.movie.hkepx.cn/xiju/5231443.htm)
+- [如何看待EWC官方邀请其他赛区选手观看《突然的陀螺》，随后因引发LPL粉丝不满而下架并处罚相关人员？](http://www.daogukj.com/hwjpoycr/)
+- [“鬼子专业户”王侃去世](http://www.movie.hkepx.cn/movie/7786575.htm)
+- [如何看待部分社区认为DeepSeek-V4的灰度测试是路由Claude Fable、Opus等模型？](http://www.movie.hkepx.cn/movie/1630389.htm)
+- [Kimi K3让全球AI圈炸锅了](http://www.daogukj.com/ijajouly/)
+- [有什么东西正在敲你的门……](http://www.daogukj.com/7130534)
 
 </details>
 
 ## 原始来源
 
-- [38度天两岁娃叼奶嘴赤脚走失街头](https://www.baidu.com/s?wd=38%E5%BA%A6%E5%A4%A9%E4%B8%A4%E5%B2%81%E5%A8%83%E5%8F%BC%E5%A5%B6%E5%98%B4%E8%B5%A4%E8%84%9A%E8%B5%B0%E5%A4%B1%E8%A1%97%E5%A4%B4&sa=fyb_news&rsv_dl=fyb_news)
+- [一年超8万家面包店关停](https://www.baidu.com/s?wd=%E4%B8%80%E5%B9%B4%E8%B6%858%E4%B8%87%E5%AE%B6%E9%9D%A2%E5%8C%85%E5%BA%97%E5%85%B3%E5%81%9C&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fa5ed3bd9f8cde161592 -->
+<!-- content-fingerprint: 22fef862d612ec60bedd -->
