@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 姆巴佩决赛预测
+# 葡媒评世界杯最令人失望23人
 
-> 来源：微博热搜 · 排名：第 9 位 · 热度：415459 · 分类：体育 · 更新：2026-07-19T15:49:55+08:00
+> 来源：百度热搜 · 排名：第 8 位 · 热度：7045151 · 更新：2026-07-19T19:39:54+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“姆巴佩决赛预测”位列第 9 位，公开热度指标为 415459，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“葡媒评世界杯最令人失望23人”位列第 8 位，公开热度指标为 7045151。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：北京时间7月19日，美加墨世界杯进入最终阶段。葡萄牙媒体《球报》评选出一份本届世界杯最令人失望的23人球员名单，C罗、孙兴慜、B费、内马尔等人在列。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [人类发现有生命所需三大特征行星](yan-er-dao-ling.md)
-- [如何评价 FIFA 主席说可以中美合办世界杯？这是玩笑还是有所考量？](nan-yuan-bei-zhe.md)
-- [当Bob获得了超能力！](mai-du-huan-zhu.md)
-- [物业主动撤离小区 谁来接盘](ye-gong-hao-long.md)
+- [阿根廷夺冠概率40%](yan-er-dao-ling.md)
+- [林诗栋蒯曼混双夺冠](nan-yuan-bei-zhe.md)
+- [为什么真人版的毛利兰都没有角？](mai-du-huan-zhu.md)
+- [这波躺赢了](ye-gong-hao-long.md)
 
 ## 站内推荐
 
 - [5个关键词 一文读懂中国经济半年报](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [那个从来都不喝水的朋友](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [这一秒过火 易军](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [Angelababy素颜转场视频](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [AI行业要重新洗牌了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [乒乓球全锦赛：马龙许昕冲金](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [这一秒过火强吻好尬](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [许君聪曾为周星驰回怼李诚儒](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [俄罗斯警告日本](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [世界杯决赛：西班牙vs阿根廷](http://www.movie.hkepx.cn/xiju/2843648.htm)
-- [宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？](http://www.daogukj.com/0895296)
-- [大学没考好，想不读普本，直接到社会上见识如何？](http://www.movie.hkepx.cn/xiju/3970296.htm)
-- [物业主动撤离小区 谁来接盘](http://www.movie.hkepx.cn/movie/5125967.htm)
-- [博主：《八仙》是暑期档仙品](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
-- [姆巴佩 2 射 1 传成历史射手王，一战刷爆 14 大纪录，如何评价他在世界杯季军赛的表现？](http://www.movie.hkepx.cn/xiju/5735202.htm)
-- [洪水退去 横州茉莉花重新冒芽](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
-- [这一秒过火 短剧感](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
-- [暑假接来玩14岁儿子纹成大花腿](http://www.daogukj.com/1682120)
-- [奥特痞子](http://www.daogukj.com/3781657)
+- [OMG你吓到我了系列最权威的一集](http://www.movie.hkepx.cn/xiju/2843648.htm)
+- [友情提示：这是一个解压视频.](http://www.daogukj.com/0895296)
+- ["自古英雄出少年."](http://www.movie.hkepx.cn/xiju/3970296.htm)
+- [这波躺赢了](http://www.movie.hkepx.cn/movie/5125967.htm)
+- [上半年入境外国人超 2291 万人次，同比增长20.4%，希腊游客增长近2倍，老外为何扎堆来中国避暑？](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
+- [于东来建议每年新增 20 至 40 天带薪年假，严格执行每周 40 小时工作制，怎样看待他的用工理念？](http://www.movie.hkepx.cn/xiju/5735202.htm)
+- [外网热议中国KFC卖炸鸡西瓜](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
+- [马龙许昕vs向鹏黄友政](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
+- [媒体：英钢国有化事件绝非个案](http://www.daogukj.com/1682120)
+- [如何看待今年清华大学录取通知书取消立体二校门设计？](http://www.daogukj.com/3781657)
 - [有什么东西正在敲你的门……](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
-- [这一秒过火 AI片头](http://www.movie.hkepx.cn/xiju/8318389.htm)
-- [为什么越来越多的演员去开演唱会？不少人因高价票与低质翻唱遭质疑，跨界开演唱会这条路能长久吗？](http://www.movie.hkepx.cn/xiju/6056931.htm)
-- [伊朗直接掀了桌子](http://www.movie.hkepx.cn/xiju/3703541.htm)
-- [博主：姆巴佩失去证明自己最好机会](http://www.movie.hkepx.cn/xiju/8516838.htm)
-- [这一秒过火走势](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
-- [中学生无法购买高铁学生票，12306 称学生需异地上学并开具证明，如何看待这一购票规则？是否需要改进？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
-- [女孩卧室囤大量“吧唧”致甲醛中毒](http://www.movie.hkepx.cn/movie/7128560.htm)
-- [女子患脑垂体瘤却仍被催生三胎](http://www.daogukj.com/3515190)
-- [警方曝光牛肉制假案件，猪肉涂牛油泡牛血变「鲜牛肉」，暴露了哪些问题？消费者能从口感上分辨牛肉和猪肉吗？](http://www.daogukj.com/0169777)
-- [盒马被曝让员工三伏天在户外吃饭](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
-- [世界两大AI组织都是狠角色](http://www.daogukj.com/4071713)
-- [67岁老人坚持锻炼身体不给儿女添麻烦教程](http://www.daogukj.com/pjoqnyew/)
-- [世界杯决赛比分预测](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
+- [下周A股机会来了吗](http://www.movie.hkepx.cn/xiju/8318389.htm)
+- [长鑫科技海外加密合约炒到8.64美元，市值一度逼近4万亿元人民币，是A股发行价估值的近7倍，如何解读？](http://www.movie.hkepx.cn/xiju/6056931.htm)
+- [黑龙江女孩奔赴广西清淤完成后将返程](http://www.movie.hkepx.cn/xiju/3703541.htm)
+- [“鬼子专业户”王侃去世](http://www.movie.hkepx.cn/xiju/8516838.htm)
+- [坏了坏了这下好了vs好了好了这下坏了](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
+- [美加墨世界杯决赛，西班牙 vs 阿根廷，你更看好哪支球队？决胜的关键是什么？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
+- [长城H10新车12小时订单22615台](http://www.movie.hkepx.cn/movie/7128560.htm)
+- [穆祉丞哭了](http://www.daogukj.com/3515190)
+- [85岁浙商12.9亿卖掉自家上市公司](http://www.daogukj.com/0169777)
+- [林诗栋蒯曼全锦赛混双夺冠](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
+- [世界杯决赛：西班牙vs阿根廷](http://www.daogukj.com/4071713)
+- [美国纽约暴发军团病](http://www.daogukj.com/pjoqnyew/)
+- [现在有的老人连车都打不到](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
 - [法国 4-6 英格兰这场比赛算是诚信互刷吗？你怎么看？](http://www.movie.hkepx.cn/movie/5516169.htm)
-- [董路：中国足球需要找回自己的“本”](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
-- [小伙心情不好暴饮暴食胖至510斤](http://www.daogukj.com/pgdrxeea/)
-- [《异环》角色实机战斗丨伊洛伊](http://www.daogukj.com/7272013)
+- [大学没考好，想不读普本，直接到社会上见识如何？](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
+- [这一秒过火 红果亦是果](http://www.daogukj.com/pgdrxeea/)
+- [多队球衣已打折 国足球衣仍105美元](http://www.daogukj.com/7272013)
 - [我国多领域硬核成果密集上新](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
-- [85岁浙商12.9亿卖掉自家上市公司](http://www.daogukj.com/3521407)
-- [姆巴佩：我宁愿不当这个历史射手王](http://www.daogukj.com/9982293)
-- [如何看待今年清华大学录取通知书取消立体二校门设计？](http://www.movie.hkepx.cn/xiju/3540024.htm)
-- [阿根廷西班牙冠军预测](http://www.movie.hkepx.cn/movie/9307027.htm)
-- [高铁也能吃上现蒸热乎包子了](http://www.movie.hkepx.cn/movie/7494540.htm)
-- [周星驰回应观众喊话“一直拍下去”](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
+- [存钱过万一定要办理纸质存单](http://www.daogukj.com/3521407)
+- [范志毅：世界杯不夺冠和最后1名没区别](http://www.daogukj.com/9982293)
+- [电影八仙票房破2亿](http://www.movie.hkepx.cn/xiju/3540024.htm)
+- [重庆爱心摩托车严重饱和](http://www.movie.hkepx.cn/movie/9307027.htm)
+- [贝林厄姆在女友与哈兰德身边对比](http://www.movie.hkepx.cn/movie/7494540.htm)
+- [《功夫女足》和《少林足球》，抛开情怀滤镜，单论电影本身，你觉得哪个更好看？为什么？](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
 - [5个关键词 一文读懂中国经济半年报](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
-- [那个从来都不喝水的朋友](http://www.daogukj.com/4973551)
-- [马龙许昕把乒乓球打出网球的感觉](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
-- [马龙许昕晋级全锦赛男双决赛](http://www.daogukj.com/zirrjtcq/)
+- [乒乓球全锦赛：马龙许昕冲金](http://www.daogukj.com/4973551)
+- [有哪些制作过程简单却很美味的甜品？](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
+- [四个一起冒烟！狂！大司马杯最搞笑一幕：导播可以开摄像头了。](http://www.daogukj.com/zirrjtcq/)
 - [本周中国硬核成果密集“上新”](http://www.daogukj.com/pvjkdvkl/)
 - [新乐器！订书钉演奏《千本樱》](http://www.movie.hkepx.cn/movie/8281799.htm)
-- [为什么真人版的毛利兰都没有角？](http://www.movie.hkepx.cn/movie/4145451.htm)
+- [最早那一批做断骨增高的人，现在怎么样了？](http://www.movie.hkepx.cn/movie/4145451.htm)
 - [【独家】牧神记 第92集 牛车](http://www.movie.hkepx.cn/xiju/5480896.htm)
-- [参加 2026 世界人工智能大会 (WAIC) 是一种怎样的体验？](http://www.movie.hkepx.cn/xiju/6192675.htm)
-- [马龙许昕3比0林高远袁烜松](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
-- [和聪明人一起开车，就是舒服！](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
-- [这一秒过火 易军](http://www.movie.hkepx.cn/movie/8224566.htm)
-- [人类发现有生命所需三大特征行星](http://www.daogukj.com/rdjgxawo/)
-- [英格兰奖金1.96亿法国获1.82亿](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
-- [为省5千机票买面包车自驾 倒亏2万4](http://www.daogukj.com/4280554)
+- [带护臂狗血战士](http://www.movie.hkepx.cn/xiju/6192675.htm)
+- [LGDNBW对战JDG](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
+- [《飞舞吧忍者第二季》ep01—忍在囧途](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
+- [这一秒过火强吻好尬](http://www.movie.hkepx.cn/movie/8224566.htm)
+- [阿根廷夺冠概率40%](http://www.daogukj.com/rdjgxawo/)
+- [电影《八仙！》票房突破 2 亿，猫眼预测超14亿，你觉得最终票房能到多少？](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
+- [奥特痞子](http://www.daogukj.com/4280554)
 
 </details>
 
 ## 原始来源
 
-- [姆巴佩决赛预测](https://s.weibo.com/weibo?q=%E5%A7%86%E5%B7%B4%E4%BD%A9%E5%86%B3%E8%B5%9B%E9%A2%84%E6%B5%8B)
+- [葡媒评世界杯最令人失望23人](https://www.baidu.com/s?wd=%E8%91%A1%E5%AA%92%E8%AF%84%E4%B8%96%E7%95%8C%E6%9D%AF%E6%9C%80%E4%BB%A4%E4%BA%BA%E5%A4%B1%E6%9C%9B23%E4%BA%BA&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f1859ec1c4e9c2044c85 -->
+<!-- content-fingerprint: 5f2241bdeca96d8e2647 -->
