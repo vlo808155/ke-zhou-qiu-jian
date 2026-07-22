@@ -2,11 +2,11 @@
 
 # 如何评价今年王虹、邓煜可能同时创纪录拿到菲尔兹奖？
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：194 万热度 · 分类：问答 · 更新：2026-07-22T23:25:10+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：141 万热度 · 分类：问答 · 更新：2026-07-23T04:00:10+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价今年王虹、邓煜可能同时创纪录拿到菲尔兹奖？”位列第 10 位，公开热度指标为 194 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价今年王虹、邓煜可能同时创纪录拿到菲尔兹奖？”位列第 10 位，公开热度指标为 141 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：七月份ICM大会在费城召开宣布菲尔兹奖，但其实年初人选就已经确定了，前些天Caltech的终身教授倪老师在公众号上突然发文放风说两人可能同时拿奖（链接：https://mp.weixin.qq.com/s/52WlKSPu5K4Eukyok4aWkw），考虑到时间节点和小道消息，此时很可能成真，这样的话中国、北大、MIT都会从0菲尔兹奖瞬间变成2个，完成世界少有的创举。 如何看待？
 
@@ -18,74 +18,74 @@
 
 ## 相关热点
 
-- [¥138一颗的招牌鱼丸，自己在家做，能省多少钱？](jing-gong-zhi-niao.md)
+- [基米售货机之外遣任务](jing-gong-zhi-niao.md)
 - [夫妻俩编造“孩子走丢”谣言被罚](hu-jia-hu-wei.md)
-- [曝演员片酬从2亿降到最高2500万](yu-mu-hun-zhu.md)
+- [和女同事开玩笑被打还被开除](yu-mu-hun-zhu.md)
 - [“广西水灾一老人被困泥潭”不实](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [耐克在中国为何卖不动了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [广州男观众如何看《功夫女足》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [人体卡死37℃，为啥不进化成40℃，直接烫死病毒癌细胞？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [基米售货机之外遣任务](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [散装家庭，一家人哔站互关认识的](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [王毅：强烈抗议菲方冲撞中方执法船只](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [小红书回应 IPO 传闻均不属实，结合这件事来看，种草平台是否适合上市？若要上市需要具备哪些条件？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [14 岁少年偷偷纹身纹满双腿，家长索赔 20 万，如何看待青少年纹身现象？纹身有什么危害和风险吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [美国向韩国施压提议分享三星、SK 海力士「超额利润」，这释放了哪些信号？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [媒体披露高校教师评职称需到账百万科研经费，为什么会有这种现象？这合理吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [八仙](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [张凌赫回复沙宝亮](http://www.daogukj.com/0517179)
-- [毛利兰人设完美，为什么在《名侦探柯南》里人气越来越低？](http://www.daogukj.com/yzfviyov/)
-- [一条老奶奶](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [我的世界硬核生存！【缆车末日惊变100天】 p1 我被困在了充满丧尸的1千米高空缆车上！该如何生存？！！](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [Priest发毕业证](http://www.daogukj.com/1191355)
-- [日媒播出731部队专题片](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [哈工大学生研制“紫丁香三号”成功发射](http://www.daogukj.com/2850206)
+- [别再给AI乱传文件了](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [免打孔单杠已成家庭隐形杀手](http://www.daogukj.com/0517179)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](http://www.daogukj.com/yzfviyov/)
+- [树恨你](http://www.movie.hkepx.cn/xiju/0529283.htm)
+- [国际黄金、石油、铜、美股、美元再现同步上涨，日元兑美元跌破163，对此你怎么看？](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [杜绝运动员“网红”化](http://www.daogukj.com/1191355)
+- [Priest发毕业证](http://www.movie.hkepx.cn/xiju/7511993.htm)
+- [如何看待 7 月 22 日 DeepSeek 客户端联网搜索近 4 小时不可用？](http://www.daogukj.com/2850206)
 - [夫妻俩编造“孩子走丢”谣言被罚](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [人体卡死37℃，为啥不进化成40℃，直接烫死病毒癌细胞？](http://www.daogukj.com/5364901)
-- [别再给AI乱传文件了](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
-- [¥138一颗的招牌鱼丸，自己在家做，能省多少钱？](http://www.daogukj.com/nisjsldl/)
-- [女子带6娃深圳打拼 只有3个是亲生](http://www.daogukj.com/xvspcmfq/)
-- [新老师喜欢吗？](http://www.daogukj.com/4116400)
-- [双高胎向魏大勋道歉](http://www.daogukj.com/nncunhqi/)
-- [日本鼓励男性穿短裤上班引女职员不满](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [散装家庭，一家人哔站互关认识的](http://www.daogukj.com/svuwbdap/)
-- [差点被烟管单杀了](http://www.daogukj.com/qvipjsxc/)
+- [14 岁少年偷偷纹身纹满双腿，家长索赔 20 万，如何看待青少年纹身现象？纹身有什么危害和风险吗？](http://www.daogukj.com/5364901)
+- [突然讨厌朋友的原因找到了](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [基米售货机之外遣任务](http://www.daogukj.com/nisjsldl/)
+- [姐姐穿露肩装弟弟奋力跳起帮整理](http://www.daogukj.com/xvspcmfq/)
+- [《低山臭水遇知音》](http://www.daogukj.com/4116400)
+- [OpenAI遭遇史上首次评测失控事故](http://www.daogukj.com/nncunhqi/)
+- [新能源车跨境自驾突遭远程锁车超30小时](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [媒体披露高校教师评职称需到账百万科研经费，为什么会有这种现象？这合理吗？](http://www.daogukj.com/svuwbdap/)
+- [90岁老太太给重孙女买裙子视频火了](http://www.daogukj.com/qvipjsxc/)
 - [汤唯宣布二胎儿子出生](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
 - [日本拍卖疑似我国文物 中方紧急拦截](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [印尼游轮遭浪击沉中国游客漂流数小时](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [雷军称澎程首保后整车 3 年或增程器 3 万公里才需保养，这个保养逻辑合理吗？会改变你的购车选择吗？](http://www.daogukj.com/wvyvpuql/)
-- [免打孔单杠已成家庭隐形杀手](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [Bin队内矛盾被曝](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [长鑫科技网上弃购超658万股，券商被迫包销5731万元，为何大量中签散户放弃缴款？对上市股价有何影响？](http://www.daogukj.com/wvyvpuql/)
+- [张伟丽晒出化妆造型「秒变甜妹，反差感拉满」，网友惊呼这是谁，化妆对人的加持有多离谱？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
 - [王毅会见鲁比奥：筹备好下阶段高层交往](http://www.daogukj.com/yktxglwn/)
-- [中国GDP第10省又易主了](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [“导游行业已死”](http://www.daogukj.com/2377613)
+- [14万斤西瓜滞销 瓜农求援](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [闫闯](http://www.daogukj.com/2377613)
 - [大脑为什么要删除三岁前的记忆？](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [滔搏明年起将终止耐克产品在线上平台销售，背后有哪些原因？此次调整带来的影响有多大？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [今年国家级气象站出现首个50℃](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [突然讨厌朋友的原因找到了](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [于东来称胖东来禁止员工相互借钱，违者禁止享受公司福利和晋升机会，这合适吗？企业是不是管得太宽了？](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [为什么要说尽量少跟AI倾诉聊天](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [广州男观众如何看《功夫女足》](http://www.daogukj.com/qkjpzqjb/)
-- [为什么在中国邮箱不流行？](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [心率大挑战！](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [小红书回应 IPO 传闻均不属实，结合这件事来看，种草平台是否适合上市？若要上市需要具备哪些条件？](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [网传 BLG 队内两名队友不满 Bin，其父还「蛐蛐」其他队友父亲，这会对电竞团队协作带来什么影响？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [千万博主谈b站真相（完整版）](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [为什么要说尽量少跟AI倾诉聊天](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [今天花2万包5000斤的鱼塘，塘主的举动让人暖心](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [中菲在仁爱礁爆发冲突幕后黑手是谁](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [小红书回应 IPO 传闻均不属实，结合这件事来看，种草平台是否适合上市？若要上市需要具备哪些条件？](http://www.daogukj.com/qkjpzqjb/)
+- [报道称《功夫女足》线上被偷票房超 2000 万，全国偷漏占比约28%，损失票房超 4 亿，这么严重吗？](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [如何看待《第九区》导演发布 13 分钟全 AI 短片《阴兵》，并计划拍长片， AI 电影发展到哪步了？](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [一条老奶奶](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
 - [日媒揭露731部队罪行](http://www.daogukj.com/opgycgjr/)
-- [英国强吞中国资产要付出多少代价](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [耐克在中国为何卖不动了](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [女子参加聚会遭猥亵 男子获刑一年](http://www.daogukj.com/3894638)
-- [⚡灌 篮 高 手⚡](http://www.daogukj.com/ihugvxjr/)
-- [胖东来助农甜瓜采购售价均为一元一斤](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [日本男子坠楼砸死路人自己生还](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [缝纫机在德国跨界成功用于切萝卜](http://www.daogukj.com/owscegnp/)
-- [闫闯](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [美加墨世界杯哪支球队的发挥最出乎你的意料？谁是最大黑马？](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [“人医”录取分数线被“兽医”反超](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [菲律宾为何总精准卡点挑衅](http://www.daogukj.com/9324764)
-- [男子仅退款1.6万水果后倒卖获刑](http://www.daogukj.com/awlcbyru/)
-- [曝演员片酬从2亿降到最高2500万](http://www.daogukj.com/5750670)
+- [我国将逐步提高基础养老金](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [王毅：强烈抗议菲方冲撞中方执法船只](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [东山精密光模块被盗](http://www.daogukj.com/3894638)
+- [如何看待香港知名歌手张伟文惨遭养老院苛待，一年半不给洗澡，褥疮恶化，失能老人养老院照护谁来监督？](http://www.daogukj.com/ihugvxjr/)
+- [一箭9星 全球最大固体运载火箭首秀](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [缝纫机在德国跨界成功用于切萝卜](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [史上最奇怪饭店！完全想不出来怎么赚钱](http://www.daogukj.com/owscegnp/)
+- [第五人格](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [耐克在中国为何卖不动了](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [⚡刷到这个我真是活到骰了⚡](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [八仙](http://www.daogukj.com/9324764)
+- [网吧设六毛一小时上网区 还能住](http://www.daogukj.com/awlcbyru/)
+- [和女同事开玩笑被打还被开除](http://www.daogukj.com/5750670)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bd4849cf2d68fcd29dac -->
+<!-- content-fingerprint: 075df4cd9ff6b47a7ed2 -->
