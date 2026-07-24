@@ -2,11 +2,11 @@
 
 # 男生中考699分偷偷改志愿读中职
 
-> 来源：微博热搜 · 排名：第 12 位 · 热度：153560 · 分类：民生新闻 · 更新：2026-07-25T02:06:27+08:00
+> 来源：微博热搜 · 排名：第 12 位 · 热度：43970 · 分类：民生新闻 · 更新：2026-07-25T05:47:39+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“男生中考699分偷偷改志愿读中职”位列第 12 位，公开热度指标为 153560，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“男生中考699分偷偷改志愿读中职”位列第 12 位，公开热度指标为 43970，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -19,17 +19,17 @@
 ## 相关热点
 
 - [男子在家裸体被女邻居发群是谁错了](chao-san-mu-si.md)
-- [周星驰回应观众才是最牛的，强调纪录由观众创造的，而冯导却抛出观众垃圾论，你认为那种说法更对？](dui-niu-tan-qin.md)
-- [陪莉莉一起吃饭吧～](mang-ren-mo-xiang.md)
-- [女孩卖4克头发换12元买奶茶](yuan-mu-qiu-yu.md)
+- [12306 优先为老年旅客分配下铺，而带娃旅客不优先，该如何平衡不同群体需求？](dui-niu-tan-qin.md)
+- [树恨你](mang-ren-mo-xiang.md)
+- [男子为还百万欠款每天跑16小时外卖](yuan-mu-qiu-yu.md)
 
 ## 站内推荐
 
 - [《下一个是谁》第七季（2）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [王兴兴登《时代》封面](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [詹姆斯年薪仅400万](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [一招区分动物奶油和植物奶油](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [12306 优先为老年旅客分配下铺，而带娃旅客不优先，该如何平衡不同群体需求？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [全球第一个 老挝彻底禁售燃油新车](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [A股史上最大股票回购方案](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [76人阵容](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [台风红霞逼近广东强度将爆发](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
@@ -38,54 +38,54 @@
 
 - [如何看待近期日本面临的股债汇「三杀」的境况？](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
 - [全宇宙最阴的物件](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
-- [成都学子圆梦空军航空大学](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
-- [为什么感觉现在小孩越来越笨了？](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
-- [方某军因操纵证券市场被罚没1.75亿](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
-- [周星驰叫迪丽热巴“巴爷”](http://www.movie.hkepx.cn/xiju/2772866.htm)
-- [詹姆斯发长文](http://www.movie.hkepx.cn/movie/8157133.htm)
-- [儿子陪老爸找工作！没想到我会陪55岁的老爸去招聘会...](http://www.movie.hkepx.cn/movie/3703338.htm)
-- [指鸡为牛、移花接木：营销号看图说话有多离谱？](http://www.movie.hkepx.cn/xiju/3368241.htm)
-- [美加墨世界杯后，哈兰德、亚马尔身价达到惊人的 2.2 亿欧元，已突破历史，这是一个什么水平？](http://www.movie.hkepx.cn/movie/9040401.htm)
-- [年会不能停2口碑](http://www.movie.hkepx.cn/movie/7194765.htm)
-- [菲律宾一边逃窜一边喊糟糕](http://www.movie.hkepx.cn/movie/6128990.htm)
-- [12306 优先为老年旅客分配下铺，而带娃旅客不优先，该如何平衡不同群体需求？](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
-- [汪苏泷演唱会戴了光环戒指](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
-- [詹姆斯底薪](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
-- [香港导演关锦鹏谈《功夫女足》](http://www.movie.hkepx.cn/movie/4858272.htm)
-- [媒体评王虹获奖：别再说寒门难出贵子](http://www.daogukj.com/bfxepwya/)
-- [目前除了王虹和邓煜两位数学家，还有哪些华人数学家未来有望争取菲尔兹奖？](http://www.movie.hkepx.cn/xiju/4024765.htm)
+- [年会不能停2口碑](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
+- [如果一男子撬锁进入别人房子内，结果刚进屋就被泼热油导致全身重度烧伤，请问屋主该行为是否属于正当防卫？](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
+- [腾讯317万年终奖员工因泄密被辞退](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
+- [詹姆斯年薪仅400万](http://www.movie.hkepx.cn/xiju/2772866.htm)
+- [方星海涉嫌严重违纪违法](http://www.movie.hkepx.cn/movie/8157133.htm)
+- [女子将家中电视背景墙装成教室黑板](http://www.movie.hkepx.cn/movie/3703338.htm)
+- [见蛇不打三分罪？让我们来看看舟山眼镜蛇怎么说](http://www.movie.hkepx.cn/xiju/3368241.htm)
+- [目前除了王虹和邓煜两位数学家，还有哪些华人数学家未来有望争取菲尔兹奖？](http://www.movie.hkepx.cn/movie/9040401.htm)
+- [詹姆斯底薪](http://www.movie.hkepx.cn/movie/7194765.htm)
+- [年轻数学家王虹、邓煜的成长历程可以给现在的家长和学生什么样的启发？](http://www.movie.hkepx.cn/movie/6128990.htm)
+- [台风红霞逼近广东强度将爆发](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
+- [成吉思鸡200卢比买一送一，我只要送的那份](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
+- [林依轮复刻白鹿周生如故红衣造型](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
+- [俄罗斯再成中国汽车最大买家](http://www.movie.hkepx.cn/movie/4858272.htm)
+- [男子捂死妻子埋尸荒野13年后被抓](http://www.daogukj.com/bfxepwya/)
+- [如何看待内存的涨价终于波及到了显卡，50系显卡逐渐大面积缺货开始暴涨？](http://www.movie.hkepx.cn/xiju/4024765.htm)
 - [从数学研究角度，为什么王虹可以在本科小透明后取得巨大突破？](http://www.movie.hkepx.cn/xiju/0737631.htm)
-- [野猴坐工地狂喝饮料 工人一脸无奈](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
-- [如何看待腾讯 317 万年终奖员工因泄密被辞退，「打入黑名单，永不录用」？大厂保密红线究竟有多严？](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
-- [全国首条穿越长江高铁隧道贯通，这是一个怎样的工程？在长江底下挖高铁隧道，有多难？](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
-- [睡眠好坏和床头朝向有关系吗](http://www.movie.hkepx.cn/xiju/7334347.htm)
+- [重庆山体崩塌现场新搜寻出3名遇难者](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
+- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
+- [Shams：勒布朗-詹姆斯2年800万签约76人，第二年球员选项，如何评价这一操作？](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
+- [物业大撤退背后发生了什么](http://www.movie.hkepx.cn/xiju/7334347.htm)
 - [“广西百色遭遇严重洪灾”系谣言](http://www.daogukj.com/7849300)
 - [袜学导论：从脚踝到大腿，袜子如何成就二次元的顶级暗示！【泛式/次元论战】](http://www.daogukj.com/aozagmkd/)
 - [男子在家裸体被女邻居发群是谁错了](http://www.daogukj.com/ioafjlkc/)
-- [女孩卖4克头发换12元买奶茶](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
-- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](http://www.movie.hkepx.cn/xiju/2137446.htm)
-- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](http://www.daogukj.com/0166884)
-- [Shams：勒布朗-詹姆斯2年800万签约76人，第二年球员选项，如何评价这一操作？](http://www.movie.hkepx.cn/movie/0848231.htm)
-- [《歌手》第10期排名：窦靖童第一](http://www.daogukj.com/tckpumpu/)
-- [连续21天十点睡六点起，我真的会变健康吗？](http://www.daogukj.com/0292547)
-- [全球第一个 老挝彻底禁售燃油新车](http://www.daogukj.com/hejavvee/)
-- [每周2天少吃坚持一月瘦5斤](http://www.movie.hkepx.cn/xiju/2863382.htm)
+- [男子为还百万欠款每天跑16小时外卖](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
+- [王虹获奖感言「很幸运在合适时间遇见合适的人，得到正确引导」，你怎么看？](http://www.movie.hkepx.cn/xiju/2137446.htm)
+- [商务部宣布为维护国家安全和利益，将 14 家欧盟实体列入出口管制管控名单，有哪些信息值得关注？](http://www.daogukj.com/0166884)
+- [每周2天少吃坚持一月瘦5斤](http://www.movie.hkepx.cn/movie/0848231.htm)
+- [LPL2026赛季第三赛段组内赛EDG 1:2 BLG，如何评价这场比赛？](http://www.daogukj.com/tckpumpu/)
+- [森罗物语扩展包/沉浸式吃播展示 （部分）](http://www.daogukj.com/0292547)
+- [男子潜逃30多年后回老家：怕客死异乡](http://www.daogukj.com/hejavvee/)
+- [穿越回100年前，看看苏联建筑到底有多超前！？](http://www.movie.hkepx.cn/xiju/2863382.htm)
 - [解码中国经济半年报](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
-- [乌克兰大变天了](http://www.daogukj.com/gurgtiup/)
-- [长鑫科技一签能赚多少](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
-- [男子为还百万欠款每天跑16小时外卖](http://www.daogukj.com/nlwlvqny/)
-- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
+- [玩剑魔打蒙多能忍住不笑的，你是这个👍](http://www.daogukj.com/gurgtiup/)
+- [比亚迪“大汉”要来了](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
+- [王兴兴登《时代》封面](http://www.daogukj.com/nlwlvqny/)
+- [连续21天十点睡六点起，我真的会变健康吗？](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
 - [【纪录片】地球·劫后重生 中配版07 大陆碰撞](http://www.daogukj.com/4367144)
-- [歌手排名](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
-- [峰学蔚来武亮住院](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
-- [演员寇占文被法院悬赏，立案标的 694 万，曾出演《隋唐英雄传》《逐玉》《镖人》，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/3421929.htm)
+- [詹姆斯发长文](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
+- [韦东奕课后向王虹追问请教](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
+- [小伙在土耳其为孕妻买甜品被刺6刀](http://www.movie.hkepx.cn/movie/3421929.htm)
 - [广东多地宣布：停止一切线下培训](http://www.movie.hkepx.cn/xiju/7147911.htm)
-- [永劫，再打十年也不会腻 | 新英雄【全职高手 · 叶修】CG](http://www.movie.hkepx.cn/xiju/5231443.htm)
-- [陪莉莉一起吃饭吧～](http://www.daogukj.com/hwjpoycr/)
-- [周星驰回应观众才是最牛的，强调纪录由观众创造的，而冯导却抛出观众垃圾论，你认为那种说法更对？](http://www.movie.hkepx.cn/movie/7786575.htm)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](http://www.movie.hkepx.cn/xiju/5231443.htm)
+- [树恨你](http://www.daogukj.com/hwjpoycr/)
+- [12306 优先为老年旅客分配下铺，而带娃旅客不优先，该如何平衡不同群体需求？](http://www.movie.hkepx.cn/movie/7786575.htm)
 - [美国被曝考虑对第8国动武](http://www.movie.hkepx.cn/movie/1630389.htm)
-- [越来越多高分考生选“中职直通本科”](http://www.daogukj.com/ijajouly/)
-- [詹姆斯年薪仅400万](http://www.daogukj.com/7130534)
+- [感觉宋威龙好会谈恋爱](http://www.daogukj.com/ijajouly/)
+- [A股史上最大股票回购方案](http://www.daogukj.com/7130534)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6cc49464b3b238c044a4 -->
+<!-- content-fingerprint: 9d407399f03a6ffb43b4 -->
