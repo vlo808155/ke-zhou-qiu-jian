@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 山东一高速服务区设啤酒档口，工作人员称「已经过审批，卖两个月了」，如何看待这一档口设置？卖啤酒合理吗？
+# 专家辟谣“乳状云预示龙卷风”
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：296 万热度 · 分类：问答 · 更新：2026-07-25T18:58:49+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6854417 · 更新：2026-07-25T22:51:08+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“山东一高速服务区设啤酒档口，工作人员称「已经过审批，卖两个月了」，如何看待这一档口设置？卖啤酒合理吗？”位列第 11 位，公开热度指标为 296 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“专家辟谣“乳状云预示龙卷风””位列第 10 位，公开热度指标为 6854417。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：网络截图。 近日，山东潍坊，有网友发布视频，称在一处高速服务区看到摆摊卖青岛啤酒，引发热议。据了解，视频拍摄于潍坊西服务区（青银高速青岛方向）。该服务区的工作人员告诉潇湘晨报·晨视频记者，服务区确有卖啤酒的档口，是经过审批的，已经卖了两个月了，“很正常吧，坐车的客人有需要，现在天气也比较热，卖的啤酒也有果啤，没有酒精的那种。而且一般驾驶员都知道喝酒不开车，我们也和档口的工作人员沟通，一定要提醒顾客开车不喝酒。” https://mp.weixin.qq.com/s/5ObbjpCksaoKP1PQeXOJFQ?scene=1&click_id=82
+来源公开摘要显示：7月25日傍晚，在武汉，不少市民抬头捕捉到难得一见的乳状云景观。网络长期流传说法，看见乳状云就预示龙卷风来袭。专家特意辟谣，这是典型气象谣言！乳状云大多诞生于强雷雨系统临近收尾阶段，是大气剧烈对流过后留下的“印记”，并不会直接催生龙卷风。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [直哉挑衅佐助 十尾空降涩谷](dong-shi-xiao-pin.md)
-- [第一次见自带攻击性的蛋糕](han-dan-xue-bu.md)
-- [闫闯退赛](qi-ren-you-tian.md)
-- [成都非遗保护中心辟谣虚假招聘](chao-san-mu-si.md)
+- [黄灿灿370元做的丑美甲](dong-shi-xiao-pin.md)
+- [晒眼皮能治近视？无效](han-dan-xue-bu.md)
+- [如何评价北大著名校友柳智宇评价同学王虹邓煜获得菲尔兹奖，祝贺两位校友，并不后悔自己上山出家离开数学？](qi-ren-you-tian.md)
+- [整活！当做饭很难吃的女友突然买了一兜子菜…男友直接崩溃了！](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [王小洪会见FBI局长帕特尔](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [女装退货率达80% 责任不在消费者](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [《功夫女足》票房破18亿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [五人分1亿元，由你来进行分配，但凡有一个人拒绝，所有人都会失去全部，你会怎么分配？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [为什么两广地区在计算机和数学领域出现了人才井喷?](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [台风红霞登陆后滞留时间长 降水极端](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [小龙虾价格腰斩 全国每人5斤才能吃完](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [25岁男星被指在高铁占素人座位](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [申遗成功后 中方代表嘴角压不住了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [孙女的微信状态只有爷爷当真了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [袜学导论：从脚踝到大腿，袜子如何成就二次元的顶级暗示！【泛式/次元论战】](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [小葫芦长相端正主人设监控守护](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [直击乒超：王楚钦vs向鹏](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [成都非遗保护中心辟谣虚假招聘](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [小鹏X9因趴窝问题召回 33473 辆，有车主称大部分都是3万公里就趴窝，换完再塌，哪个流程出了问题？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [山东建成首个“零碳机关”](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [为什么两广地区在计算机和数学领域出现了人才井喷?](http://www.daogukj.com/4734416)
-- [马斯克：中国很有可能成AI领导者](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [王楚钦梁靖崑领衔对阵向鹏薛飞](http://www.daogukj.com/eujljnlh/)
-- [近日成都街头，本以为男子在爱心水站薅羊毛，结果却是补满水箱、送冰凉贴。](http://www.daogukj.com/3484796)
-- [《功夫女足》票房破18亿](http://www.daogukj.com/6840289)
-- [「红霞」加强为台风级，预计25晚至26日在香港到广东陆丰沿海登陆，可能带来多大影响？你那里情况如何？](http://www.daogukj.com/8544186)
-- [卸载就卸载什么叫残忍卸载](http://www.daogukj.com/4262842)
-- [女装退货率达80% 责任不在消费者](http://www.movie.hkepx.cn/movie/0136106.htm)
-- [防溺水 这样做](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [五人分1亿元，由你来进行分配，但凡有一个人拒绝，所有人都会失去全部，你会怎么分配？](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [直哉挑衅佐助 十尾空降涩谷](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [回合制开放世界？人人都说肝的《遗忘之海》到底好玩吗？](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [在西宁这碗麻辣烫端出来前，我简直在乱吃。](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [台风红霞来袭 直击最新情况](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [爸爸带娃玩手机 孩子打翻烧水壶](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [侯明昊裤子破了](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [特朗普再打关税战 这次有何不同](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [整活！当做饭很难吃的女友突然买了一兜子菜…男友直接崩溃了！](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [男生中考 699 分偷偷改志愿读中职，称「未来想当程序员，AI 时代也不怕」，如何看待这一升学选择？](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [博三女生没结婚问亲戚：谁笑话我妈了](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [孙女的微信状态只有爷爷当真了](http://www.daogukj.com/4734416)
+- [台湾民众大游行怒喊“下架民进党”](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [梨形身材，大腿小腿超级粗，真的特别想瘦，羡慕那些能穿衣自由的人 ，有没有瘦腿的方法？](http://www.daogukj.com/eujljnlh/)
+- [携程为何挨了最重的罚](http://www.daogukj.com/3484796)
+- [25岁男星被指在高铁占素人座位](http://www.daogukj.com/6840289)
+- [「红霞」加强为强台风级，预计26日凌晨在广东深圳到海丰一带沿海登陆，可能带来多大影响？你那里情况如何？](http://www.daogukj.com/8544186)
+- [《三国第一部：争洛阳》上映 16 天官宣撤档，票房未破亿，问题出在哪？改档期会有效吗？](http://www.daogukj.com/4262842)
+- [小龙虾价格腰斩 全国每人5斤才能吃完](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [景德镇用小写的c惊艳全球](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
+- [申遗成功后 中方代表嘴角压不住了](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [黄灿灿370元做的丑美甲](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [印度和日本因高铁闹翻](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [阿凡提扮演者吐依贡去世](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [二年前买的二手房，现在房主说她放在地下室的东西被我扔了，我要负责，请问我有责任吗？](http://www.movie.hkepx.cn/movie/3741651.htm)
 - [【独家】《凡人修仙传之慕兰之战》第8集【总第184集】](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [重庆警方打掉境内外电诈团伙198个](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [王玉雯勇敢的人先毛细血管破裂](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [那些买六座大车的人后悔了吗](http://www.daogukj.com/4133568)
-- [【纪录片】闪闪的儿科医生4 第9集 扎起，全技能就绪！](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [专家辟谣“乳状云预示龙卷风”](http://www.daogukj.com/0480016)
-- [印度和日本因高铁闹翻](http://www.daogukj.com/4561506)
-- [2026 乒超联赛常规赛第一站男团，王楚钦 1-2 张煜东，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [为什么携程被罚最重](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [日系车三巨头在华销量全线下跌，专家称短期难扭转，主要原因是什么？](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [携程被罚51.79亿](http://www.daogukj.com/jbdvxipc/)
-- [红霞雨带影响深圳 狂风呼啸大雨倾盆](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [杨植麟团队 KimiK3 拥有 2.8 万亿参数且团队最小成员仅 17 岁，这意味着什么？](http://www.daogukj.com/awgjjjvg/)
-- [菲尔兹奖得主邓煜的知乎主页引热议，嗑 CP、写物理诗，你怎么看这位答主科研之外的「反差感」解压日常？](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [王楚然确认常驻现在就出发4](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [携程](http://www.daogukj.com/ditzbwwz/)
-- [我会顺着网线 找到你！](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [特朗普称准备第四次竞选总统](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [二年前买的二手房，现在房主说她放在地下室的东西被我扔了，我要负责，请问我有责任吗？](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [马科斯想重置中菲关系 驻菲大使回应](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [晚上在店里加班处理金枪鱼，顺便切点边角料偷偷做个晚餐吃](http://www.daogukj.com/aqmuomii/)
-- [现在就出发4即将开录](http://www.daogukj.com/phjdnbun/)
-- [这才是真正的民用机床](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [被闪电击中继续飞 中国火箭有多硬核](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [博三女生没结婚问亲戚：谁笑话我妈了](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [离岸信托个税新规出台，设立、存续、清算全链条征税 适用 20% 税率，将产生哪些影响？](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [孙女的微信状态只有爷爷当真了](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [见蛇不打三分罪？让我们来看看舟山眼镜蛇怎么说](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [A股一周跌幅榜出炉](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [第一次见自带攻击性的蛋糕](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [阿凡提扮演者吐依贡去世 享年80岁](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [《间谍过家家》里黄昏为什么没有察觉尤尔的真实身份？](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [任正非为什么说「τ 定律是华为唯一出路」？](http://www.daogukj.com/4133568)
+- [2026 乒超联赛常规赛第一站男团，王楚钦 1-2 张煜东，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [《民法典》为什么把“配偶”放在“亲属”的第1位？](http://www.daogukj.com/0480016)
+- [269万宾利音响不如30万轿车](http://www.daogukj.com/4561506)
+- [大哥拿爱心冰柜的水后补了两箱](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [近日成都街头，本以为男子在爱心水站薅羊毛，结果却是补满水箱、送冰凉贴。](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [日本确认南鸟岛海泥含中重稀土](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [王楚钦梁靖崑双打1比2](http://www.daogukj.com/jbdvxipc/)
+- [“我才是元首！”](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [中国女排0比3土耳其女排](http://www.daogukj.com/awgjjjvg/)
+- [为什么携程被罚最重](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [詹姆斯降薪 4875 万美元加盟后，费城的阵容如何调整才能避免球权冲突？球队有哪些隐患？](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [【MAFG】MC动画：于是，我们的故事开始了......](http://www.daogukj.com/ditzbwwz/)
+- [6分06秒结束比赛](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [晚上在店里加班处理金枪鱼，顺便切点边角料偷偷做个晚餐吃](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [进山捡到“蛇皮外套” 疑似眼镜王蛇](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [冉莹颖拳馆项目被疑利益输送，大额项目被指定向内定给亲属体系，这是真的吗？家族式管理模式有哪些风险？](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [重庆出租车稳稳拦住滚落石球](http://www.daogukj.com/aqmuomii/)
+- [第二代身份证内部根本没有磁条](http://www.daogukj.com/phjdnbun/)
+- [蛋定，我们会再见～](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [三星折叠屏国行售价公布，你认为这一价格值得入手吗？](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [【纪录片】闪闪的儿科医生4 第9集 扎起，全技能就绪！](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [谢霆锋一身黑衣 在青岛演唱会开唱](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [谢霆锋演唱会状态](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [李权哲高铁占座](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [年轻人喜欢的Livehouse涨价了](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [晒眼皮能治近视？无效](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [山东一高速服务区设啤酒档口，工作人员称「已经过审批，卖两个月了」，如何看待这一档口设置？卖啤酒合理吗？](https://www.zhihu.com/question/2063655728540283084)
+- [专家辟谣“乳状云预示龙卷风”](https://www.baidu.com/s?wd=%E4%B8%93%E5%AE%B6%E8%BE%9F%E8%B0%A3%E2%80%9C%E4%B9%B3%E7%8A%B6%E4%BA%91%E9%A2%84%E7%A4%BA%E9%BE%99%E5%8D%B7%E9%A3%8E%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 149d4c877958e31f5c13 -->
+<!-- content-fingerprint: 74f7eb81995aadabf43f -->

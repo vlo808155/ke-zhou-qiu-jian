@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 专家辟谣“乳状云预示龙卷风”
+# 《民法典》为什么把“配偶”放在“亲属”的第1位？
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6854973 · 更新：2026-07-25T18:58:49+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：254 万热度 · 分类：问答 · 更新：2026-07-25T22:51:08+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“专家辟谣“乳状云预示龙卷风””位列第 10 位，公开热度指标为 6854973。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“《民法典》为什么把“配偶”放在“亲属”的第1位？”位列第 10 位，公开热度指标为 254 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月25日傍晚，在武汉，不少市民抬头捕捉到难得一见的乳状云景观。网络长期流传说法，看见乳状云就预示龙卷风来袭。专家特意辟谣，这是典型气象谣言！乳状云大多诞生于强雷雨系统临近收尾阶段，是大气剧烈对流过后留下的“印记”，并不会直接催生龙卷风。
+来源公开摘要显示：《民法典》第一千零四十五条 亲属包括配偶、血亲和姻亲。 配偶、父母、子女、兄弟姐妹、祖父母、外祖父母、孙子女、外孙子女为近亲属。 配偶、父母、子女和其他共同生活的近亲属为家庭成员。 如题。 《民法典》所载“亲属”有3类，依次为：配偶、血亲、姻亲。 “配偶”，根据我的理解，就是合同关系。不比别的任何一种合同（例如：买卖合同、代理合同…）关系特殊。 请问：为什么要把配偶排在血亲的前面？是因为没有配偶，就没有血亲吗？例如：没有配偶，就没有子女；没有子女，又何来“父母”这一对称谓？《民法典》是根据这个逻辑给3类亲属排序的吗？ 看上去，“配偶”是一切“亲属”的源泉
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [李权哲高铁占座](hu-jia-hu-wei.md)
-- [山东一高速服务区设啤酒档口，工作人员称「已经过审批，卖两个月了」，如何看待这一档口设置？卖啤酒合理吗？](yu-mu-hun-zhu.md)
-- [直哉挑衅佐助 十尾空降涩谷](dong-shi-xiao-pin.md)
-- [第一次见自带攻击性的蛋糕](han-dan-xue-bu.md)
+- [永劫，再打十年也不会腻 | 新英雄【全职高手 · 叶修】CG](hu-jia-hu-wei.md)
+- [专家辟谣“乳状云预示龙卷风”](yu-mu-hun-zhu.md)
+- [黄灿灿370元做的丑美甲](dong-shi-xiao-pin.md)
+- [晒眼皮能治近视？无效](han-dan-xue-bu.md)
 
 ## 站内推荐
 
-- [「四位菲尔兹奖主有三位会说中文」，如何看待菲奖得主约翰·帕登（白杰文）的汉语水平？你对他还有哪些了解？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [心灵在2012年的一次播报，时隔14年落在了自己的身上，时间绕了一圈，完成了温暖的闭环。](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [王玉雯勇敢的人先毛细血管破裂](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [为什么携程被罚最重](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [杨幂江山大同杀青照](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [山东一高速服务区设啤酒档口，工作人员称「已经过审批，卖两个月了」，如何看待这一档口设置？卖啤酒合理吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [被复旦临床八年制录取了，我应该争取转专业吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [《间谍过家家》里黄昏为什么没有察觉尤尔的真实身份？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [近日成都街头，本以为男子在爱心水站薅羊毛，结果却是补满水箱、送冰凉贴。](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [台湾民众游行怒喊“下架民进党”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [台风红霞](http://www.movie.hkepx.cn/movie/3685842.htm)
-- [卸载就卸载什么叫残忍卸载](http://www.movie.hkepx.cn/xiju/5670446.htm)
-- [近日成都街头，本以为男子在爱心水站薅羊毛，结果却是补满水箱、送冰凉贴。](http://www.movie.hkepx.cn/xiju/4927200.htm)
-- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](http://www.movie.hkepx.cn/movie/2410383.htm)
-- [特朗普称准备第四次竞选总统](http://www.movie.hkepx.cn/xiju/7011492.htm)
-- [台风逼近 广东进入临战状态](http://www.daogukj.com/yuizpcez/)
-- [男生中考 699 分偷偷改志愿读中职，称「未来想当程序员，AI 时代也不怕」，如何看待这一升学选择？](http://www.daogukj.com/skvkqhkp/)
-- [台风红霞即将开眼](http://www.daogukj.com/7989270)
-- [二年前买的二手房，现在房主说她放在地下室的东西被我扔了，我要负责，请问我有责任吗？](http://www.movie.hkepx.cn/movie/8235826.htm)
-- [王小洪会见FBI局长帕特尔](http://www.play.hengshemaoyi.cn/kongbu/1330395.htm)
-- [红霞雨带影响深圳 狂风呼啸大雨倾盆](http://www.daogukj.com/8516308)
-- [被闪电击中继续飞 中国火箭有多硬核](http://www.movie.hkepx.cn/xiju/2845747.htm)
-- [《民法典》为什么把“配偶”放在“亲属”的第1位？](http://www.movie.hkepx.cn/xiju/4647338.htm)
-- [大脑有上百亿个神经元，为什么正常人只产生一个意识？是什么在阻止第二个“我”的出现？](http://www.movie.hkepx.cn/movie/1997691.htm)
-- [POV：当你突然独自拜访江浙沪男朋友的老爸1.0](http://www.play.hengshemaoyi.cn/kongbu/9175355.htm)
-- [上半年农业农村经济发展势头良好](http://www.movie.hkepx.cn/xiju/1117313.htm)
-- [为什么两广地区在计算机和数学领域出现了人才井喷?](http://www.movie.hkepx.cn/xiju/6588524.htm)
+- [八仙](http://www.movie.hkepx.cn/movie/3685842.htm)
+- [《三国第一部：争洛阳》上映 16 天官宣撤档，票房未破亿，问题出在哪？改档期会有效吗？](http://www.movie.hkepx.cn/xiju/5670446.htm)
+- [携程为何挨了最重的罚](http://www.movie.hkepx.cn/xiju/4927200.htm)
+- [香港一大厦脚手架被整幅吹倒](http://www.movie.hkepx.cn/movie/2410383.htm)
+- [晚上在店里加班处理金枪鱼，顺便切点边角料偷偷做个晚餐吃](http://www.movie.hkepx.cn/xiju/7011492.htm)
+- [上百斤重水泥柱被巨浪拍断冲上岸](http://www.daogukj.com/yuizpcez/)
+- [三名男子在山西运城盐湖湖边便溺](http://www.daogukj.com/skvkqhkp/)
+- [中国女排无缘决赛](http://www.daogukj.com/7989270)
+- [进山捡到“蛇皮外套” 疑似眼镜王蛇](http://www.movie.hkepx.cn/movie/8235826.htm)
+- [台风红霞登陆后滞留时间长 降水极端](http://www.play.hengshemaoyi.cn/kongbu/1330395.htm)
+- [“我才是元首！”](http://www.daogukj.com/8516308)
+- [三星折叠屏国行售价公布，你认为这一价格值得入手吗？](http://www.movie.hkepx.cn/xiju/2845747.htm)
+- [《三国第一部：争洛阳》撤档](http://www.movie.hkepx.cn/xiju/4647338.htm)
+- [中方反制14家欧洲实体后欧盟还嘴硬](http://www.movie.hkepx.cn/movie/1997691.htm)
+- [【2026LPL第三赛段】7月25日 IG vs WBG](http://www.play.hengshemaoyi.cn/kongbu/9175355.htm)
+- [申遗成功见证千年瓷都新跨越](http://www.movie.hkepx.cn/xiju/1117313.htm)
+- [孙女的微信状态只有爷爷当真了](http://www.movie.hkepx.cn/xiju/6588524.htm)
 - [携程滥用市场支配地位实施垄断行为，被罚没 51.79 亿元，起到哪些警示作用？对相关行业有何影响？](http://www.daogukj.com/flcbggsu/)
-- [台风来袭直击多地现状](http://www.movie.hkepx.cn/xiju/5851261.htm)
-- [成都非遗保护中心辟谣虚假招聘](http://www.movie.hkepx.cn/xiju/7433154.htm)
-- [大学副教授被举报18年前“高考移民”](http://www.daogukj.com/cucqvpnh/)
-- [孙女的微信状态只有爷爷当真了](http://www.daogukj.com/kpnlkbet/)
-- [离岸信托个税新规出台，设立、存续、清算全链条征税 适用 20% 税率，将产生哪些影响？](http://www.movie.hkepx.cn/movie/7953455.htm)
-- [李权哲高铁占座](http://www.play.hengshemaoyi.cn/kongbu/7679009.htm)
-- [《下一个是谁》第七季（2）](http://www.play.hengshemaoyi.cn/xiju/8961731.htm)
-- [我会顺着网线 找到你！](http://www.play.hengshemaoyi.cn/xiju/9796102.htm)
-- [王楚然确认常驻现在就出发4](http://www.movie.hkepx.cn/xiju/0936500.htm)
-- [深圳狂风呼啸大雨倾盆](http://www.play.hengshemaoyi.cn/kongbu/0289669.htm)
-- [五人分1亿元，由你来进行分配，但凡有一个人拒绝，所有人都会失去全部，你会怎么分配？](http://www.daogukj.com/7886683)
-- [中国大使：对菲挑事坚决怼回去打回去](http://www.play.hengshemaoyi.cn/xiju/6388803.htm)
-- [【纪录片】闪闪的儿科医生4 第9集 扎起，全技能就绪！](http://www.movie.hkepx.cn/movie/5203333.htm)
-- [杨幂江山大同杀青照](http://www.play.hengshemaoyi.cn/kongbu/6780839.htm)
-- [王玉雯勇敢的人先毛细血管破裂](http://www.play.hengshemaoyi.cn/xiju/0807477.htm)
-- [王楚钦梁靖崑领衔对阵向鹏薛飞](http://www.daogukj.com/nlaxdpez/)
-- [重庆警方打掉境内外电诈团伙198个](http://www.movie.hkepx.cn/xiju/9167417.htm)
-- [孔雪儿一个人努力好心酸](http://www.movie.hkepx.cn/movie/1116768.htm)
-- [携程因垄断行为被罚没51.79亿元](http://www.play.hengshemaoyi.cn/xiju/3017853.htm)
-- [女装退货率达80% 责任不在消费者](http://www.movie.hkepx.cn/movie/4719317.htm)
-- [美国女子吸毒精神错乱仰躺推车晃腿](http://www.movie.hkepx.cn/xiju/0517263.htm)
-- [直击乒超：王楚钦vs向鹏](http://www.movie.hkepx.cn/movie/9183008.htm)
-- [携程被罚没51.79亿元](http://www.daogukj.com/hsndvgzz/)
-- [日本确认南鸟岛海泥含中重稀土](http://www.movie.hkepx.cn/xiju/7386231.htm)
+- [直哉挑衅佐助 十尾空降涩谷](http://www.movie.hkepx.cn/xiju/5851261.htm)
+- [整活！当做饭很难吃的女友突然买了一兜子菜…男友直接崩溃了！](http://www.movie.hkepx.cn/xiju/7433154.htm)
+- [中央气象台发布今年首个台风红警](http://www.daogukj.com/cucqvpnh/)
+- [谢霆锋演唱会状态](http://www.daogukj.com/kpnlkbet/)
+- [谢霆锋一身黑衣 在青岛演唱会开唱](http://www.movie.hkepx.cn/movie/7953455.htm)
+- [永劫，再打十年也不会腻 | 新英雄【全职高手 · 叶修】CG](http://www.play.hengshemaoyi.cn/kongbu/7679009.htm)
+- [大脑有上百亿个神经元，为什么正常人只产生一个意识？是什么在阻止第二个“我”的出现？](http://www.play.hengshemaoyi.cn/xiju/8961731.htm)
+- [6分06秒结束比赛](http://www.play.hengshemaoyi.cn/xiju/9796102.htm)
+- [詹姆斯降薪 4875 万美元加盟后，费城的阵容如何调整才能避免球权冲突？球队有哪些隐患？](http://www.movie.hkepx.cn/xiju/0936500.htm)
+- [闫闯回应退赛](http://www.play.hengshemaoyi.cn/kongbu/0289669.htm)
+- [申遗成功后 中方代表嘴角压不住了](http://www.daogukj.com/7886683)
+- [我会顺着网线 找到你！](http://www.play.hengshemaoyi.cn/xiju/6388803.htm)
+- [2026 乒超联赛常规赛第一站男团，王楚钦 1-2 张煜东，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/5203333.htm)
+- [台湾民众游行怒喊“下架民进党”](http://www.play.hengshemaoyi.cn/kongbu/6780839.htm)
+- [《间谍过家家》里黄昏为什么没有察觉尤尔的真实身份？](http://www.play.hengshemaoyi.cn/xiju/0807477.htm)
+- [梨形身材，大腿小腿超级粗，真的特别想瘦，羡慕那些能穿衣自由的人 ，有没有瘦腿的方法？](http://www.daogukj.com/nlaxdpez/)
+- [阿凡提扮演者吐依贡去世 享年80岁](http://www.movie.hkepx.cn/xiju/9167417.htm)
+- [一诺守约](http://www.movie.hkepx.cn/movie/1116768.htm)
+- [运城盐湖回应3名男子酒后在湖边便溺](http://www.play.hengshemaoyi.cn/xiju/3017853.htm)
+- [小龙虾价格腰斩 全国每人5斤才能吃完](http://www.movie.hkepx.cn/movie/4719317.htm)
+- [女装退货率达80% 责任不在消费者](http://www.movie.hkepx.cn/xiju/0517263.htm)
+- [特朗普再打关税战 这次有何不同](http://www.movie.hkepx.cn/movie/9183008.htm)
+- [鹿晗贵阳音乐节人气](http://www.daogukj.com/hsndvgzz/)
+- [山西洪洞黄土崩塌瞬间画面](http://www.movie.hkepx.cn/xiju/7386231.htm)
 - [【独家】《凡人修仙传之慕兰之战》第8集【总第184集】](http://www.movie.hkepx.cn/movie/9109944.htm)
-- [小鹏X9因趴窝问题召回 33473 辆，有车主称大部分都是3万公里就趴窝，换完再塌，哪个流程出了问题？](http://www.movie.hkepx.cn/movie/9419430.htm)
-- [闫闯退赛](http://www.daogukj.com/ehwgmnxm/)
-- [2026 乒超联赛常规赛第一站男团，王楚钦 1-2 张煜东，如何评价本场比赛？](http://www.daogukj.com/2775056)
-- [台风红霞出现眼壁](http://www.daogukj.com/1395089)
-- [马斯克：中国很有可能成AI领导者](http://www.daogukj.com/jlgjcofz/)
-- [任正非为什么说「τ 定律是华为唯一出路」？](http://www.play.hengshemaoyi.cn/kongbu/1564112.htm)
-- [心灵在2012年的一次播报，时隔14年落在了自己的身上，时间绕了一圈，完成了温暖的闭环。](http://www.movie.hkepx.cn/movie/0007962.htm)
+- [男生中考 699 分偷偷改志愿读中职，称「未来想当程序员，AI 时代也不怕」，如何看待这一升学选择？](http://www.movie.hkepx.cn/movie/9419430.htm)
+- [如何评价北大著名校友柳智宇评价同学王虹邓煜获得菲尔兹奖，祝贺两位校友，并不后悔自己上山出家离开数学？](http://www.daogukj.com/ehwgmnxm/)
+- [大哥拿爱心冰柜的水后补了两箱](http://www.daogukj.com/2775056)
+- [超5万人在赖清德办公大楼前喊话下台](http://www.daogukj.com/1395089)
+- [台湾民众大游行怒喊“下架民进党”](http://www.daogukj.com/jlgjcofz/)
+- [c83 难听](http://www.play.hengshemaoyi.cn/kongbu/1564112.htm)
+- [被复旦临床八年制录取了，我应该争取转专业吗？](http://www.movie.hkepx.cn/movie/0007962.htm)
 
 </details>
 
 ## 原始来源
 
-- [专家辟谣“乳状云预示龙卷风”](https://www.baidu.com/s?wd=%E4%B8%93%E5%AE%B6%E8%BE%9F%E8%B0%A3%E2%80%9C%E4%B9%B3%E7%8A%B6%E4%BA%91%E9%A2%84%E7%A4%BA%E9%BE%99%E5%8D%B7%E9%A3%8E%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [《民法典》为什么把“配偶”放在“亲属”的第1位？](https://www.zhihu.com/question/628507781)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d721b63e828fa0788782 -->
+<!-- content-fingerprint: e26ad8e1b8377fd22b79 -->
