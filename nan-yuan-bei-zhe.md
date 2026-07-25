@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 携程为何挨了最重的罚
+# 任正非为什么说「τ 定律是华为唯一出路」？
 
-> 来源：今日头条热榜 · 排名：第 9 位 · 热度：9570730 · 分类：热门事件 · 更新：2026-07-25T22:51:08+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：171 万热度 · 分类：问答 · 更新：2026-07-26T02:08:41+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“携程为何挨了最重的罚”位列第 9 位，公开热度指标为 9570730，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“任正非为什么说「τ 定律是华为唯一出路」？”位列第 9 位，公开热度指标为 171 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，华为心声社区转发了《人民日报》独家对话华为半导体业务部总裁何庭波的专访文章《一直往前走，终归可以找到桥和路》。华为创始人任正非亲自为这篇转发文章撰写了名为《道可，道非，常道》的代序。 任正非在按语中明确表示，τ定律是华为唯一突围道路。华为为了逃生、活着、活下去、活得好，数万名员工 6 年来不断迭代，走出了一条已经成熟的道路。 他表示华为不是为了颠覆什么，只是找到了可选的一条路。在与高级社团交流时选择只阐述、不激辩。（来源：快科技）任正非最新定调！τ定律是华为唯一出路：不为颠覆什么、只为活下去
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [任正非为什么说「τ 定律是华为唯一出路」？](mai-du-huan-zhu.md)
-- [《下一个是谁》第七季（2）](ye-gong-hao-long.md)
-- [女装退货率达80% 责任不在消费者](lan-yu-chong-shu.md)
-- [中国女排0比3土耳其女排](zi-xiang-mao-dun.md)
+- [POV：当你突然独自拜访江浙沪男朋友的老爸1.0](mai-du-huan-zhu.md)
+- [报告：中国算力总规模世界第二](ye-gong-hao-long.md)
+- [八仙](lan-yu-chong-shu.md)
+- [印度和日本因高铁闹翻](zi-xiang-mao-dun.md)
 
 ## 站内推荐
 
 - [申遗成功见证千年瓷都新跨越](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [大哥拿爱心冰柜的水后补了两箱](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [晒眼皮能治近视？无效](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [马科斯为何突然说要“重置”中菲关系](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [谢贤遗嘱附带多项约束条款，若张柏芝改嫁或失去谢贤遗产代管资格，如何解读？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
 - [梨形身材，大腿小腿超级粗，真的特别想瘦，羡慕那些能穿衣自由的人 ，有没有瘦腿的方法？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [二年前买的二手房，现在房主说她放在地下室的东西被我扔了，我要负责，请问我有责任吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [三星折叠屏国行售价公布，你认为这一价格值得入手吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男生中考 699 分偷偷改志愿读中职，称「未来想当程序员，AI 时代也不怕」，如何看待这一升学选择？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
-- [一诺守约](http://www.movie.hkepx.cn/xiju/7685631.htm)
-- [闫闯回应退赛](http://www.movie.hkepx.cn/xiju/7504816.htm)
-- [【MAFG】MC动画：于是，我们的故事开始了......](http://www.movie.hkepx.cn/xiju/1803085.htm)
-- [上百斤重水泥柱被巨浪拍断冲上岸](http://www.daogukj.com/2496411)
-- [6分06秒结束比赛](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
+- [如何评价北大著名校友柳智宇评价同学王虹邓煜获得菲尔兹奖，祝贺两位校友，并不后悔自己上山出家离开数学？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
+- [2026首个台风红色预警](http://www.movie.hkepx.cn/xiju/7685631.htm)
+- [三名男子在山西运城盐湖湖边便溺](http://www.movie.hkepx.cn/xiju/7504816.htm)
+- [中国人能飞🚀🚀🚀](http://www.movie.hkepx.cn/xiju/1803085.htm)
+- [台湾民众大游行怒喊“下架民进党”](http://www.daogukj.com/2496411)
+- [女投资人五年前重仓长鑫](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
 - [景德镇用小写的c惊艳全球](http://www.movie.hkepx.cn/xiju/0683615.htm)
-- [进山捡到“蛇皮外套” 疑似眼镜王蛇](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
-- [山东一高速服务区设啤酒档口，工作人员称「已经过审批，卖两个月了」，如何看待这一档口设置？卖啤酒合理吗？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
-- [《三国第一部：争洛阳》上映 16 天官宣撤档，票房未破亿，问题出在哪？改档期会有效吗？](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
-- [鹿晗贵阳音乐节人气](http://www.daogukj.com/2645900)
+- [有药店店员不知新冠有特效药](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
+- [携程滥用市场支配地位实施垄断行为，被罚没 51.79 亿元，起到哪些警示作用？对相关行业有何影响？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
+- [【TF家族练习生】《突围II破局》EP05：你的位置，决定了你有多少选择（上）](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
+- [阿凡提扮演者吐依贡去世](http://www.daogukj.com/2645900)
 - [【纪录片】闪闪的儿科医生4 第9集 扎起，全技能就绪！](http://www.daogukj.com/7346575)
-- [二年前买的二手房，现在房主说她放在地下室的东西被我扔了，我要负责，请问我有责任吗？](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
+- [三星折叠屏国行售价公布，你认为这一价格值得入手吗？](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
 - [申遗成功见证千年瓷都新跨越](http://www.daogukj.com/8445802)
-- [广州将迎最强风雨时段](http://www.daogukj.com/4329793)
-- [这才是真正的民用机床](http://www.movie.hkepx.cn/movie/9626163.htm)
-- [香港一大厦脚手架被整幅吹倒](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
-- [c83 难听](http://www.daogukj.com/0966704)
-- [台风红霞实时路径](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
-- [大哥拿爱心冰柜的水后补了两箱](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
-- [任正非为什么说「τ 定律是华为唯一出路」？](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
-- [《功夫女足》现750元天价电影票](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
-- [直哉挑衅佐助 十尾空降涩谷](http://www.movie.hkepx.cn/movie/6145932.htm)
-- [携程滥用市场支配地位实施垄断行为，被罚没 51.79 亿元，起到哪些警示作用？对相关行业有何影响？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
-- [年轻人喜欢的Livehouse涨价了](http://www.daogukj.com/rlrpcfej/)
-- [博三女生没结婚问亲戚：谁笑话我妈了](http://www.movie.hkepx.cn/xiju/0327873.htm)
-- [阿凡提扮演者吐依贡去世](http://www.movie.hkepx.cn/xiju/2370310.htm)
-- [谢霆锋演唱会上对天空说谢谢你](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
-- [中方反制14家欧洲实体后欧盟还嘴硬](http://www.daogukj.com/1151497)
-- [黄灿灿370元做的丑美甲](http://www.movie.hkepx.cn/xiju/3375315.htm)
-- [央视解读携程巨额罚单](http://www.daogukj.com/mzvmtnbb/)
-- [《间谍过家家》里黄昏为什么没有察觉尤尔的真实身份？](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
-- [中国女排0比3土耳其女排](http://www.daogukj.com/oalgvxno/)
-- [山西洪洞黄土崩塌瞬间画面](http://www.daogukj.com/3022882)
-- [女投资人五年前重仓长鑫](http://www.daogukj.com/1257732)
-- [王楚钦梁靖崑双打1比2](http://www.daogukj.com/swfyejft/)
-- [被复旦临床八年制录取了，我应该争取转专业吗？](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
-- [我从地狱归来](http://www.movie.hkepx.cn/movie/5720053.htm)
-- [《下一个是谁》第七季（2）](http://www.movie.hkepx.cn/xiju/4451738.htm)
-- [爸爸带娃玩手机 孩子打翻烧水壶](http://www.movie.hkepx.cn/xiju/8030216.htm)
-- [中央气象台发布今年首个台风红警](http://www.daogukj.com/faxbfjmv/)
-- [数读我国农业农村经济稳中向好](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
-- [POV：当你突然独自拜访江浙沪男朋友的老爸1.0](http://www.movie.hkepx.cn/movie/4952543.htm)
-- [重庆出租车稳稳拦住滚落石球](http://www.movie.hkepx.cn/movie/3155966.htm)
-- [中国女排无缘决赛](http://www.movie.hkepx.cn/xiju/6207511.htm)
-- [三星折叠屏国行售价公布，你认为这一价格值得入手吗？](http://www.daogukj.com/4160220)
-- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
-- [印度和日本因高铁闹翻](http://www.movie.hkepx.cn/xiju/3921462.htm)
-- [心灵在2012年的一次播报，时隔14年落在了自己的身上，时间绕了一圈，完成了温暖的闭环。](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
-- [如何评价天蚕土豆新书《神通者》签约番茄？](http://www.daogukj.com/7980452)
+- [金特务](http://www.daogukj.com/4329793)
+- [市民扫货备战台风：蛋糕柜子都清空了](http://www.movie.hkepx.cn/movie/9626163.htm)
+- [电影《三国第一部：争洛阳》撤档](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
+- [携程因垄断行为被罚没51.79亿元](http://www.daogukj.com/0966704)
+- [中央气象台发布今年首个台风红色预警](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
+- [马科斯为何突然说要“重置”中菲关系](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
+- [POV：当你突然独自拜访江浙沪男朋友的老爸1.0](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
+- [台风红霞](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
+- [中央气象台发布今年首个台风红警](http://www.movie.hkepx.cn/movie/6145932.htm)
+- [为什么两广地区在计算机和数学领域出现了人才井喷?](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
+- [央视解读携程巨额罚单](http://www.daogukj.com/rlrpcfej/)
+- [卖脸给AI游本昌王祖贤1个好评1个挨骂](http://www.movie.hkepx.cn/xiju/0327873.htm)
+- [携程为何挨了最重的罚](http://www.movie.hkepx.cn/xiju/2370310.htm)
+- [如何看待郑州新东方暑期补课被查，要求清退学生？这波清查能有效打击学科培训机构吗？](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
+- [中国女排无缘决赛](http://www.daogukj.com/1151497)
+- [晒眼皮能治近视？无效](http://www.movie.hkepx.cn/xiju/3375315.htm)
+- [新冠疫情升至中流行水平 专家建议](http://www.daogukj.com/mzvmtnbb/)
+- [《最绝望の主持人》](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
+- [印度和日本因高铁闹翻](http://www.daogukj.com/oalgvxno/)
+- [儿子游戏成瘾 父亲起诉4家游戏公司](http://www.daogukj.com/3022882)
+- [美国女子吸毒精神错乱仰躺推车晃腿](http://www.daogukj.com/1257732)
+- [台风红霞已加强为强台风](http://www.daogukj.com/swfyejft/)
+- [《下一个是谁》第七季（2）](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
+- [《王八汤》（最后一期海龟汤作品）](http://www.movie.hkepx.cn/movie/5720053.htm)
+- [报告：中国算力总规模世界第二](http://www.movie.hkepx.cn/xiju/4451738.htm)
+- [马斯克：中国很有可能成AI领导者](http://www.movie.hkepx.cn/xiju/8030216.htm)
+- [高露洁多款“心机商标”被宣告无效](http://www.daogukj.com/faxbfjmv/)
+- [数字经济交出亮眼成绩单](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
+- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](http://www.movie.hkepx.cn/movie/4952543.htm)
+- [詹姆斯降薪 4875 万美元加盟后，费城的阵容如何调整才能避免球权冲突？球队有哪些隐患？](http://www.movie.hkepx.cn/movie/3155966.htm)
+- [A股下周会迎来更猛烈的震荡吗](http://www.movie.hkepx.cn/xiju/6207511.htm)
+- [男生中考 699 分偷偷改志愿读中职，称「未来想当程序员，AI 时代也不怕」，如何看待这一升学选择？](http://www.daogukj.com/4160220)
+- [《明日方舟》SideStory「直到大地变成一颗酸橙」活动先导PV](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
+- [有的药店店员不知道新冠有特效药](http://www.movie.hkepx.cn/xiju/3921462.htm)
+- [蛋定，我们会再见～](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
+- [穿凉鞋的人越来越少，洞洞鞋、勃肯鞋、溯溪鞋接班，为什么大家这样选？反映出哪些消费趋势？](http://www.daogukj.com/7980452)
 
 </details>
 
 ## 原始来源
 
-- [携程为何挨了最重的罚](https://www.toutiao.com/trending/7666344834122272282/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227666344834122272282%22%2C%22hot_board_impr_id%22%3A%2220260725225107CE5F59FA4CE6CDD3E957%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [任正非为什么说「τ 定律是华为唯一出路」？](https://www.zhihu.com/question/2063930109304594992)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1c37c0add6e5f397e620 -->
+<!-- content-fingerprint: a68a530ef23070bfdfdb -->
