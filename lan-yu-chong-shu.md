@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 港珠澳大桥恢复通行、通关
+# 仙逆
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6945111 · 更新：2026-07-26T15:20:23+08:00
+> 来源：微博热搜 · 排名：第 10 位 · 热度：422108 · 分类：动漫 · 更新：2026-07-26T19:47:46+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“港珠澳大桥恢复通行、通关”位列第 9 位，公开热度指标为 6945111。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“仙逆”位列第 10 位，公开热度指标为 422108，榜单分类为“动漫”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月26日，台风“红霞”对大桥区域影响已减弱，经粤港澳三地协商一致，港珠澳大桥定于当日12时40分恢复通行、通关。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `动漫`
 
 ## 相关热点
 
-- [詹姆斯团队曾主动联系尼克斯但被拒绝](zi-xiang-mao-dun.md)
-- [俄罗斯多地遭袭已致14死超30伤](bei-gong-she-ying.md)
-- [段正淳的情人个个被他辜负，为什么临死前没一个恨他？](jing-gong-zhi-niao.md)
-- [【MAFG】MC动画：于是，我们的故事开始了......](hu-jia-hu-wei.md)
+- [观众为何不能容忍长剧片头用AI](zi-xiang-mao-dun.md)
+- [台风「红霞」在广东惠州登陆，超越美莎克、巴威，成今年以来登陆我国的最强台风，影响多大？你那里情况如何？](bei-gong-she-ying.md)
+- [⚡️异 域 狗 叫 ⚡️](jing-gong-zhi-niao.md)
+- [第二代身份证会被消磁系谣言](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [浙大两大热门专业没录满](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [业主拒交2年物业费被起诉 法院判了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [被罚51.79亿 携程真的疼了吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [31省份上半年GDP公布 6省位次变了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [罗永浩痛批电视“长辈模式”难用](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [美国发生AI失控事故](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [港版金秘书为何这样路透](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [曝刘宇宁曾自称是87年的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [中国AI芯片国产替代率五年从10%升至40%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [大雨后印度惊现“天坑”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [台风过境 婴儿车带孩子被卷出几米远](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [台湾 致癌油](http://www.daogukj.com/axnomarx/)
-- [义乌又爆单了](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [王楚钦憋不住根本憋不住](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [台湾“致癌油”已查出8000吨](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [张柏芝一身黑衣现身机场](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [如何通俗地理解邓煜、王虹作为菲尔兹奖得主的核心研究成果？有怎样的价值？](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [狡猾的健身猪妖](http://www.daogukj.com/9955752)
-- [台风天收好这份安全指南](http://www.movie.hkepx.cn/movie/6160167.htm)
-- [奇怪的玩具工厂 第五章 Part1](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [A股重磅新规明起实施](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [特朗普下令暂停打击伊朗](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [香肠这东西到底是中国人自己发明的还是欧洲传过来的？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [APEC人工智能未来合作开启新路径](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [台风红霞超越巴威 系今年最强台风](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [最新！中国61项世界遗产全名单](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [女童接受基因编辑试验死亡 院方通报](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [16岁女生服刑期发现漏罪被判12年](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [日方拆解宇树机器人](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [澳大利亚国土面积世界第六，军力仅5.5万，为什么没人敢打？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [高通宣布 9 月起芯片涨价两位数百分比，将对手机市场产生哪些影响？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [伊称准备好应对可能的空袭或地面行动](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [詹姆斯发长文宣布加盟 76 人，如何评价他「生涯最后一段征程」的这一选择？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [31省份上半年GDP公布 6省位次变了](http://www.daogukj.com/2395514)
-- [哈萨克斯坦总统奉劝普京结束俄乌冲突](http://www.daogukj.com/6574038)
-- [昭和金曲《マジか！》Papi酱《生气了》日文版](http://www.daogukj.com/ajcuxydy/)
-- [容祖儿锐评自己早年绿色丝袜造型](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [罗永浩痛批电视“长辈模式”难用](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [爸妈笑了半小时才打完B超](http://www.daogukj.com/cfeqrkjc/)
-- [螃蟹挑战赛](http://www.daogukj.com/rkkegwyy/)
-- [业主拒交2年物业费被起诉 法院判了](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [段正淳的情人个个被他辜负，为什么临死前没一个恨他？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [台风致楼层晃动雨水似高压水枪射出](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [俄罗斯多地遭袭已致14死超30伤](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [POV：当你突然独自拜访江浙沪男朋友的老爸1.0](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [台风天2名工人被困高空 官方介入调查](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [地球online四大机制怪](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [我是律师，请用当事人的语气让我破防17.0](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [狮子被淹死园区老板进猛兽区前留遗言](http://www.daogukj.com/8099191)
-- [邹市明带“消磁”身份证去离婚是策略](http://www.daogukj.com/vrvcskzj/)
-- [直击台风“红霞”登陆后排险现场](http://www.daogukj.com/lbbxrvry/)
-- [年销2亿粒！从古代皇室黑金到日本“国民蕨饼”垄断超市夏季货架！](http://www.daogukj.com/9295095)
-- [付辛博追颖儿时一点不简单](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [平均每天减少22所小学](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [中餐厅张雅琪这个发型](http://www.daogukj.com/7435478)
-- [台风红霞减弱 预计明天凌晨进入湖南](http://www.daogukj.com/kwdurrnw/)
-- [躲在航天核心区捡垃圾的两人【三角洲动画】](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [《被裁掉的女孩》播放破2亿](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [被罚51.79亿 携程真的疼了吗](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [周星驰不再依赖迪丽热巴算长大吗](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [中国女排1-3意大利获第四名](http://www.daogukj.com/axnomarx/)
+- [甘肃渭源山洪已致10死](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [周星驰：李小龙是我的师傅](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [艾米净身高165](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [美国五大科技巨头 AI 隐性债务被曝达1.65万亿美元，四年内增长8倍，巨额表外负债会成为定时炸弹吗？](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [希望胖东来开到外省的举个手！](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [长鑫科技上市前夕记者探访](http://www.daogukj.com/9955752)
+- [神23乘组在轨已满60天](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [甘肃渭源突发山洪已致10人死亡](http://www.movie.hkepx.cn/xiju/3768366.htm)
+- [百花杀大结局](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [段永平称 10 年内大概率不会卖泡泡玛特？十年后的泡泡玛特会是什么样子？](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [见蛇不打三分罪？让我们来看看舟山眼镜蛇怎么说](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [四川丰谷vs北京一点心动](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [多家外媒：中国经济展现出较强韧性](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [决战晚自习](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [滞销西瓜被网红压价到一毛多一斤](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [业主拒交2年物业费被起诉 法院判了](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [人类的指甲在生活中看起来好像并没有什么实际的价值，为什么这么长时间也没有退化呢？](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [女子陪诊被医生看出异常 查出肿瘤](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [自己吓自己～](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [【时代少年团】「米爆探班日记」EP01](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [螃蟹挑战赛](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [中国AI芯片国产替代率五年从10%升至40%](http://www.daogukj.com/2395514)
+- [宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？](http://www.daogukj.com/6574038)
+- [王楚钦2比1黄旭男](http://www.daogukj.com/ajcuxydy/)
+- [十个勤天直播](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [大雨后印度惊现“天坑”](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [10艘万吨大驱“齐聚”亮相](http://www.daogukj.com/cfeqrkjc/)
+- [某演员高铁占座 铁路部门回应](http://www.daogukj.com/rkkegwyy/)
+- [港版金秘书为何这样路透](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [⚡️异 域 狗 叫 ⚡️](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [如何看待谷歌豪赌 AI ，自由现金流数十年来首次转负？](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [台风「红霞」在广东惠州登陆，超越美莎克、巴威，成今年以来登陆我国的最强台风，影响多大？你那里情况如何？](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [被游客掰断手腕的景区NPC再发声](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [女子偷准婆婆的支付密码 给自己转账](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [内蒙古200一晚客房大到卫生间能跑步](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [店主卖 7.9 元手机壳时标注「荣耀XX型号」被荣耀索赔 38 万元，如何从法律角度解读？](http://www.daogukj.com/8099191)
+- [《西游记》孙悟空为何从不找结拜兄弟镇元子帮忙？](http://www.daogukj.com/vrvcskzj/)
+- [如何看待数码博主极客湾最新一期的《续航大横评》？这会给国产手机厂商和市场带来什么样的影响？](http://www.daogukj.com/lbbxrvry/)
+- [奇瑞董事长：我们不再参加内卷](http://www.daogukj.com/9295095)
+- [张柏芝一身黑衣现身机场](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [日本称与俄谈重要问题 遭俄方打脸](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [台风致楼层晃动雨水似高压水枪射出](http://www.daogukj.com/7435478)
+- [传统武术为什么非常强调松，特别是内家拳？感觉所谓的松，更多的是心里暗示形式之松，如站桩，练拳？](http://www.daogukj.com/kwdurrnw/)
+- [张颂文和段奕宏跳着舞步上台颁奖](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [晚饭后最好的耗糖运动](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [曝刘宇宁曾自称是87年的](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [港珠澳大桥恢复通行、通关](https://www.baidu.com/s?wd=%E6%B8%AF%E7%8F%A0%E6%BE%B3%E5%A4%A7%E6%A1%A5%E6%81%A2%E5%A4%8D%E9%80%9A%E8%A1%8C%E3%80%81%E9%80%9A%E5%85%B3&sa=fyb_news&rsv_dl=fyb_news)
+- [仙逆](https://s.weibo.com/weibo?q=%E4%BB%99%E9%80%86)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a9e9dde66bb3b110e3cf -->
+<!-- content-fingerprint: f55b13f13dbc3feed558 -->
