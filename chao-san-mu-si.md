@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《薰衣草》小童演员王建隆在家中离世
+# 拿报废钻头锻造非洲战刀！《锻刀大赛》最阴间的钢材
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6760251 · 更新：2026-07-26T19:47:46+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：137543 · 分类：影视杂谈 · 更新：2026-07-26T23:45:08+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“《薰衣草》小童演员王建隆在家中离世”位列第 11 位，公开热度指标为 6760251。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“拿报废钻头锻造非洲战刀！《锻刀大赛》最阴间的钢材”位列第 11 位，公开热度指标为 137543，榜单分类为“影视杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月26日，《薰衣草》小童扮演者王建隆在家中离世，年仅43岁，当地警方已介入调查，他生前正在拍摄《百味人生》。
+来源公开摘要显示：拿来下饭应该不赶趟了 拿来哄睡吧~
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `影视杂谈`
 
 ## 相关热点
 
-- [曝刘宇宁曾自称是87年的](dui-niu-tan-qin.md)
-- [台媒：演员王建隆家中去世](mang-ren-mo-xiang.md)
-- [如何评价凡人修仙传导演王裕仁破防骂网友？](yuan-mu-qiu-yu.md)
-- [大庆赶海，大海退潮后发现大个的竹节蛏眼，撒上一点盐往外跑](sha-ji-qu-luan.md)
+- [很难想象这车是怎么开过来的](dui-niu-tan-qin.md)
+- [KPL](mang-ren-mo-xiang.md)
+- [美对伊空袭突然叫停有何考量](yuan-mu-qiu-yu.md)
+- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
-- [甘肃渭源突发山洪已致10人死亡](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [租房发现床上藏摄像头 偷拍者是房东](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [内蒙古200一晚客房大到卫生间能跑步](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [贩卖私密视频 百万粉丝女网红被捕](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [王楚钦2比1黄旭男](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [奇怪的玩具工厂 第五章 Part1](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [自己吓自己～](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [Tiny Giant (Remix) | Zenless Zone Zero](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [致富经：村民养殖大狗，发展狗叫经济](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [《明日方舟》EP - 酸橙色信笺](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [长鑫科技上市前夕记者探访](http://www.daogukj.com/4141941)
-- [「新宿决战」雨爱版](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [租房发现床上藏摄像头 偷拍者是房东](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [曝刘宇宁曾自称是87年的](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [传统武术为什么非常强调松，特别是内家拳？感觉所谓的松，更多的是心里暗示形式之松，如站桩，练拳？](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [美国五大科技巨头 AI 隐性债务被曝达1.65万亿美元，四年内增长8倍，巨额表外负债会成为定时炸弹吗？](http://www.daogukj.com/7265089)
-- [小孔摄像头藏进胸牌车钥匙](http://www.daogukj.com/3085948)
-- [演员王建隆去世](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [台媒：演员王建隆家中去世](http://www.daogukj.com/jtbnzsng/)
-- [中国61项世界遗产最新“全家福”](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [大庆赶海，大海退潮后发现大个的竹节蛏眼，撒上一点盐往外跑](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [31省份上半年GDP公布 6省位次变了](http://www.daogukj.com/5882217)
-- [油车不香了吗](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](http://www.daogukj.com/0190432)
-- [红霞持续北上 河南局地有龙卷可能](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [段永平称 10 年内大概率不会卖泡泡玛特？十年后的泡泡玛特会是什么样子？](http://www.daogukj.com/nzmqevzx/)
-- [如何评价凡人修仙传导演王裕仁破防骂网友？](http://www.daogukj.com/qnzjxpsz/)
-- [甘肃渭源山洪已致10死](http://www.daogukj.com/7347029)
-- [百花杀大结局](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [百万粉丝女网红贩卖私密视频被逮捕](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [甘肃一景区发生山洪致10死23伤](http://www.movie.hkepx.cn/xiju/8115054.htm)
-- [业主拒交2年物业费被起诉 法院判了](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [自己吓自己～](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [希望胖东来开到外省的举个手！](http://www.daogukj.com/2641155)
-- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [徐良演唱会让伴舞唱歌 自己在后面跳](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [“顶级智斗，胜负已分”【天堂的彼端-变速】【智斗の小曲】](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [王一博第三名](http://www.daogukj.com/3850819)
-- [多家外媒：中国经济展现出较强韧性](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [张柏芝一身黑衣现身机场](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [穿凉鞋的人越来越少，洞洞鞋、勃肯鞋、溯溪鞋接班，为什么大家这样选？反映出哪些消费趋势？](http://www.daogukj.com/9307696)
-- [《西游记》孙悟空为何从不找结拜兄弟镇元子帮忙？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [仙逆](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [《明日方舟》EP - 酸橙色信笺](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [16岁女生服刑期发现漏罪被判12年](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [观众为何不能容忍长剧片头用AI](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [港版金秘书为何这样路透](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [中国AI芯片国产替代率五年从10%升至40%](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [奇瑞董事长：我们不再参加内卷](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [周星驰：李小龙是我的师傅](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [十个勤天演唱会取消](http://www.daogukj.com/6360237)
-- [第二代身份证会被消磁系谣言](http://www.daogukj.com/7781714)
-- [王楚钦2比1黄旭男](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [台风致楼层晃动雨水似高压水枪射出](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [某演员高铁占座 铁路部门回应](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [美国“学校午餐”牛奶犹如史莱姆](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [艾米净身高165](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [【时代少年团】「米爆探班日记」EP01](http://www.movie.hkepx.cn/xiju/7034358.htm)
-- [胖东来回应售卖的西瓜上为何有圆圈](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [如果没有出现四大天王，香港乐坛能否敌得过台湾乐坛？](http://www.daogukj.com/nlksxqaw/)
+- [终于明白职场没有朋友的含义了](http://www.daogukj.com/4141941)
+- [《年会不能停 2！》开点映了，看过的都来说说，如何评价这部电影？](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [自己吓自己～](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [很难想象这车是怎么开过来的](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [女子正颌被做成鞋拔子脸 官方介入](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [甘肃一景区发生山洪致10死23伤](http://www.daogukj.com/7265089)
+- [暴涨5倍后 拼豆迎来国家级安全警示](http://www.daogukj.com/3085948)
+- [“上海一商业街发生命案”系谣言](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [KPL](http://www.daogukj.com/jtbnzsng/)
+- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [【独家】牧神记 第93集 弑帝](http://www.daogukj.com/5882217)
+- [川渝包揽全国高温榜前九](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [10艘万吨大驱“齐聚”亮相](http://www.daogukj.com/0190432)
+- [见蛇不打三分罪？让我们来看看舟山眼镜蛇怎么说](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [张柏芝一身黑衣现身机场](http://www.daogukj.com/nzmqevzx/)
+- [美对伊空袭突然叫停有何考量](http://www.daogukj.com/qnzjxpsz/)
+- [这些“双非”院校分数线超985](http://www.daogukj.com/7347029)
+- [龙卷风突袭 他3分钟失去父母和公司](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [长鑫科技员工：上市和我们没啥关系](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [百万粉丝女网红贩卖私密视频被逮捕](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [群星闪耀时撤档](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
+- [极氪回应跨境自驾遭远程锁车，上线「跨境守护」功能、优化安全功能，你觉得该调整怎样？能回应此前质疑吗？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？](http://www.daogukj.com/2641155)
+- [如何看待数码博主极客湾最新一期的《续航大横评》？这会给国产手机厂商和市场带来什么样的影响？](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [「新宿决战」雨爱版](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [如何评价章笛沙执导，黄渤、吴磊、高叶等主演的电影《群星闪耀时》？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [日本技术人员：中国螺丝拧着特别顺滑](http://www.daogukj.com/3850819)
+- [新产业跑出中国加速度](http://www.movie.hkepx.cn/xiju/8710542.htm)
+- [晚饭后最好的耗糖运动](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [35岁女子偷转准婆婆7000元获刑](http://www.daogukj.com/9307696)
+- [周星驰：中国功夫世界第一](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [奇瑞董事长：我们不再参加内卷](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [如何看待张煜东在训练场录音曝光后发布的澄清声明？](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [美素佳儿最新回应](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [长鑫上市 合肥能赚多少](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [滞销西瓜被网红压价到一毛多一斤](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [AI冲击短剧行业 “戏王”也扛不住了](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [护送迷路大爷回家，心里开心一整天~](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [鞠婧祎让粉丝进酒店看出妆](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [台湾新北4.8级地震 福建多地有震感](http://www.daogukj.com/6360237)
+- [别人说倒装句！广西人讲乱装句！这谁能听懂啊！😵](http://www.daogukj.com/7781714)
+- [《明日方舟》EP - 酸橙色信笺](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [不要长期向AI倾泻心事](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [【TF家族练习生】《突围II破局》EP05：你的位置，决定了你有多少选择（下）](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [迪丽热巴名字长还有这好处](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [海来阿木回应演唱会下跪争议](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [被交大临八录取了但不想学医，我该复读吗？](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [原来请假是不需要理由的](http://www.movie.hkepx.cn/xiju/0218818.htm)
+- [16岁女生服刑期发现漏罪被判12年](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [《薰衣草》小童演员王建隆在家中离世](https://www.baidu.com/s?wd=%E3%80%8A%E8%96%B0%E8%A1%A3%E8%8D%89%E3%80%8B%E5%B0%8F%E7%AB%A5%E6%BC%94%E5%91%98%E7%8E%8B%E5%BB%BA%E9%9A%86%E5%9C%A8%E5%AE%B6%E4%B8%AD%E7%A6%BB%E4%B8%96&sa=fyb_news&rsv_dl=fyb_news)
+- [拿报废钻头锻造非洲战刀！《锻刀大赛》最阴间的钢材](https://b23.tv/BV1Qug96wEky)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 954dc3d6598a54d027ca -->
+<!-- content-fingerprint: ddb6c7581652c6d781b0 -->
