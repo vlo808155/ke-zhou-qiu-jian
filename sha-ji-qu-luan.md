@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 极氪回应跨境自驾遭远程锁车，上线「跨境守护」功能、优化安全功能，你觉得该调整怎样？能回应此前质疑吗？
+# 「新宿决战」雨爱版
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：99 万热度 · 分类：问答 · 更新：2026-07-27T04:02:33+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：715216 · 分类：MAD·AMV · 更新：2026-07-27T07:40:06+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“极氪回应跨境自驾遭远程锁车，上线「跨境守护」功能、优化安全功能，你觉得该调整怎样？能回应此前质疑吗？”位列第 12 位，公开热度指标为 99 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“「新宿决战」雨爱版”位列第 12 位，公开热度指标为 715216，榜单分类为“MAD·AMV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：[图片]
+来源公开摘要显示：我坐好了
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `MAD·AMV`
 
 ## 相关热点
 
-- [【MAFG】MC动画：于是，我们的故事开始了......](yin-zhen-zhi-ke.md)
-- [长鑫科技员工：上市和我们没啥关系](ke-zhou-qiu-jian.md)
-- [亲密关系容易产生轻视](yan-er-dao-ling.md)
-- [新疆一游客坚持摸马被当场踢翻](nan-yuan-bei-zhe.md)
+- [昔日“数学天才”柳智宇谈邓煜获奖](yin-zhen-zhi-ke.md)
+- [九寨沟突发泥石流 大批游客滞留](ke-zhou-qiu-jian.md)
+- [不要长期向AI倾泻心事](yan-er-dao-ling.md)
+- [日本机器人格斗赛没开打就撞门跑路](nan-yuan-bei-zhe.md)
 
 ## 站内推荐
 
-- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [罗永浩炮轰智能电视「长辈模式」与「套娃收费」，为何能引发集体共鸣？这种过度商业化正在怎样影响电视行业？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [亚运短跑冠军体脂低于 10%，退役不到一年查出三高和脂肪肝，这是什么原因？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [LPL2026赛季第三赛段组内赛AL 1:2 BLG，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [邓煜获得了2026年菲尔兹奖，其研究成果与物理学之间有很强的关联性，他会获得诺贝尔物理学奖吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [为何《新三国》孙策（沙溢）那句「恭喜爹可以称帝了！」那么让人难绷？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [伊媒：一油轮在霍尔木兹海峡触雷爆炸](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [长鑫上市 合肥能赚多少](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [每次发完朋友圈都特别尴尬](http://www.movie.hkepx.cn/movie/8955570.htm)
-- [继《争洛阳》后《群星闪耀时》也官宣撤档，这个暑期档怎么一部部片子都跑了？](http://www.daogukj.com/krvvnboj/)
+- [又一女生称被gmm工作人员污蔑插队](http://www.movie.hkepx.cn/movie/8955570.htm)
+- [如何看待数码博主极客湾最新一期的《续航大横评》？这会给国产手机厂商和市场带来什么样的影响？](http://www.daogukj.com/krvvnboj/)
 - [奇瑞董事长：我们不再参加内卷](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
-- [新疆一游客坚持摸马被当场踢翻](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
-- [男子回乡奔丧途中遇害 嫌犯一审无罪](http://www.movie.hkepx.cn/movie/1401219.htm)
-- [如何评价章笛沙执导，黄渤、吴磊、高叶等主演的电影《群星闪耀时》？](http://www.movie.hkepx.cn/movie/1801460.htm)
-- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
-- [九寨沟突发泥石流 大批游客滞留](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
-- [⚡️异 域 狗 叫 ⚡️](http://www.movie.hkepx.cn/xiju/0216852.htm)
-- [cp福州](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
-- [甘肃省委书记和省长赶赴山洪现场](http://www.daogukj.com/3303781)
-- [甘肃渭源一景区山洪已致 10 人遇难，23 人受伤，现场情况如何？哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
-- [台媒：演员王建隆家中去世](http://www.movie.hkepx.cn/movie/5835677.htm)
-- [演员王建隆去世](http://www.daogukj.com/6841256)
-- [古代没冰箱，肉怎么保存？](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
+- [日本机器人格斗赛没开打就撞门跑路](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
+- [一口气看懂王虹获菲尔兹奖：挂谷猜想到底有多难？](http://www.movie.hkepx.cn/movie/1401219.htm)
+- [亚运短跑冠军体脂低于 10%，退役不到一年查出三高和脂肪肝，这是什么原因？](http://www.movie.hkepx.cn/movie/1801460.htm)
+- [邓煜获得了2026年菲尔兹奖，其研究成果与物理学之间有很强的关联性，他会获得诺贝尔物理学奖吗？](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
+- [电影《群星闪耀时》突然宣布撤档](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
+- [亲密关系容易产生轻视](http://www.movie.hkepx.cn/xiju/0216852.htm)
+- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
+- [俄乌迟迟不停战在等什么](http://www.daogukj.com/3303781)
+- [甘肃渭源一景区山洪已致10人遇难，23人受伤，现场已完成四轮搜救，目前情况如何？哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
+- [甘肃山洪情侣被冲走 所幸被货车拦住](http://www.movie.hkepx.cn/movie/5835677.htm)
+- [年销2亿粒！从古代皇室黑金到日本“国民蕨饼”垄断超市夏季货架！](http://www.daogukj.com/6841256)
+- [自己吓自己～](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
 - [龙卷风突袭 他3分钟失去父母和公司](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
-- [“顶级智斗，胜负已分”【天堂的彼端-变速】【智斗の小曲】](http://www.daogukj.com/8289580)
-- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](http://www.daogukj.com/ketbkhri/)
-- [电影功夫女足](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
-- [不要长期向AI倾泻心事](http://www.movie.hkepx.cn/movie/9768501.htm)
-- [暴涨5倍后 拼豆迎来国家级安全警示](http://www.movie.hkepx.cn/xiju/6011810.htm)
-- [日本机器人格斗赛没开打就撞门跑路](http://www.movie.hkepx.cn/xiju/6600784.htm)
-- [LPL2026赛季第三赛段组内赛AL 1:2 BLG，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/0855885.htm)
-- [邓煜获得了2026年菲尔兹奖，其研究成果与物理学之间有很强的关联性，他会获得诺贝尔物理学奖吗？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
-- [山东一高中多名新生身高超1米85](http://www.daogukj.com/vnsrnwfs/)
-- [百万粉丝女网红贩卖私密视频被逮捕](http://www.movie.hkepx.cn/movie/9967199.htm)
-- [段永平称 10 年内大概率不会卖泡泡玛特？十年后的泡泡玛特会是什么样子？](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
-- [申论素材加一](http://www.movie.hkepx.cn/movie/6293448.htm)
-- [群星闪耀时撤档](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
-- [张柏芝一身黑衣现身机场](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
+- [生物军团vs泰坦傀儡！](http://www.daogukj.com/8289580)
+- [伊媒：一油轮在霍尔木兹海峡触雷爆炸](http://www.daogukj.com/ketbkhri/)
+- [多部电影撤出暑期档](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
+- [杭州已经发展成这样了吗](http://www.movie.hkepx.cn/movie/9768501.htm)
+- [重庆山体崩塌救援发现中巴车残骸](http://www.movie.hkepx.cn/xiju/6011810.htm)
+- [AI短剧《被裁掉的女孩》播放破2亿](http://www.movie.hkepx.cn/xiju/6600784.htm)
+- [长鑫上市 合肥能赚多少](http://www.movie.hkepx.cn/xiju/0855885.htm)
+- [罗永浩炮轰智能电视「长辈模式」与「套娃收费」，为何能引发集体共鸣？这种过度商业化正在怎样影响电视行业？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
+- [女子手臂被烫伤用水冲了4小时](http://www.daogukj.com/vnsrnwfs/)
+- [红霞成为本世纪登陆广东最强初台](http://www.movie.hkepx.cn/movie/9967199.htm)
+- [国家发的电用不完的，国家电网会储存起来吗，还是浪费了？](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
+- [电影功夫女足](http://www.movie.hkepx.cn/movie/6293448.htm)
+- [甘肃渭源山洪](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
+- [上海德比赛后4名球迷打架 警方通报](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
 - [除了中式清凉 欧洲游客还看中很多](http://www.play.hengshemaoyi.cn/xiju/0952353.htm)
-- [宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？](http://www.movie.hkepx.cn/movie/5654110.htm)
+- [AI冲击短剧行业 “戏王”也扛不住了](http://www.movie.hkepx.cn/movie/5654110.htm)
 - [今年消费品以旧换新销售额超万亿元](http://www.play.hengshemaoyi.cn/kongbu/6410086.htm)
-- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.daogukj.com/8061636)
+- [奇怪的玩具工厂 第五章 Part1](http://www.daogukj.com/8061636)
 - [原来请假是不需要理由的](http://www.movie.hkepx.cn/xiju/3678798.htm)
 - [《明日方舟》EP - 酸橙色信笺](http://www.daogukj.com/4240143)
-- [和人最舒服的相处方式](http://www.movie.hkepx.cn/xiju/6821618.htm)
-- [2.5万件物资支持粤赣湘台风救灾](http://www.movie.hkepx.cn/xiju/6143707.htm)
-- [螃蟹挑战赛](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
-- [终于明白职场没有朋友的含义了](http://www.daogukj.com/ipksuuvb/)
-- [甘肃山洪救援人员：30多辆车冲成一堆](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
-- [年销2亿粒！从古代皇室黑金到日本“国民蕨饼”垄断超市夏季货架！](http://www.movie.hkepx.cn/xiju/1798043.htm)
-- [年客流1800万的顶流IP为何不赚钱](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
-- [迪丽热巴名字长还有这好处](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
-- [AI冲击短剧行业 “戏王”也扛不住了](http://www.movie.hkepx.cn/xiju/0765053.htm)
+- [如果没有出现四大天王，香港乐坛能否敌得过台湾乐坛？](http://www.movie.hkepx.cn/xiju/6821618.htm)
+- [暑假博物馆热度拉满](http://www.movie.hkepx.cn/xiju/6143707.htm)
+- [当年国内最火的特摄！是多少人心中整整30年的白月光？](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
+- [昆凌是昆凌的姓](http://www.daogukj.com/ipksuuvb/)
+- [胖东来回应售卖的西瓜上有圆圈](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
+- [Hope闪现骗过导播](http://www.movie.hkepx.cn/xiju/1798043.htm)
+- [男子回乡奔丧途中遇害 嫌犯一审无罪](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
+- [甘肃一景区发生山洪致10死23伤](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
+- [甘肃山洪救援人员：30多辆车冲成一堆](http://www.movie.hkepx.cn/xiju/0765053.htm)
 - [【独家】牧神记 第93集 弑帝](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
-- [济南突降暴雨 积水深到大腿](http://www.movie.hkepx.cn/xiju/3626228.htm)
-- [你认为米哈游的核心竞争力，除了技术与美术，更深层次的原因是什么？](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
-- [第二代身份证会被消磁？谣言](http://www.movie.hkepx.cn/xiju/4004417.htm)
-- [伊媒：一油轮在霍尔木兹海峡触雷爆炸](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
+- [九寨沟景区通报泥石流致游客滞留](http://www.movie.hkepx.cn/xiju/3626228.htm)
+- [年客流1800万的顶流IP为何不赚钱](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
+- [张柏芝接机大儿子谢振轩](http://www.movie.hkepx.cn/xiju/4004417.htm)
+- [新冠疫情升至中流行水平](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
 
 </details>
 
 ## 原始来源
 
-- [极氪回应跨境自驾遭远程锁车，上线「跨境守护」功能、优化安全功能，你觉得该调整怎样？能回应此前质疑吗？](https://www.zhihu.com/question/2064748461803529879)
+- [「新宿决战」雨爱版](https://b23.tv/BV1QC3G6DEKX)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 15d84f735b9c2c0cbf3d -->
+<!-- content-fingerprint: affc94824457ad21e04c -->
