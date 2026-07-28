@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 越南为何感谢中方？菲律宾最好听听
+# 幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？
 
-> 来源：今日头条热榜 · 排名：第 9 位 · 热度：11637070 · 更新：2026-07-28T05:52:45+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：283 万热度 · 分类：问答 · 更新：2026-07-28T15:47:37+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“越南为何感谢中方？菲律宾最好听听”位列第 9 位，公开热度指标为 11637070。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？”位列第 9 位，公开热度指标为 283 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：7 月 25 日，珠海发生一起新生儿产检漏诊事件。家属反映孩子在产检过程中各项检查均显示正常一路“绿灯”，但出生后却发现双脚严重畸形。家属痛心质问：是医生资质不够还是B超根本没仔细看？目前，涉事医院产科方面暂未给出具体回应，院方坚持认为该情况属于医学盲区，难以在产检中完全规避，因此主张无责任。 花了1万多产检一路“绿灯”，宝宝出生后双脚却严重畸形，医院回应_腾讯新闻
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [Anthropic 刚招了研究王阳明的哲学教授，你觉得其他 AI公司会跟进吗？](mai-du-huan-zhu.md)
-- [大庆赶海，大海退潮后发现大个的竹节蛏眼，撒上一点盐往外跑](ye-gong-hao-long.md)
-- [值班人员长时间离岗 被巡查组抓现行](lan-yu-chong-shu.md)
-- [肠癌很多人发现就是中晚期](zi-xiang-mao-dun.md)
+- [一个人清理海浪冲上来的垃圾有人夸吗](mai-du-huan-zhu.md)
+- [女子种出二三十万斤玉米后懵圈了](ye-gong-hao-long.md)
+- [小米展出澎程6万公里路测车](lan-yu-chong-shu.md)
+- [年轻人为何对王虹产生强烈共鸣](zi-xiang-mao-dun.md)
 
 ## 站内推荐
 
-- [展望“十五五”时期残疾人事业新局面](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [台风后女子海滩捡上百斤金鲳鱼](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [网传“西藏千年古碉遭强拆”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [张柏芝家里墙上都是三个儿子的照片](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [全世界都在ALL in AI ，AI真的是第四次工业革命吗？人类的科技树是否点错了？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [中国新新三样全球圈粉](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [鸿门宴上樊哙生吃了一个彘肩（猪前腿），为何没有感染细菌寄生虫等？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [小米 MiMo-V2.5 升至全球大模型调用量第一，这背后反映了哪些趋势和挑战？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [如何评价《绝区零》蕾米埃尔EP | Two to Tango 交缠舞步？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [中国罕见“拉黑”一所波兰大学](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [美国校园午餐被曝牛奶黏稠似史莱姆、胡萝卜可被磁铁吸起，可能有什么「科技狠活」？对健康有伤害吗？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
-- [徐正溪赵今麦好有药味的父女线](http://www.movie.hkepx.cn/xiju/7685631.htm)
-- [15个不成熟父母的特征](http://www.movie.hkepx.cn/xiju/7504816.htm)
-- [电影《年会不能停 2！》点映后口碑如何，它有哪些看点值得期待？](http://www.movie.hkepx.cn/xiju/1803085.htm)
-- [敬一丹公众号疑似辟谣脑溢血传闻](http://www.daogukj.com/2496411)
-- [第一次对内蒙的地广人稀有了实感](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
-- [中国入境游何以“圈粉”世界](http://www.movie.hkepx.cn/xiju/0683615.htm)
-- [饭店老板撞脸马斯克爆火](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
-- [湖南被安徽反超跌出全国前十以及江西超越陕西两件事同时发生。逐步落后又被步步紧逼，湖南应该怎么发展？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
-- [长鑫科技上市首日高开 471%，市值突破 3 万亿，成 A 股新「一哥」，如何看待其表现？](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
-- [各个行业被AI取代的概率](http://www.daogukj.com/2645900)
-- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.daogukj.com/7346575)
-- [全世界都在ALL in AI ，AI真的是第四次工业革命吗？人类的科技树是否点错了？](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
-- [展望“十五五”时期残疾人事业新局面](http://www.daogukj.com/8445802)
-- [860元一晚酒店半夜关空调](http://www.daogukj.com/4329793)
-- [《电话簿是你的谎言》](http://www.movie.hkepx.cn/movie/9626163.htm)
-- [老人一个月内被骗光600万积蓄](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
-- [20岁女孩从18楼坠落奇迹生还](http://www.daogukj.com/0966704)
-- [女孩和男友吵架闹分手从18层坠楼](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
-- [台风后女子海滩捡上百斤金鲳鱼](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
-- [Anthropic 刚招了研究王阳明的哲学教授，你觉得其他 AI公司会跟进吗？](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
-- [越来越多中国人不去日本旅游](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
-- [哈吉蜂为了救克莱尔居然掏出了......](http://www.movie.hkepx.cn/movie/6145932.htm)
-- [如何看待世界杯决赛执法阿根廷对西班牙的主裁判温契奇宣布退役？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
-- [生物军团vs泰坦傀儡！](http://www.daogukj.com/rlrpcfej/)
-- [黄金剑魔vs王者蒙多！这个对局到底多难打？#真金白银vs最强王者](http://www.movie.hkepx.cn/xiju/0327873.htm)
-- [逐玉配角第一个飞升的是李卿](http://www.movie.hkepx.cn/xiju/2370310.htm)
-- [那英吐槽冉莹颖败家](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
-- [比跑步更护心的运动找到了](http://www.daogukj.com/1151497)
-- [阿里押注长鑫76亿搏出近1700亿](http://www.movie.hkepx.cn/xiju/3375315.htm)
-- [人类幼崽开机使用说明书](http://www.daogukj.com/mzvmtnbb/)
-- [五大联赛现在最弱的是哪个，是意甲还是法甲？](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
-- [肠癌很多人发现就是中晚期](http://www.daogukj.com/oalgvxno/)
-- [酒店夜晚关空调 消费者被热醒](http://www.daogukj.com/3022882)
-- [34岁货车司机服务区去世后被发现](http://www.daogukj.com/1257732)
-- [美股](http://www.daogukj.com/swfyejft/)
-- [某博主制作知了猴馅水饺，结果知了猴集体出逃、活蹦乱跳，如何看待这一烹饪做法？你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
-- [耐克终止线上合作后，滔搏被曝暴力打折甩卖库存，如何解读此现象？](http://www.movie.hkepx.cn/movie/5720053.htm)
-- [大庆赶海，大海退潮后发现大个的竹节蛏眼，撒上一点盐往外跑](http://www.movie.hkepx.cn/xiju/4451738.htm)
-- [敬一丹公众号疑似辟谣去世传闻](http://www.movie.hkepx.cn/xiju/8030216.htm)
-- [被袁志平《目瑙纵歌》刀舞硬控了](http://www.daogukj.com/faxbfjmv/)
-- [数说中国硬核经济亮点](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
-- [奇怪的玩具工厂 第五章 Part1](http://www.movie.hkepx.cn/movie/4952543.htm)
-- [女副部张世平被开除党籍：大肆敛财](http://www.movie.hkepx.cn/movie/3155966.htm)
-- [朝鲜若向俄派遣3万援军有何影响](http://www.movie.hkepx.cn/xiju/6207511.htm)
-- [长鑫科技上市 哪些城市是赢家](http://www.daogukj.com/4160220)
-- [敢想敢不同](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
-- [专家：14nm凭什么等效4nm](http://www.movie.hkepx.cn/xiju/3921462.htm)
+- [携程被罚 51.79 亿元后发内部全员信，透露出哪些信息？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
+- [C罗无世界杯冠军遭航空公司嘲讽](http://www.movie.hkepx.cn/xiju/7685631.htm)
+- [女孩正颌后成“鞋拔子脸” 医生停诊](http://www.movie.hkepx.cn/xiju/7504816.htm)
+- [冰岛发生5.3级地震](http://www.movie.hkepx.cn/xiju/1803085.htm)
+- [尹锡悦当选韩国总统或无效](http://www.daogukj.com/2496411)
+- [网红景区10人遇难 3次预警为何失效](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
+- [多元夜游激发文旅活力](http://www.movie.hkepx.cn/xiju/0683615.htm)
+- [管乐加黄灿灿微信秀美甲](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
+- [如何评价KIMI K3正式开源，以及同步发布出技术报告？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
+- [没一点想看的欲望？胆量不详？笑料一筐！周笔畅满身大汉？笑到没空害怕《密室大逃脱8》](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
+- [纽约中央公园“出轨门”男女身份确认](http://www.daogukj.com/2645900)
+- [携程被罚后内部全员信曝光](http://www.daogukj.com/7346575)
+- [中国罕见“拉黑”一所波兰大学](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
+- [中国新新三样全球圈粉](http://www.daogukj.com/8445802)
+- [生殖隔离锁死所有物种，为何唯独放过了人类？](http://www.daogukj.com/4329793)
+- [寿司郎正在成为十年前的海底捞](http://www.movie.hkepx.cn/movie/9626163.htm)
+- [168一盒的巧克力，我没给孩子买她没哭，回家后我一直在想如果她哭了，我会不会就买了，到底该不该给她买？](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
+- [日本记者体验小鹏汽车自动驾驶](http://www.daogukj.com/0966704)
+- [六部门：禁止涉军队退役报废装备销售](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
+- [鸿门宴上樊哙生吃了一个彘肩（猪前腿），为何没有感染细菌寄生虫等？](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
+- [一个人清理海浪冲上来的垃圾有人夸吗](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
+- [青海地震](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
+- [《功夫女足》总票房突破20亿](http://www.movie.hkepx.cn/movie/6145932.htm)
+- [王虹、邓煜的成长经历是否动摇了「是金子在哪都能发光」的说法？顶尖科研人才的成长需要怎样的土壤？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
+- [买大路灯护眼 孩子视力1年涨200度](http://www.daogukj.com/rlrpcfej/)
+- [英伟达微软反对禁止中国开源AI](http://www.movie.hkepx.cn/xiju/0327873.htm)
+- [老人一个月内被骗近600万](http://www.movie.hkepx.cn/xiju/2370310.htm)
+- [古天乐坚持十年每天只吃一顿饭，这种饮食习惯是否健康？](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
+- [美通缉重犯被曝在华东师范大学任教十余年，这一事件暴露出高校在教师管理上的哪些短板和漏洞？](http://www.daogukj.com/1151497)
+- [佛得角门将签约泪洒现场？图是AI的](http://www.movie.hkepx.cn/xiju/3375315.htm)
+- [女孩正颌手术被做反 当事医生已停诊](http://www.daogukj.com/mzvmtnbb/)
+- [还记得“卖茶女”的诈骗套路吗？当“深圳网警”遇到“恋爱脑”，深情难抵骗局真相！](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
+- [年轻人为何对王虹产生强烈共鸣](http://www.daogukj.com/oalgvxno/)
+- [敬一丹公众号疑似辟谣脑溢血传闻](http://www.daogukj.com/3022882)
+- [越南为何感谢中方？菲律宾最好听听](http://www.daogukj.com/1257732)
+- [地震50年后突然搜到已故父亲名字](http://www.daogukj.com/swfyejft/)
+- [坚守者 vs 各种傀儡！](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
+- [来杯好酒摇一摇](http://www.movie.hkepx.cn/movie/5720053.htm)
+- [女子种出二三十万斤玉米后懵圈了](http://www.movie.hkepx.cn/xiju/4451738.htm)
+- [长鑫科技股价暴涨、上市创 A 股多项纪录，它为什么能这么火？这轮上涨到底能走多远？](http://www.movie.hkepx.cn/xiju/8030216.htm)
+- [网红书记带货知了猴被指破坏生态](http://www.daogukj.com/faxbfjmv/)
+- [请查收这份家庭防汛防灾应急包](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
+- [创业板指跌超7% 算力硬件股全线下挫](http://www.movie.hkepx.cn/movie/4952543.htm)
+- [阿里押注长鑫 76 亿搏出近 1700 亿，小米雷军打新长鑫浮盈 7 亿，背后是怎样的投资逻辑？](http://www.movie.hkepx.cn/movie/3155966.htm)
+- [合肥一天赚了一年GDP](http://www.movie.hkepx.cn/xiju/6207511.htm)
+- [这 一 钓 会 很 帅](http://www.daogukj.com/4160220)
+- [《鸣潮》共鸣者「穗穗」PV | 重明](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
+- [全新开箱！我居然买到了德军的HK G28精确射手步枪？](http://www.movie.hkepx.cn/xiju/3921462.htm)
 - [【剧情】昭阳公主（2026）08 【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
-- [“听泉赏宝”宣布彻底告别股市](http://www.daogukj.com/7980452)
+- [奇怪的玩具工厂 第五章 Part1](http://www.daogukj.com/7980452)
 
 </details>
 
 ## 原始来源
 
-- [越南为何感谢中方？菲律宾最好听听](https://www.toutiao.com/trending/7666377405216591414/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227666377405216591414%22%2C%22hot_board_impr_id%22%3A%2220260728055244D481D83C457E0926F647%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？](https://www.zhihu.com/question/2064636039679795644)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ca8393f1b191b5564172 -->
+<!-- content-fingerprint: 5c444b731c6f8a177283 -->
