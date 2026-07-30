@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# SK海力士跌超 17%，创最大跌幅纪录，AI 芯片投资热潮下，芯片巨头海力士股价为啥崩了？
+# 黑鲨官宣全面停止手机官方售后，其巅峰时期占据游戏手机 47% 市场份额，游戏手机是不是阶段性伪需求？
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：140 万热度 · 分类：问答 · 更新：2026-07-31T04:22:51+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：104 万热度 · 分类：问答 · 更新：2026-07-31T07:46:37+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“SK海力士跌超 17%，创最大跌幅纪录，AI 芯片投资热潮下，芯片巨头海力士股价为啥崩了？”位列第 9 位，公开热度指标为 140 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“黑鲨官宣全面停止手机官方售后，其巅峰时期占据游戏手机 47% 市场份额，游戏手机是不是阶段性伪需求？”位列第 9 位，公开热度指标为 104 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：【SK海力士跌逾17% 创纪录最大跌幅】财联社7月29日电，韩国KOSPI指数跌幅扩大至11%报5357.11点。SK海力士跌逾17%，创纪录最大跌幅，较6月历史高点累计下跌57%，市值跌破6300亿美元。SK海力士跌逾17% 创纪录最大跌幅
+来源公开摘要显示：近日，黑鲨手机官方账号“黑鲨希瑞”在社交平台发布公告，正式宣布即日起停止手机品类的官方售后维修及相关服务。这则公告迅速在手机爱好者中引发讨论。 据南方都市报报道，目前黑鲨全渠道的手机售后通道已经基本处于半关闭状态：黑鲨官网的寄修服务页面点击“前往黑鲨商城”后直接显示网站连接超时，小米商城、小米有品平台早已全面下架黑鲨全系手机产品，黑鲨京东自营官方旗舰店的客服明确告知记者，目前店铺仅在售散热背夹、游戏耳机、移动电源等外设产品，不再销售任何手机品类，针对存量手机的维修需求，用户只能提供原始订单号和机型信息，登记后等待手机业务专员的后续联系，无法再享受此前的上
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [手绘469张！还原EVA主题曲](mai-du-huan-zhu.md)
-- [吴宜泽6比5墨菲晋级半决赛](ye-gong-hao-long.md)
-- [浪7结束了但没完全结束](lan-yu-chong-shu.md)
-- [歼15试飞遇险距甲板边缘5米刹停](zi-xiang-mao-dun.md)
+- [孩子们，出了社会可没人惯着你](mai-du-huan-zhu.md)
+- [60岁男子坚持广州深圳往返通勤14年](ye-gong-hao-long.md)
+- [曝BLG联系不到Bin](lan-yu-chong-shu.md)
+- [小米澎程N90 Max预售价29.99万元](zi-xiang-mao-dun.md)
 
 ## 站内推荐
 
-- [媒体称三大运营商将于 7 月 31 日前全面取消网络代理渠道，释放了哪些行业信号？对消费者有什么影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [猫要是一辈子只呆在家里会不会很可悲？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [兰州一高校录取通知书上「身份证」印成「身证份」，为什么会出现这么明显的错误？会影响新生对学校的观感吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [保姆拐走婴儿 35 年为何仅获刑三年？这一判决是不是太轻了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
 - [2026乒超联赛王楚钦/周启豪1-2林诗栋/赵钊彦，如何评价这场比赛？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [良子爬峨眉山晕倒，担架抬下山，路线还原，最后有好消息！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [当小白体育生第一次跑速耐](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [21岁小伙60万彩礼娶00后女生，2个月后就被女生杀害，死因竟是小伙太过讨好！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何评价小米澎程 N90 Max 预售价29.99万元、N70 Max 预售价25.99万元？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
-- [小米澎程N90 Max预售价29.99万元](http://www.movie.hkepx.cn/xiju/7685631.htm)
-- [国防部回应解放军打造台湾建筑模型](http://www.movie.hkepx.cn/xiju/7504816.htm)
+- [彭水山体崩塌的 00 后网格员龚宝冬遗骸被找到，因组织群众转移未及时撤离遇难，他的行为让你有哪些感触？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
+- [解放军两次警告日方不能自称海军](http://www.movie.hkepx.cn/xiju/7685631.htm)
+- [男孩骑羊骑出了汗血宝马的感觉](http://www.movie.hkepx.cn/xiju/7504816.htm)
 - [《蜘蛛侠：崭新之日》好看吗](http://www.movie.hkepx.cn/xiju/1803085.htm)
-- [如何看待爆火的莫氏鸡煲参加《一饭封神 2》首轮被淘汰？新荣记创始人称「技术含量不高」，这个评价在理吗？](http://www.daogukj.com/2496411)
-- [如何看待《年会不能停2！》点映排片已经被《蜘蛛侠》《八仙！》等影片压制到不足 0.1%，会选择撤档吗？](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
+- [SK海力士跌超 17%，创最大跌幅纪录，AI 芯片投资热潮下，芯片巨头海力士股价为啥崩了？](http://www.daogukj.com/2496411)
+- [媒体称三大运营商将于 7 月 31 日前全面取消网络代理渠道，释放了哪些行业信号？对消费者有什么影响？](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
 - [一组数据读懂我国能源转型新趋势](http://www.movie.hkepx.cn/xiju/0683615.htm)
-- [长沙天马德馨园7-0中国足球小将蓝队](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
+- [陈珮骐哽咽聊王凯](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
 - [【独家】《将夜》第16集 永字八法【4月国创】](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
-- [别对着陌生人的手机念数字](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
-- [孙继海和董路所带领的少年足球队相互交手的结果说明了什么？](http://www.daogukj.com/2645900)
-- [日本广岛现新物质 系原子弹爆炸形成](http://www.daogukj.com/7346575)
-- [当小白体育生第一次跑速耐](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
-- [媒体称三大运营商将于 7 月 31 日前全面取消网络代理渠道，释放了哪些行业信号？对消费者有什么影响？](http://www.daogukj.com/8445802)
-- [记者用两个非常惨烈形容日本震后现场](http://www.daogukj.com/4329793)
-- [多囊卵巢综合征为什么要更名](http://www.movie.hkepx.cn/movie/9626163.htm)
-- [如何看待 2026 年 7 月 29 日《蜘蛛侠：崭新之日》预测票房大幅下降至 15.6 亿人民币？](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
-- [杨振宁遗孀翁帆赴新疆喀什看望老兵](http://www.daogukj.com/0966704)
-- [基金已经在抄底了](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
-- [猫要是一辈子只呆在家里会不会很可悲？](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
-- [手绘469张！还原EVA主题曲](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
-- [小米澎程N90价格](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
-- [洪水中锁死狮子该不该](http://www.movie.hkepx.cn/movie/6145932.htm)
+- [微软创近18年以来最大单日涨幅](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
+- [为什么周星驰的声誉突然好了？](http://www.daogukj.com/2645900)
+- [曾被视为“冷门”的学科缘何备受追捧](http://www.daogukj.com/7346575)
+- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
+- [兰州一高校录取通知书上「身份证」印成「身证份」，为什么会出现这么明显的错误？会影响新生对学校的观感吗？](http://www.daogukj.com/8445802)
+- [雷军：澎程从北京到上海无需补能](http://www.daogukj.com/4329793)
+- [中际旭创股东减持公告](http://www.movie.hkepx.cn/movie/9626163.htm)
+- [deepseek能否用来翻译书？](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
+- [日本震后老年人睡地板民众哭喊怕余震](http://www.daogukj.com/0966704)
+- [解放军喊话菲军机不要抵近否则遭拦截](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
+- [保姆拐走婴儿 35 年为何仅获刑三年？这一判决是不是太轻了？](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
+- [孩子们，出了社会可没人惯着你](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
+- [丈夫和第三者胚胎是婚姻耻辱](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
+- [刘耀文瘦成这样](http://www.movie.hkepx.cn/movie/6145932.htm)
 - [小米澎程技术发布会上发布了什么值得关注的新技术？有哪些亮点？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
-- [日元](http://www.daogukj.com/rlrpcfej/)
-- [小米澎程N70](http://www.movie.hkepx.cn/xiju/0327873.htm)
-- [1.5万机票退票仅退432元，曝光后获全额退款，问题出在哪？这次胜利能否撬动天价退票费规则？](http://www.movie.hkepx.cn/xiju/2370310.htm)
-- [《非霸凌不可吗》](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
-- [孙悟空被火焰山切糕烫到，是不是意味着，这只猴子没有金钢之躯？](http://www.daogukj.com/1151497)
+- [医生称多囊卵巢综合征名字害惨女性](http://www.daogukj.com/rlrpcfej/)
+- [你甚至可以看到植物打人](http://www.movie.hkepx.cn/xiju/0327873.htm)
+- [孙继海和董路所带领的少年足球队相互交手的结果说明了什么？](http://www.movie.hkepx.cn/xiju/2370310.htm)
+- [【花小烙】游隼：地球上俯冲速度最快的“鸟中战斗机”是如何炼成的？](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
+- [入伏以来多名市民赤裸上身去公园「晒背」，是个人自由还是不文明行为？对身体健康有什么好处吗？](http://www.daogukj.com/1151497)
 - [“河南南阳楼房被冲进河中”不实](http://www.movie.hkepx.cn/xiju/3375315.htm)
-- [白玉兰自己也在回味](http://www.daogukj.com/mzvmtnbb/)
-- [何立峰与美财长贝森特举行视频通话](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
-- [歼15试飞遇险距甲板边缘5米刹停](http://www.daogukj.com/oalgvxno/)
+- [宋威龙 热巴姐你好像提前放扇子了](http://www.daogukj.com/mzvmtnbb/)
+- [日本“国家情报局”正式设立](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
+- [小米澎程N90 Max预售价29.99万元](http://www.daogukj.com/oalgvxno/)
 - [吵架后从18楼跳下女子称很后悔](http://www.daogukj.com/3022882)
-- [乐事薯片生产废料被洗白成「毛粉」流向市场，用「毛粉」生产食用淀粉是否合规？是否存在食品安全问题？](http://www.daogukj.com/1257732)
-- [凤囚凰 古偶烂片史上难以逾越的高峰](http://www.daogukj.com/swfyejft/)
-- [【世界杯终局之战 续集】复仇者，冲锋！](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
-- [60岁男子坚持广州深圳往返通勤14年](http://www.movie.hkepx.cn/movie/5720053.htm)
-- [吴宜泽6比5墨菲晋级半决赛](http://www.movie.hkepx.cn/xiju/4451738.htm)
-- [北大数院澄清王虹推荐信、保研等传闻，称其具备保研资格且获数院多位老师推荐信，为什么此前谣言能广泛传播？](http://www.movie.hkepx.cn/xiju/8030216.htm)
-- [陈伟霆九门老九门出场对比](http://www.daogukj.com/faxbfjmv/)
+- [为什么有呼吁大学开放的，没有呼吁初高中开放的？](http://www.daogukj.com/1257732)
+- [欧足联决定抵制世界杯](http://www.daogukj.com/swfyejft/)
+- [古罗马离谱习俗——两千年前的古罗马，开放程度与市井智慧，完全颠覆现代人的认知。](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
+- [洪水中锁死狮子该不该](http://www.movie.hkepx.cn/movie/5720053.htm)
+- [60岁男子坚持广州深圳往返通勤14年](http://www.movie.hkepx.cn/xiju/4451738.htm)
+- [想知道现在iPad加个键盘就可以用作笔记本电脑了，大学生做课堂笔记还需要买笔记本电脑吗？](http://www.movie.hkepx.cn/xiju/8030216.htm)
+- [凤囚凰 古偶烂片史上难以逾越的高峰](http://www.daogukj.com/faxbfjmv/)
 - [长江十年行](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
-- [微软股价涨幅扩大至15%](http://www.movie.hkepx.cn/movie/4952543.htm)
-- [我发现很多农村教堂并没有发鸡蛋，那为什么还有那么多老头老太太去信？](http://www.movie.hkepx.cn/movie/3155966.htm)
-- [解放军两次警告日方不能自称海军](http://www.movie.hkepx.cn/xiju/6207511.htm)
-- [这扳机纪律你就学吧](http://www.daogukj.com/4160220)
+- [美股收盘：满屏都是两位数涨幅](http://www.movie.hkepx.cn/movie/4952543.htm)
+- [如何看待《年会不能停2！》点映排片已经被《蜘蛛侠》《八仙！》等影片压制到不足 0.1%，会选择撤档吗？](http://www.movie.hkepx.cn/movie/3155966.htm)
+- [美股收盘：微软创近18年最大单日涨幅](http://www.movie.hkepx.cn/xiju/6207511.htm)
+- [《非霸凌不可吗》](http://www.daogukj.com/4160220)
 - [抵抗者2026实机演示](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
-- [媒体曝因AI裁员企业超半数承认决策失误，为啥这些企业光速反悔了？AI裁员浪潮结束了吗？暴露出哪些问题？](http://www.movie.hkepx.cn/xiju/3921462.htm)
-- [超强台风“白海豚”最新路径来了](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
-- [【花小烙】游隼：地球上俯冲速度最快的“鸟中战斗机”是如何炼成的？](http://www.daogukj.com/7980452)
+- [“沙漠”的“沙”为什么不是石字旁的“砂”？](http://www.movie.hkepx.cn/xiju/3921462.htm)
+- [空调一直开vs忍着不开 谁更健康](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
+- [化身Superman！摩托老哥解锁新技能](http://www.daogukj.com/7980452)
 
 </details>
 
 ## 原始来源
 
-- [SK海力士跌超 17%，创最大跌幅纪录，AI 芯片投资热潮下，芯片巨头海力士股价为啥崩了？](https://www.zhihu.com/question/2065810199877611641)
+- [黑鲨官宣全面停止手机官方售后，其巅峰时期占据游戏手机 47% 市场份额，游戏手机是不是阶段性伪需求？](https://www.zhihu.com/question/2066184696107643598)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0a2e34a758ded8187c52 -->
+<!-- content-fingerprint: 3a4e036bebd3f79eb610 -->
