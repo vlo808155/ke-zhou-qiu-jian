@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何评价最新发布的人民军队宣传片《制胜》？有哪些值得关注的细节？
+# 赵心童vs威尔逊
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：385 万热度 · 分类：问答 · 更新：2026-08-01T16:42:26+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6946351 · 更新：2026-08-01T20:14:31+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价最新发布的人民军队宣传片《制胜》？有哪些值得关注的细节？”位列第 9 位，公开热度指标为 385 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“赵心童vs威尔逊”位列第 9 位，公开热度指标为 6946351。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：经中央军委批准，中央军委政治工作部联合中央网信办、中央广播电视总台，摄制思想解读类融媒体片《制胜》。该片从7月30日起在中央电视台综合频道播出。‌‌震撼！人民军队制胜大片太燃了
+百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [小时候看不懂，长大后已是局中人](ye-gong-hao-long.md)
-- [中方为何在此时位黄岩岛开展演训](lan-yu-chong-shu.md)
-- [曝WBG和EDG打野互换](zi-xiang-mao-dun.md)
-- [弟弟举报哥哥用自己高考身份读大学](bei-gong-she-ying.md)
+- [C罗回应被AI评为史上最出名运动员](ye-gong-hao-long.md)
+- [A股突然放量大涨 行情重新开始了吗](lan-yu-chong-shu.md)
+- [战鹰的「熬鹰杯」举办到第三届了，这项比赛今年有什么亮点吗？](zi-xiang-mao-dun.md)
+- ["大狗？？老吴！！"](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [字节系在移动互联网用户时长的占比升至 40.1%，正式超越腾讯系的 29.7%，你怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [少年捐日军侵华罪证遭「销户」威胁，警方已立案并启动保护，这些发布死亡威胁的人该承担怎样的法律责任？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [杨勇被授予国防科技一等功，他的背后有哪些事迹？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [免试演员，毕业季](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [今天请大家吃一颗——原子蛋！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [【独家】《凡人修仙传之慕兰之战》第9集【总第185集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [我们拍到了水下风暴](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [遭公公强奸儿媳被鉴定为精神发育迟滞](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [“餐饮界林则徐”硬核禁烟火了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [大流量卡大撤退 有人连夜抢购](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [呼市49名被调整干部重获提拔任用](http://www.daogukj.com/9193901)
-- [未婚夫自缢 女方被判返还部分彩礼](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [这四个字读懂上半年中国经济](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [大 周 礼 时 代(15)](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [九门破万红包](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [如何看待董宇辉称自己看过至少500遍《大话西游》，看500遍《大话西游》是什么概念？](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [少年捐日军侵华罪证遭「销户」威胁，警方已立案并启动保护，这些发布死亡威胁的人该承担怎样的法律责任？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [航空公司不满携程返还天价退票费](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [【合唱】千本樱（100000人）](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [中方为何在此时位黄岩岛开展演训](http://www.daogukj.com/1877942)
-- [舰载机飞行员喊话外军：我只想战斗](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [林心如晒照庆祝结婚十周年](http://www.daogukj.com/nuqwxjlx/)
-- [免试演员，毕业季](http://www.daogukj.com/4054231)
-- [首个月销破10万辆的新势力出现了](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [KSG 时差3](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [DeepSeek V4 flash上线，相较Kimi K3各有哪些优劣？现版本大模型中你的选择是啥？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [我们拍到了水下风暴](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [林如海不过是一个七品官，为何能娶到贾家的小姐？](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [公交车从南沙大桥上冲出？谣言](http://www.daogukj.com/ygpoeeya/)
-- [蜘蛛侠内地香港屏摄对比](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [安徽淮北室外温度83°C？不实](http://www.daogukj.com/9246627)
-- [太初神宗的故事（合集）](http://www.daogukj.com/2490072)
-- [被中央巡查组抓现行的员工一脸茫然](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [光是有速度的，它的速度会降低吗？](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [喜羊羊新作画面疑似擦边，美羊羊抬手捂住裙摆引发争议，是过度解读吗？面向少儿的动画须把握怎样的创作边界？](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [【纪录片】地球·劫后重生 中配版08 美洲洪水](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [今天请大家吃一颗——原子蛋！](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [《原神》至冬交响音乐现场](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [《国务院关于出境入境管理的规定》将于 9 月 15 日起施行，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [冉莹颖自曝未婚先孕](http://www.daogukj.com/8715491)
-- [【独家】《凡人修仙传之慕兰之战》第9集【总第185集】](http://www.daogukj.com/4788107)
-- [青铜器普遍认同是金色的，现在都绿了一帮人说「美啊，美啊！」，原因是什么？](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [俄罗斯被曝首次打击美国防企业](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [黄景瑜为什么不站起来](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [地表最强陆军来了](http://www.daogukj.com/3872248)
-- [予愿安洁莉娜的入职测试！【明日方舟】](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [曝WBG和EDG打野互换](http://www.daogukj.com/sguhnydl/)
-- [董宇辉看500遍大话西游是什么概念](http://www.daogukj.com/6123602)
-- [弟弟举报哥哥用自己高考身份读大学](http://www.daogukj.com/7243934)
-- [俄罗斯姐弟在泰国被杀](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [女生老拉肚子发现吸管内壁全是污垢](http://www.daogukj.com/fgkxwaik/)
-- [如何看待房主任因《姐姐当家 2》中不当言论，遭经纪公司禁演三个月？](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [2米多高鸡蛋整摞从货车坠落](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [赵心童4分钟清台](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [警方对捐日本侵华罪证少年启动保护](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [快递员在箱上写“要不要送你床上”](http://www.daogukj.com/4800229)
-- [美军传来噩耗，国防部长成了健身卖药黑私教](http://www.daogukj.com/1329201)
-- [上海偶遇Angelababy吃甜品](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [遗忘之海×海绵宝宝联动PV——出发！蟹堡王分店！](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [杨勇被授予国防科技一等功，他的背后有哪些事迹？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [DeepSeek V4 flash上线，相较Kimi K3各有哪些优劣？现版本大模型中你的选择是啥？](http://www.daogukj.com/9193901)
+- [少年捐日军侵华罪证遭「销户」威胁，警方已立案并启动保护，这些发布死亡威胁的人该承担怎样的法律责任？](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [向着世界一流军队迈进](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [杭州暴雨](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [左奇函杨博文选曲骨骼谢幕](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [《次子就是次子》](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [我们拍到了水下风暴](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [借1万块1年利息掏了2400元](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [佛得角门将加盟科洛科洛生变](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [A股突然放量大涨 行情重新开始了吗](http://www.daogukj.com/1877942)
+- [光是有速度的，它的速度会降低吗？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [这样的外卖才配收我的打包费](http://www.daogukj.com/nuqwxjlx/)
+- [“餐饮界林则徐”硬核禁烟火了](http://www.daogukj.com/4054231)
+- [逐玉作者道歉](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [211大学生应聘暑假工变家教](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [“洪灾后广西道路现持枪男子”不实](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [⚡️宗 主 连 携 技⚡️](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [【合唱】千本樱（100000人）](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [久等啦~欢迎收看新系列！](http://www.daogukj.com/ygpoeeya/)
+- [小伙辞职贷款百万开制冰厂月赚30万](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [公交车从南沙大桥上冲出？谣言](http://www.daogukj.com/9246627)
+- [董宇辉看500遍大话西游是什么概念](http://www.daogukj.com/2490072)
+- [周星驰质疑董宇辉看大话西游500遍](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [两个固排的诞生](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [【warma】我为1000亿奖金挑战天才作者谜题！](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [森碟都会开车了](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [大流量卡大撤退 有人连夜抢购](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [何为承诺？中国军人告诉你](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [三大运营商停止第三方互联网渠道号卡办理，低价大流量卡将集体退场，出于哪些考量？对普通消费者有什么影响？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [如何看待乌克兰只击落1枚弹道导弹](http://www.daogukj.com/8715491)
+- [江苏一小区集中供冷 不开空调25℃](http://www.daogukj.com/4788107)
+- [遗忘之海×海绵宝宝联动PV——出发！蟹堡王分店！](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [俄军兵临双子城下](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [家长带男童进女更衣室还语出惊人](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [2023年《长安三万里》火了，追光动画为啥不趁热再出个宋代版甚至屈原版？非要什么都试搞成现在这样？](http://www.daogukj.com/3872248)
+- [武汉街头“脸基尼”集体上线](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [战鹰的「熬鹰杯」举办到第三届了，这项比赛今年有什么亮点吗？](http://www.daogukj.com/sguhnydl/)
+- [一喝水就尿多说明肾脏不好吗](http://www.daogukj.com/6123602)
+- ["大狗？？老吴！！"](http://www.daogukj.com/7243934)
+- [如何评价董润年导演，张若昀、白客主演的喜剧电影《年会不能停2！》？](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [TF四代五公稳了](http://www.daogukj.com/fgkxwaik/)
+- [2米多高鸡蛋整摞从货车坠落](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [《原神》至冬交响音乐现场](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [多家大行重启 5 年期大额存单，利率最高 1.8%，20 万起存，释放什么信号？普通储户值得入手吗？](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [TOP青岛演唱会设备车倾撒](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [歼15飞行员雨中盲操安全着舰](http://www.daogukj.com/4800229)
+- [登机柜台出现了好小众词汇](http://www.daogukj.com/1329201)
+- [如何看待在柯洁夺冠后，围棋主播张学斌称「柯洁夺冠对职业围棋未必是好事」？](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [蔡崇信离婚涉及百亿美元资产](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [遭公公强奸儿媳被鉴定为精神发育迟滞](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价最新发布的人民军队宣传片《制胜》？有哪些值得关注的细节？](https://www.zhihu.com/question/2065877408276918979)
+- [赵心童vs威尔逊](https://www.baidu.com/s?wd=%E8%B5%B5%E5%BF%83%E7%AB%A5vs%E5%A8%81%E5%B0%94%E9%80%8A&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 410395b6a7672e112e74 -->
+<!-- content-fingerprint: b807a40d1a7f9ebd121d -->
