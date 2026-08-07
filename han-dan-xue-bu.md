@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 第三集 |🐧赛伊德：“雷斯也变成女孩了？！”🐧
+# 如何看待蜘蛛侠荷兰弟替身「河南弟」误导舆论、造假抢功、疑似还遭剧组开除一事？
 
-> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：728354 · 分类：单机游戏 · 更新：2026-08-07T14:01:06+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：199 万热度 · 分类：问答 · 更新：2026-08-07T17:39:30+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“第三集 |🐧赛伊德：“雷斯也变成女孩了？！”🐧”位列第 11 位，公开热度指标为 728354，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待蜘蛛侠荷兰弟替身「河南弟」误导舆论、造假抢功、疑似还遭剧组开除一事？”位列第 11 位，公开热度指标为 199 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：第二期终于来啦！挖新坑啦！ ‼️禁止其他人转载到其他平台，发现请向UP主举报‼️ ————STAFF———— 监制：徐Toso 动画导演：巴巴Boyei AIGC生成师：旁可PANKO 本期我们特约了新的配音老师，出演了具有河南口音的特别的赛伊德！ 特别感谢@铃乃Chan 老师！ —————————— 本视频由Ai平台OiiOii制作 体验链接：www.oiioii.ai 注册时填写UP主的邀请码：MIVJ41DIATMSNAT 可以获得额外的积分奖励哦！
+来源公开摘要显示：蜘蛛侠系列电影 河南弟自称荷兰弟替身疑似造假？！ 《蜘蛛侠：崭新之日》热映期间，一位来自河南周口自称“河南弟”的小伙王壮壮自称是荷兰弟的武替受到媒体和网友热捧！并引发巨大争议——片中的武打戏份和危险场景到底是谁演的？很多网友根据河南弟的说法是替身完成居多，还有大批网友以此嘲讽荷兰弟，给荷兰弟的名声带来恶劣影响。 然而根据武指张鹏以及片中日本女忍者扮演者、来自河北邯郸的范小双、官方花絮等说法，80%的戏份都是荷兰弟亲自上阵，并非武替完成的多。 王壮壮还被指在参演期间被剧组开除，目前他已经删除了自己的相关视频，暂时未再回应争议。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [男子杀人后逃进深山21年活得像野人](qi-ren-you-tian.md)
-- [Mina同学发声](chao-san-mu-si.md)
-- [这个暑假「预制娃」火了，家长提前填鸭，学校二次加热，如何看待这种抢跑式教育？大脑发育经得起「预制」吗？](dui-niu-tan-qin.md)
-- [离谱！狗子被催五万网贷](mang-ren-mo-xiang.md)
+- [3种发圈正确戴法！轻松解锁夏日氛围感造型](qi-ren-you-tian.md)
+- [为何年轻人不愿学医了](chao-san-mu-si.md)
+- [影视寒冬 进组难](dui-niu-tan-qin.md)
+- [直击泰国校园6死枪击案现场](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
 - [今年是闭眼秋](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [听说洛克王国的精灵原型很难猜？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [《别接我，我改！》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [新冠病毒检出率仍居首位但上升趋缓](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [汪峰阻止14岁女儿买大牌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [国防部：坚决反制任何闹海挑衅图谋](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [多家手机品牌回应将大规模涨价，OPPO、荣耀、小米等部分机型已上调价格，如何看待此次手机涨价潮？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [比武招亲摆明是给采花大盗递刀,武侠游戏为什么还乐此不疲地设计这种擂台?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [孩子准备上大一了，一个月跟我要1500的生活费，会不会太多了？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [提离职被知道要裁员的领导硬留下](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [这个暑假「预制娃」火了，家长提前填鸭，学校二次加热，如何看待这种抢跑式教育？大脑发育经得起「预制」吗？](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [好演员从不无缝进组](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [如何看待韩媒曝韩国足协 7 场比赛性贿赂 20 名裁判，涉中韩国奥战+世预赛？暴露出哪些问题？](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [《原神》奥黛塔角色PV——「柔雪的幻象」](http://www.daogukj.com/qaspagub/)
-- [汪峰公司因AI从1100人减到400人](http://www.daogukj.com/vbdopqig/)
-- [胖东来宣布暂别行业会议和帮扶，是否意味着中国零售业「向胖东来学习」的热潮正在退去？](http://www.daogukj.com/gkqacstr/)
-- [《死》死亡是什么？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [男友花15元为女孩手搓“空调”](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [谁是宇树科技背后赢家](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [欢迎来到研究生的世界](http://www.daogukj.com/qkmfzgih/)
-- [你上班银行上班你午休银行午休](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [“不建议大家买深色蛋糕”](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [知乎开放平台近期新推出的Zhihu CLI 能力，有哪些值得探索的玩法？](http://www.daogukj.com/pgcqzahm/)
-- [1岁宝宝碰坏纸巾盒三亚酒店索赔924元](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [泰高官回应中国人在泰遭歧视：全面调查](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
-- [服务实体经济 财政金融打出组合拳](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [玲花累到不停喝水 曾毅闲到玩猜拳](http://www.daogukj.com/5083848)
-- [本想简单吃个见手青小炒，却被云南厨师火焰魔法吓晕了...](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [高中尊者？本科圣人？小明修仙传25分钟优化纯享版【AI全民制作人】](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [面试面出了吃火锅的感觉](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [今日立秋](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [27岁女子成组织卖淫集团主犯被通缉](http://www.daogukj.com/5655258)
-- [戚薇 授权AI](http://www.daogukj.com/5414627)
-- [情绪冷漠症](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [泰国校园枪击案死亡人数升至7人](http://www.daogukj.com/4208506)
-- [多家手机品牌回应将大规模涨价，OPPO、荣耀、小米等部分机型已上调价格，如何看待此次手机涨价潮？](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [网传南航一航班提供饮料为西梅汁，致乘客大排长队上厕所，是真的吗？如何评价这一事件？](http://www.daogukj.com/7752186)
-- [空调效果可视化了](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [台风白海豚或吞并鲸鱼 登陆地点更新](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [唐僧扫塔为什么不从最高层往下扫，而是从下往上扫？](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [5个天才高中生做的高中生活游戏](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [《蜘蛛侠：崭新之日》大爆，前三部导演乔恩·瓦茨遭网暴「永远别再执导蜘蛛侠了」，客观来说前三部质量如何？](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [河南三支一扶笔试存在组织作弊犯罪](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [影视寒冬 进组难](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [雀巢工作室VS小潮team](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [乌公布对俄作战外籍军人规模](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [立秋三问](http://www.daogukj.com/qaspagub/)
+- [男子结婚 8 年发现 3 娃非亲生，要求离婚、返还抚育开支并赔偿精神抚慰金，如何从法律角度解读？](http://www.daogukj.com/vbdopqig/)
+- [两名乘客在飞机上因调节座椅起冲突](http://www.daogukj.com/gkqacstr/)
+- [网传南航一航班提供饮料为西梅汁，致乘客大排长队上厕所，是真的吗？如何评价这一事件？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [河南撤回“领导带薪错峰休假”通知](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [佛山通报笔试前13被淘汰后5名进体检](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [今日立秋你咬秋了吗](http://www.daogukj.com/qkmfzgih/)
+- [国防部回应日本试射“战斧”导弹](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [如何评价GPT-5.6Luna免费不限量，后续基础大模型都会走向免费吗？](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [韩国被爆性贿赂世预赛裁判](http://www.daogukj.com/pgcqzahm/)
+- [《别接我，我改！》](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [刘若雪方辟谣与周杰伦私生子传闻](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [前7个月货物贸易进出口超30万亿元](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
+- [欢迎来到研究生的世界](http://www.daogukj.com/5083848)
+- [不要“做”挑战？（第二十一期）](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
+- [前日本奥运举重选手便利店偷鸡蛋，推倒店员致其骨折，被当场逮捕，为什么会做出此举？日本运动员的处境如何？](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [让老师读烂梗，憋笑加砖挑战](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [电影《八仙！》里为什么把汉钟离的名字改成了钟离权？](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [胖东来宣布暂别行业会议和帮扶，是否意味着中国零售业「向胖东来学习」的热潮正在退去？](http://www.daogukj.com/5655258)
+- [你可能不认识我，但是你绝对听过他的歌【网络奇人#1】](http://www.daogukj.com/5414627)
+- [商家称1小时被20条差评后门店倒闭](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [听说洛克王国的精灵原型很难猜？](http://www.daogukj.com/4208506)
+- [从731部队交易到海外实验室网络](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [东北立秋迎降温暴击有人穿羽绒服](http://www.daogukj.com/7752186)
+- [河南三支一扶笔试成绩作废 将重考](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [笔试前13被淘汰后5进体检](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [泰国校园枪击已致7死](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [网红峰哥8月份三天“回血”46万](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [被洪水泡过的瓶装水能喝？别冒险](http://www.movie.hkepx.cn/movie/4507886.htm)
 - [今年是闭眼秋](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [于适 平儿都长这么大了](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
-- [如何看待梁文锋旗下幻方量化多只产品收益转负，单月跌幅超 20%？](http://www.daogukj.com/plfvnmnj/)
-- [Mina同学发声](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [越来越多高分考生放弃985选警校](http://www.daogukj.com/5346308)
-- [汪峰阻止14岁女儿买大牌](http://www.daogukj.com/mwxqddka/)
-- [中国在黄岩岛的组合拳释放什么信号](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [听说洛克王国的精灵原型很难猜？](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [“至此，神性已成！！！”](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [把课本搬进现实，送娃入住有1000个兵马俑的奇葩酒店！他惊呆了！](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [打破国外垄断！中国重磅科技集中上新](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [《别接我，我改！》](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [比亚迪定制版“海獭”日本热卖](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [泰国校园枪击已致7死](http://www.daogukj.com/ictnjmqu/)
-- [刚果（金）正式禁止铜、钴精矿出口，全球 70% 钴供给将受影响，国际铜价应声上涨，将产生哪些影响？](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [为何年轻人不愿学医了](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [老乡鸡主动邀约求职者，得知二人同名后又直接拒绝，称喊一个名字会有两个人答应，仅因同名就拒绝录用合理吗？](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [囊 里 有 根 线 ？](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [如何看待韩媒曝韩国足协 7 场比赛性贿赂 20 名裁判，涉中韩国奥战+世预赛？暴露出哪些问题？](http://www.daogukj.com/plfvnmnj/)
+- [为何年轻人不愿学医了](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [聪明猫在一起久了也会有一些共同点……](http://www.daogukj.com/5346308)
+- [孩子准备上大一了，一个月跟我要1500的生活费，会不会太多了？](http://www.daogukj.com/mwxqddka/)
+- [女孩摆摊卖菌子时收到北大通知书](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [国防部：坚决反制任何闹海挑衅图谋](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [官方通报教师招聘笔试前13名被淘汰](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [今日立秋 “秋包伏”全国暑热持续](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [绷得住挑战·谁是老绷家｜2026 VCT CN 第二赛段 特别节目](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [多家手机品牌回应将大规模涨价，OPPO、荣耀、小米等部分机型已上调价格，如何看待此次手机涨价潮？](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [9岁120斤啦啦队女孩跳舞火出圈](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [当我让弟弟模仿我的日常第六弹](http://www.daogukj.com/ictnjmqu/)
+- [六旬富商婚外生子自称仅存在瑕疵](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [公司实行「上四休三」，但要降薪 1000 元，员工不接受只能辞职，这样合理吗？换做是你会如何选择？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [不要空腹吃龙口粉丝](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [第三集 |🐧赛伊德：“雷斯也变成女孩了？！”🐧](https://b23.tv/BV1T8uJ6oEqK)
+- [如何看待蜘蛛侠荷兰弟替身「河南弟」误导舆论、造假抢功、疑似还遭剧组开除一事？](https://www.zhihu.com/question/2068334810846717156)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0da912b666ebd9b3403d -->
+<!-- content-fingerprint: f263db74967917834e36 -->
