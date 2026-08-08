@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 百花奖开幕式 刘浩存独舞
+# 湖人 詹姆斯
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7046421 · 更新：2026-08-08T06:18:54+08:00
+> 来源：微博热搜 · 排名：第 9 位 · 热度：163001 · 分类：体育 · 更新：2026-08-08T08:01:54+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“百花奖开幕式 刘浩存独舞”位列第 8 位，公开热度指标为 7046421。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“湖人 詹姆斯”位列第 9 位，公开热度指标为 163001，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：在百花奖开幕式上，刘浩存献上独舞《初心》。一袭红裙翩然起舞，身姿轻盈，眼神灵动，舞台氛围感拉满，惊艳全场！
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [歌手排名](yan-er-dao-ling.md)
-- [女儿卖房定价9000被母亲7500签约](nan-yuan-bei-zhe.md)
-- [公司实行「上四休三」，但要降薪 1000 元，员工不接受只能辞职，这样合理吗？换做是你会如何选择？](mai-du-huan-zhu.md)
-- [住宅低频噪音现场溯源-山东4家](ye-gong-hao-long.md)
+- [台风白海豚实时路径](yan-er-dao-ling.md)
+- [《楚门的世界》中，妻子既然不爱楚门为什么反复提及要与楚门生一个孩子？](nan-yuan-bei-zhe.md)
+- [住宅低频噪音现场溯源-山东4家](mai-du-huan-zhu.md)
+- [胡彦斌获《歌手2026》歌王](ye-gong-hao-long.md)
 
 ## 站内推荐
 
 - [未来五年中国民航重磅规划出炉](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [《去你的岛》 观众哭崩](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [“新疆阿勒泰八月能滑雪”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [国乒男单 梯队建设](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [湖人 詹姆斯](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [看完鸟类正脸秒懂证件照](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [王楚然大一形体课越扒越有](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [河南「三支一扶」考试存组织作弊犯罪，作弊团伙主要成员被抓，哪些人将面临法律追责？暴露了哪些监管失灵？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [全网首发！藏宝图/宝藏箱全部点位来啦！记得先领口令联动红！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [深圳一社区居民出行难 两部门回应](http://www.movie.hkepx.cn/xiju/2843648.htm)
-- [孩子准备上大一了，一个月跟我要1500的生活费，会不会太多了？](http://www.daogukj.com/0895296)
-- [我变成赖泽平最痛恨的人！【如是书院】](http://www.movie.hkepx.cn/xiju/3970296.htm)
-- [住宅低频噪音现场溯源-山东4家](http://www.movie.hkepx.cn/movie/5125967.htm)
-- [网友饲养2000条食人鱼](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
-- [河南「三支一扶」考试存组织作弊犯罪，作弊团伙主要成员被抓，哪些人将面临法律追责？暴露了哪些监管失灵？](http://www.movie.hkepx.cn/xiju/5735202.htm)
-- [胡彦斌获《歌手2026》歌王](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
-- [歌手总决赛 孙燕姿吴青峰太伟大了](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
-- [陈情令外鹅版VS内鹅版](http://www.daogukj.com/1682120)
-- [刚果（金）正式禁止铜、钴精矿出口，全球 70% 钴供给将受影响，国际铜价应声上涨，将产生哪些影响？](http://www.daogukj.com/3781657)
-- [聪明猫在一起久了也会有一些共同点……](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
-- [欧阳娜娜超预期](http://www.movie.hkepx.cn/xiju/8318389.htm)
-- [为啥泸溪河回应「桃酥出现牙冠」为谣言，消费者仍然不买账？客观来看，现在品牌能做点啥挽回口碑？](http://www.movie.hkepx.cn/xiju/6056931.htm)
-- [困扰一年的低频噪音元凶找到了](http://www.movie.hkepx.cn/xiju/3703541.htm)
-- [23岁博士回应确诊胃癌晚期](http://www.movie.hkepx.cn/xiju/8516838.htm)
-- [美股存储板块集体大跌](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
-- [国乒男单横滨冠军赛全军覆没，这次失利主要输在哪些方面？当前男乒该如何破局？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
-- [38岁演员求职万岁山NPC成功](http://www.movie.hkepx.cn/movie/7128560.htm)
-- [吴碧霞 降维打击](http://www.daogukj.com/3515190)
-- [国乒男单横滨冠军赛全军覆没](http://www.daogukj.com/0169777)
-- [河南濮阳一女子趁店内无人拿走手机](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
-- [梁文锋 只想用座机](http://www.daogukj.com/4071713)
-- [欢迎来到研究生的世界](http://www.daogukj.com/pjoqnyew/)
-- [中餐厅](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
-- [跑了几天外卖发现，很多人原来是修手机的、修汽车的、修家电的技术人员，有手艺为什么要来跑外卖呢？](http://www.movie.hkepx.cn/movie/5516169.htm)
-- [怎么看 OpenCode 创始人说「DeepSeek 涨价不是因为亏钱，而是为了劝退用户」？](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
-- [番茄炒蛋到底要不要勾芡](http://www.daogukj.com/pgdrxeea/)
-- [700米道路设5处红绿灯引热议](http://www.daogukj.com/7272013)
+- [网友饲养2000条食人鱼](http://www.movie.hkepx.cn/xiju/2843648.htm)
+- [医生回应女子被狗舔脚确诊三级暴露](http://www.daogukj.com/0895296)
+- [立秋后睡觉这3个地方千万不能露](http://www.movie.hkepx.cn/xiju/3970296.htm)
+- [胡彦斌获《歌手2026》歌王](http://www.movie.hkepx.cn/movie/5125967.htm)
+- [高中尊者？本科圣人？小明修仙传25分钟优化纯享版【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
+- [跑了几天外卖发现，很多人原来是修手机的、修汽车的、修家电的技术人员，有手艺为什么要来跑外卖呢？](http://www.movie.hkepx.cn/xiju/5735202.htm)
+- [宇树王兴兴被问了360多个问题](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
+- [胡彦斌歌王](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
+- [四大会计事务所的研究报告集体陷入「AI 幻觉」，对咨询行业的公信力会造成怎样的冲击？暴露了什么问题？](http://www.daogukj.com/1682120)
+- [《凡应》EP02测试全新PV——与巨兽彼此依存，和鸣共生！](http://www.daogukj.com/3781657)
+- [不要“做”挑战？（第二十一期）](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
+- [一首演奏给喵喵汪汪的🎶 我们是天下第一好～](http://www.movie.hkepx.cn/xiju/8318389.htm)
+- [00后新老师被值周生为难](http://www.movie.hkepx.cn/xiju/6056931.htm)
+- [日本救灾能有多抽象](http://www.movie.hkepx.cn/xiju/3703541.htm)
+- [太原一乘客质疑出租车绕路准备投诉，被司机持铁棍打伤缝 13 针，如何看待此事？](http://www.movie.hkepx.cn/xiju/8516838.htm)
+- [23岁博士回应确诊胃癌晚期](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
+- [如何评价《歌手 2026》歌王之战总决赛，胡彦斌夺得歌王桂冠、齐豫亚军、万妮达季军？他们实至名归吗？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
+- [刚果（金）正式禁止铜、钴精矿出口，全球 70% 钴供给将受影响，国际铜价应声上涨，将产生哪些影响？](http://www.movie.hkepx.cn/movie/7128560.htm)
+- [今年上大一了，父母要挣多少我才能拿3000的生活费？](http://www.daogukj.com/3515190)
+- [河南三支一扶笔试因「倒查」将重考，这会如何影响基层招考公平性？](http://www.daogukj.com/0169777)
+- [国乒男单 梯队建设](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
+- [为啥山西不用装空调外挂机](http://www.daogukj.com/4071713)
+- [九门陈皮阿四被师娘拴住](http://www.daogukj.com/pjoqnyew/)
+- [2名小孩玩手机低头幅度近乎折叠](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
+- [怎么看待黄山一位老人手机拍照被疯狂弹广告的事件？](http://www.movie.hkepx.cn/movie/5516169.htm)
+- [中国要用5万亿织一张网](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
+- [46岁的殷桃看着像20岁](http://www.daogukj.com/pgdrxeea/)
+- [外媒曝腾讯《最后的哨兵》烧数亿美金 6 年仍无果，为啥腾讯做不出好的 3A 开放世界作品？](http://www.daogukj.com/7272013)
 - [6组数据看我国外贸延续良好增长态势](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
-- [小米高管玩梗被指越界](http://www.daogukj.com/3521407)
-- [拼豆有多火 一公里内能有40家店](http://www.daogukj.com/9982293)
-- [云南发现眼镜王蛇一家38口](http://www.movie.hkepx.cn/xiju/3540024.htm)
-- [一个没有空调外挂机的城市](http://www.movie.hkepx.cn/movie/9307027.htm)
-- [北京多站点小时雨量下到全国第一](http://www.movie.hkepx.cn/movie/7494540.htm)
-- [伊朗发视频隐喻美国国运衰落原因](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
+- [越来越多高分考生放弃985选警校](http://www.daogukj.com/3521407)
+- [原来戴泳帽真的会影响颜值](http://www.daogukj.com/9982293)
+- [国乒男单横滨冠军赛全军覆没，这次失利主要输在哪些方面？当前男乒该如何破局？](http://www.movie.hkepx.cn/xiju/3540024.htm)
+- [游客在香港偶遇演员拍戏](http://www.movie.hkepx.cn/movie/9307027.htm)
+- [男子将外卖员砍成植物人获刑8年](http://www.movie.hkepx.cn/movie/7494540.htm)
+- [窦靖童说王菲窦唯都会为她看《歌手》](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
 - [未来五年中国民航重磅规划出炉](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
-- [《去你的岛》 观众哭崩](http://www.daogukj.com/4973551)
-- [越来越多高分考生放弃985选警校](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
-- [家里的旧光盘，为什么播不出来了？](http://www.daogukj.com/zirrjtcq/)
+- [看完鸟类正脸秒懂证件照](http://www.daogukj.com/4973551)
+- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
+- [“中国蔬菜之乡”最高温达41.8℃](http://www.daogukj.com/zirrjtcq/)
 - [我国外贸延续良好增长态势](http://www.daogukj.com/pvjkdvkl/)
-- [发烧梗](http://www.movie.hkepx.cn/movie/8281799.htm)
-- [外媒曝腾讯《最后的哨兵》烧数亿美金 6 年仍无果，为啥腾讯做不出好的 3A 开放世界作品？](http://www.movie.hkepx.cn/movie/4145451.htm)
-- [【剧情】昭阳公主（2026）18【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.movie.hkepx.cn/xiju/5480896.htm)
-- [《欢迎来龙餐馆》目前释出了三版预告，看完后你的直观感受是什么？](http://www.movie.hkepx.cn/xiju/6192675.htm)
-- [看完鸟类正脸秒懂证件照](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
-- [不要“做”挑战？（第二十一期）](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
-- [“新疆阿勒泰八月能滑雪”不实](http://www.movie.hkepx.cn/movie/8224566.htm)
-- [歌手排名](http://www.daogukj.com/rdjgxawo/)
-- [男子将外卖员砍成植物人获刑8年](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
-- [时停/欧拉！达摩空条承太郎皮肤，三形态白金之星打穿峡谷！自制联动皮肤特效！](http://www.daogukj.com/4280554)
+- [聪明猫在一起久了也会有一些共同点……](http://www.movie.hkepx.cn/movie/8281799.htm)
+- [周 处 除 三 害 现实版](http://www.movie.hkepx.cn/movie/4145451.htm)
+- [微信新功能：你可以“撤回”你的撤回](http://www.movie.hkepx.cn/xiju/5480896.htm)
+- [泰国校园枪击事件已致8死30余伤](http://www.movie.hkepx.cn/xiju/6192675.htm)
+- [防汛女干部哽咽：宁听骂声不听哭声](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
+- [发烧梗](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
+- [王楚然大一形体课越扒越有](http://www.movie.hkepx.cn/movie/8224566.htm)
+- [台风白海豚实时路径](http://www.daogukj.com/rdjgxawo/)
+- [啥都能修的异世界修理铺——顾客差点把我店烧了？【首届全国高校AIGC优才创作营】](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
+- [女子带娃漂流落水 教练员称不敢捞](http://www.daogukj.com/4280554)
 
 </details>
 
 ## 原始来源
 
-- [百花奖开幕式 刘浩存独舞](https://www.baidu.com/s?wd=%E7%99%BE%E8%8A%B1%E5%A5%96%E5%BC%80%E5%B9%95%E5%BC%8F+%E5%88%98%E6%B5%A9%E5%AD%98%E7%8B%AC%E8%88%9E&sa=fyb_news&rsv_dl=fyb_news)
+- [湖人 詹姆斯](https://s.weibo.com/weibo?q=%E6%B9%96%E4%BA%BA%20%E8%A9%B9%E5%A7%86%E6%96%AF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 16beca53167e1710e667 -->
+<!-- content-fingerprint: 58abce43195eefa26a9b -->
