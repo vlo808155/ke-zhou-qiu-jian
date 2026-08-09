@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何评价今年被称为「最贵开学季」？游戏本涨至上万元「劝退」准大学生，有哪些平替方案？
+# 白海豚对华东华北影响会大于巴威
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：337 万热度 · 分类：问答 · 更新：2026-08-09T19:53:26+08:00
+> 来源：今日头条热榜 · 排名：第 10 位 · 热度：7408761 · 分类：热门事件 · 更新：2026-08-09T22:07:16+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价今年被称为「最贵开学季」？游戏本涨至上万元「劝退」准大学生，有哪些平替方案？”位列第 10 位，公开热度指标为 337 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“白海豚对华东华北影响会大于巴威”位列第 10 位，公开热度指标为 7408761，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：【#游戏本涨至上万元劝退准大学生# 购机门槛升至万元以上】#5000元以下笔记本基本绝迹#近期国内游戏本市场迎来大幅涨价潮，多款主流机型价格持续走高，部分热门型号半年涨幅高达数千元，甚至出现“一天一价”的行情。刚刚结束高考的小葵就十分苦恼——自己关注已久的某款笔记本电脑，前一天标价9300元，次日就涨到了11000元。7月7日，多家门店店员透露，随着笔记本电脑开启新一轮大幅涨价，部分机型尤其是游戏本，单款涨幅可达上千元。成都一家笔记本电脑门店工作人员介绍，上个月店内多款游戏本单次涨价超千元，原本售价12000元左右的热门机型，如今价格直接上调至18000
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [【独家】《记忆管理局》第4集 燃灯与灰火【8月国创】](bei-gong-she-ying.md)
-- [跟风评论随意脑补？杜绝二次造谣](jing-gong-zhi-niao.md)
-- [田曦薇没刘海差点认不出来](hu-jia-hu-wei.md)
-- [上海北横通道积水？系旧视频](yu-mu-hun-zhu.md)
+- [如何看待“现在查 RTX 5090 价格已经变成了一种恐怖片题材”这个梗？](bei-gong-she-ying.md)
+- [【独家】《记忆管理局》第4集 燃灯与灰火【8月国创】](jing-gong-zhi-niao.md)
+- [上海北横通道出现积水系旧视频](hu-jia-hu-wei.md)
+- [张本兄妹同时夺冠](yu-mu-hun-zhu.md)
 
 ## 站内推荐
 
-- [白海豚登陆强度略强于巴威](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [菲媒证实网红雅典娜被害，网传该案仍有部分电诈犯未归案，目前案件的真实进展如何？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [雪佛兰正式停售中国市场，如何评价这个汽车品牌在华的21年？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [在洛杉矶喝200%糖蜜雪冰城，吃全球最古早麦当劳，有不胖的风险吗](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [怪兽中 出了一个奥特曼的卧底](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [沈腾 影帝](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [伊朗陆军司令：将回应任何敌对行动](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [谢霆锋没提王菲名字全网都听懂了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [假如你是小馒头](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [👊一 拳 超 人👊](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [景区回应“麦积山石窟看完需2000元”](http://www.movie.hkepx.cn/movie/6811296.htm)
+- [直到梨诺变成一个败犬](http://www.movie.hkepx.cn/movie/6811296.htm)
 - [印女子出轨被撞破与情夫一起遭毒打](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
-- [如何看待贵州网红金蝉子账号发布讣告，称外号「老表」的打工网红彭仕运在老家游泳时不幸溺水身亡？](http://www.movie.hkepx.cn/movie/3422828.htm)
-- [三年之期已到，恭迎世一上归位！](http://www.daogukj.com/ydwohxdl/)
-- [程晓玥谈离婚](http://www.movie.hkepx.cn/xiju/2720207.htm)
-- [《披荆斩棘2026》阵容官宣](http://www.movie.hkepx.cn/movie/8905156.htm)
-- [香港刷新1884年以来最高气温纪录](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
-- [叶倩文宣布喜添新孙](http://www.movie.hkepx.cn/movie/6751227.htm)
-- [朱一龙鼻子怎么了](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
-- [原来性格还会影响一个人的声音](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
+- [白海豚已减弱为台风级](http://www.movie.hkepx.cn/movie/3422828.htm)
+- [《光与夜之恋》全新活动PV：金港往事](http://www.daogukj.com/ydwohxdl/)
+- [田曦薇没刘海差点认不出来](http://www.movie.hkepx.cn/xiju/2720207.htm)
+- [非常不安：为什么切肿瘤切的必须得是肿瘤？](http://www.movie.hkepx.cn/movie/8905156.htm)
+- [黄山因台风滞留大量游客 景区回应](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
+- [耳机左右耳电量未解之谜](http://www.movie.hkepx.cn/movie/6751227.htm)
+- [发烧梗](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
+- [白海豚 伴手礼](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
 - [如何看待日本一医院错把患者脑部当肿瘤切除？](http://www.movie.hkepx.cn/movie/6134002.htm)
-- [菲媒证实网红雅典娜被害，网传该案仍有部分电诈犯未归案，目前案件的真实进展如何？](http://www.movie.hkepx.cn/xiju/5097281.htm)
-- [中国留学生写差评的方式太隐晦了](http://www.movie.hkepx.cn/xiju/1723334.htm)
-- [【STN快报第8.5季16】轮回之兽：我依旧是世一GF游戏](http://www.daogukj.com/8560862)
-- [2026WTT横滨冠军赛，张本美和4:2击败陈幸同，连续击败三名国乒选手夺得冠军，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/0534103.htm)
-- [白海豚对华东华北影响会大于巴威](http://www.daogukj.com/egppjxgx/)
-- [于东来回应胖东来近25年老店年底关闭](http://www.daogukj.com/kdnhmkcj/)
-- [浙江省委书记：该停下的坚决停下来](http://www.daogukj.com/khgfsqiu/)
-- [女子发现前夫婚内与第三者育有两子](http://www.movie.hkepx.cn/xiju/9522986.htm)
-- [球球了，我平时好像不长这样啊啊！！](http://www.daogukj.com/sygihuae/)
-- [如何看待 2026 年 8 月 8 日，史诗级电影《奥德赛》的点映上座率高达 57.3% 左右？](http://www.daogukj.com/sucemorm/)
-- [老坛酸菜 脚踩](http://www.movie.hkepx.cn/xiju/6593136.htm)
-- [你会去电影院看沈腾主演的新电影《欢迎来龙餐馆》吗？票房能破50亿吗?](http://www.daogukj.com/pencausq/)
+- [伊朗陆军司令：将回应任何敌对行动](http://www.movie.hkepx.cn/xiju/5097281.htm)
+- [朱一龙鼻子怎么了](http://www.movie.hkepx.cn/xiju/1723334.htm)
+- [2026 上半年国内手机销量 TOP30 出炉，苹果包揽前三华为领跑国产，哪些品牌的表现值得关注？](http://www.daogukj.com/8560862)
+- [2026年wtt横滨冠军赛女单半决赛，张本美和4：2击败王艺迪，怎么评价这一场对决？](http://www.movie.hkepx.cn/movie/0534103.htm)
+- [儿子去世孙子不捧骨灰盒被查出非亲生](http://www.daogukj.com/egppjxgx/)
+- [大V：日称解放军有8架歼35是自欺欺人](http://www.daogukj.com/kdnhmkcj/)
+- [球球了，我平时好像不长这样啊啊！！](http://www.daogukj.com/khgfsqiu/)
+- [《龙餐馆》 冲奖](http://www.movie.hkepx.cn/xiju/9522986.htm)
+- [女子被狗舔脚后被判定狂犬病三级暴露，因脚趾甲沟炎存在皮肤破损，反映出什么认知误区？哪些情况要及时就医？](http://www.daogukj.com/sygihuae/)
+- [宋佳：“小花”来到百花特别高兴](http://www.daogukj.com/sucemorm/)
+- [WTT横滨赛：张本智和夺得男单冠军](http://www.movie.hkepx.cn/xiju/6593136.htm)
+- [台风登陆现场：狂风怒扫雨水横飞](http://www.daogukj.com/pencausq/)
 - [台风白海豚正式登陆](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
-- [大V：日称解放军有8架歼35是自欺欺人](http://www.daogukj.com/2517745)
-- [上海北横通道积水？系旧视频](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
-- [2026 上半年国内手机销量 TOP30 出炉，苹果包揽前三华为领跑国产，哪些品牌的表现值得关注？](http://www.movie.hkepx.cn/xiju/5387412.htm)
-- [白海豚 没囤东西就来了](http://www.movie.hkepx.cn/movie/2763004.htm)
-- [王从天降](http://www.movie.hkepx.cn/xiju/8265001.htm)
-- [新篇章 | 《穿越火线：潜伏》CF IP嘉年华发布现场](http://www.daogukj.com/pbivxwuy/)
-- [迪丽热巴素颜香港plog](http://www.daogukj.com/msnbkunl/)
-- [宝妈自然受孕四胞胎取名“平安喜乐”](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
-- [【独家】《记忆管理局》第4集 燃灯与灰火【8月国创】](http://www.movie.hkepx.cn/movie/3294285.htm)
-- [【TF家族练习生】《突围II破局》EP07：破局（上）](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
-- [浙江玉环一个月两遇台风](http://www.daogukj.com/7751528)
-- [首个全国产10万卡AI超集群投用](http://www.movie.hkepx.cn/xiju/5949359.htm)
+- [台风白海豚](http://www.daogukj.com/2517745)
+- [张本兄妹同时夺冠](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
+- [Chinamaxxing全球出圈！是啥意思](http://www.movie.hkepx.cn/xiju/5387412.htm)
+- [一个“村级”游泳池为啥全网点赞](http://www.movie.hkepx.cn/movie/2763004.htm)
+- [【TF家族练习生】《突围II破局》EP07：破局（下）](http://www.movie.hkepx.cn/xiju/8265001.htm)
+- [台风「白海豚」在浙江台州玉环沿海登陆，中心附近最大风力 14 级，你那边现在情况如何？](http://www.daogukj.com/pbivxwuy/)
+- [独闯南太行的失联女生最后轨迹已确认](http://www.daogukj.com/msnbkunl/)
+- [白海豚登陆强度略强于巴威](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
+- [如何看待“现在查 RTX 5090 价格已经变成了一种恐怖片题材”这个梗？](http://www.movie.hkepx.cn/movie/3294285.htm)
+- [BLG 官宣 Flandre 加入，你看好这次的再度联手吗？可能会对选手以及战队有哪些影响？](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
+- [韩乔生谈张本智和获横滨赛冠军](http://www.daogukj.com/7751528)
+- [王从天降](http://www.movie.hkepx.cn/xiju/5949359.htm)
 - [台风白海豚在浙江玉环沿海登陆](http://www.movie.hkepx.cn/movie/9383605.htm)
-- [立秋后少吃瓜果可减少生病](http://www.daogukj.com/0705031)
-- [工资5000能存4999的吃法](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
-- [台风琵鹭来了](http://www.daogukj.com/iaxbxgkd/)
-- [《龙餐馆》 冲奖](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
-- [谢霆锋没提王菲名字全网都听懂了](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
-- [直击东北超：呼和浩特vs沈阳](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
-- [前7个月我国区域外贸增势稳健](http://www.movie.hkepx.cn/xiju/9594303.htm)
-- [台湾记者直面白海豚紧抓杆不敢松手](http://www.daogukj.com/3727264)
-- [宇树科技中一签需缴7.54万元](http://www.movie.hkepx.cn/movie/8918029.htm)
-- [中国第1高楼阻尼器摆动明显](http://www.daogukj.com/5225618)
-- [哈哈哈哈哈哈哈！！！](http://www.daogukj.com/7483927)
-- [伊朗最高领袖与总统会谈](http://www.daogukj.com/hmowpwmp/)
-- [田曦薇没刘海差点认不出来](http://www.movie.hkepx.cn/movie/8474409.htm)
+- [原字节跳动机器人一号位加入小米](http://www.daogukj.com/0705031)
+- [穿8850元MiuMiu鞋脚被染黑 官方回应](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
+- [婴儿被子蒙头快窒息时小猫扒醒宝妈](http://www.daogukj.com/iaxbxgkd/)
+- [评分8.7！我们奥特曼有救啦！提欧奥特曼开播吐槽！](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
+- [上海地铁](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
+- [张本智和回应“兄妹双双登顶”](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
+- [中国制造硬核瞬间](http://www.movie.hkepx.cn/xiju/9594303.htm)
+- [猫咪过火把节被抹成黑猫](http://www.daogukj.com/3727264)
+- [南太行失联女子最后轨迹定位已确认](http://www.movie.hkepx.cn/movie/8918029.htm)
+- [在贵州按猪遇见羡慕的婚礼](http://www.daogukj.com/5225618)
+- [😨"后室里的乌鲁鲁"😰](http://www.daogukj.com/7483927)
+- [香港刷新1884年以来最高气温纪录](http://www.daogukj.com/hmowpwmp/)
+- [上海北横通道出现积水系旧视频](http://www.movie.hkepx.cn/movie/8474409.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价今年被称为「最贵开学季」？游戏本涨至上万元「劝退」准大学生，有哪些平替方案？](https://www.zhihu.com/question/2058246439600498015)
+- [白海豚对华东华北影响会大于巴威](https://www.toutiao.com/trending/7670831404032429611/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227670831404032429611%22%2C%22hot_board_impr_id%22%3A%22202608092207165B262B7ADB59904F3055%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d036648dd9b58813fe76 -->
+<!-- content-fingerprint: 2728d199a0c23f158c14 -->
