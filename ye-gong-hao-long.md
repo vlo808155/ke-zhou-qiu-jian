@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 母亲下水救女双双遇险 市民合力施救
+# 《肖申克的救赎》内地定档 豆瓣9.7分
 
-> 来源：今日头条热榜 · 排名：第 10 位 · 热度：8690559 · 分类：新事件上榜 · 更新：2026-08-10T18:02:17+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6947229 · 更新：2026-08-10T20:35:29+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“母亲下水救女双双遇险 市民合力施救”位列第 10 位，公开热度指标为 8690559，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“《肖申克的救赎》内地定档 豆瓣9.7分”位列第 9 位，公开热度指标为 6947229。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：8月10日消息，豆瓣9.7分、IMDB Top250榜首——影史经典《肖申克的救赎》4K修复版，定档8月28日上映！本片于1994年10月14日在美国公映，32年后首登中国内地院线，还将在全球首度呈现该片IMAX版本。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [网友发帖吐槽医院梯控员工作太闲，医院梯控员真的「工作清闲」吗？如何看待当事员工称自己因该帖已被开除？](lan-yu-chong-shu.md)
-- [四代同框](zi-xiang-mao-dun.md)
-- [“上海女子在台风中坠楼”不实](bei-gong-she-ying.md)
-- [泰国被接机女生疑遭带走](jing-gong-zhi-niao.md)
+- [无畏向吴老狗请教驯兽秘籍](lan-yu-chong-shu.md)
+- [A股“股王”大跌](zi-xiang-mao-dun.md)
+- [硬盘、内存价格还会降回去吗？](bei-gong-she-ying.md)
+- [大理百元豪车租赁乱象调查：186元租的保时捷是重大事故车，游客拒买高价保险遭敲诈【探照灯计划】](jing-gong-zhi-niao.md)
 
 ## 站内推荐
 
-- [CF出新作，居然是3A单机？深度对话《穿越火线：潜伏》首席创意官【视频播客EP.64】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [特斯拉将建史上最大芯片厂，这对全球芯片产业有何影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [横滨女队三人围剿也没能阻挡张本美和夺冠，是哪里出了问题?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [避暑大军已抵达山西，山西为何成为夏季热门避暑选择？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [2026和平精英刺激之夜完整高清回放](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [相声演员李晓龙因病去世 年仅38岁](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [演员秦焰去世 曾出演《狂飙》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [232亿 中产最爱的“贵族水”被卖了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [山西数名男子捞起大鱼就跑 公园报警](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [独闯南太行失联14天的女子已找到](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
-- [百花奖闭幕式节目单正式揭晓](http://www.daogukj.com/biwoqqwj/)
-- [横滨女队三人围剿也没能阻挡张本美和夺冠，是哪里出了问题?](http://www.movie.hkepx.cn/xiju/2248691.htm)
-- [Ning爆料Bin彻底不打了](http://www.daogukj.com/0541941)
-- [寿司郎误将已付款顾客当逃单报警](http://www.movie.hkepx.cn/xiju/2330971.htm)
-- [弗洛伊德的理论那么扯淡为什么他又那么出名？](http://www.movie.hkepx.cn/movie/1952908.htm)
+- [孙女用AI把奶奶P进《西游记》](http://www.daogukj.com/biwoqqwj/)
+- [232亿 中产最爱的“贵族水”被卖了](http://www.movie.hkepx.cn/xiju/2248691.htm)
+- [原来这才是金项链的正确戴法](http://www.daogukj.com/0541941)
+- [假如全球所有人同时获得三个选项：立刻变成祖国人、十分钟后变成超人、十五分钟后变成曼哈顿博士，怎么选？](http://www.movie.hkepx.cn/xiju/2330971.htm)
+- [“白海豚”拐了个弯 走出罕见路线](http://www.movie.hkepx.cn/movie/1952908.htm)
 - [武汉司门口黄鹤楼天桥市容管理人员与占道摊贩发生激烈肢体冲突，3 人被刑拘，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7386608.htm)
-- [只是一个低脂的校园采访而已](http://www.daogukj.com/cwfgitul/)
+- [KPL邂逅法式山海浪漫](http://www.daogukj.com/cwfgitul/)
 - [APEC峰会倒计时100天](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
-- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.daogukj.com/3149137)
-- [演员秦焰去世](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
-- [《肖申克的救赎》内地定档 豆瓣9.7分](http://www.movie.hkepx.cn/movie/1545092.htm)
-- [大瓶啤酒为何卖疯了](http://www.movie.hkepx.cn/xiju/3608340.htm)
-- [【TF家族练习生】《TLOG》15：《异常加载中》MV拍摄花絮](http://www.daogukj.com/7262388)
-- [立秋后突然就不热了](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
-- [第一批用AI租房的受益者出现了](http://www.daogukj.com/8314202)
-- [女孩南太行失联14天后遗体被找到](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
-- [王从天降](http://www.movie.hkepx.cn/xiju/5194753.htm)
-- [A股“股王”大跌](http://www.movie.hkepx.cn/movie/0714674.htm)
+- [白海豚 洗衣凝珠视角](http://www.daogukj.com/3149137)
+- [白海豚突然大拐弯](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
+- [王骁获百花奖最佳男配角](http://www.movie.hkepx.cn/movie/1545092.htm)
+- [男子用螳螂啃食脸上瘊子 医生不建议](http://www.movie.hkepx.cn/xiju/3608340.htm)
+- [泰国 电诈园区](http://www.daogukj.com/7262388)
+- [沈腾新片《欢迎来龙餐馆》点映口碑爆棚，如何评价沈腾此番演技？喜剧演员要打破观众的固有印象难度在哪？](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
+- [如何评价美剧《龙之家族 第三季》第八集？](http://www.daogukj.com/8314202)
+- [胖东来为何宁愿关店也不妥协](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
+- [李昀锐首次演讲](http://www.movie.hkepx.cn/xiju/5194753.htm)
+- [宇树科技：网上发行最终中签率0.0181%](http://www.movie.hkepx.cn/movie/0714674.htm)
 - [独闯南太行失联女子遗体已找到](http://www.movie.hkepx.cn/movie/7940067.htm)
-- [深圳APEC峰会倒计时100天](http://www.movie.hkepx.cn/movie/6237029.htm)
-- [连胜越高，对局反而简单了，这都是我努力的结果](http://www.movie.hkepx.cn/movie/1586252.htm)
-- [宇树 中签堪比中彩票](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
-- [特斯拉将建史上最大芯片厂，这对全球芯片产业有何影响？](http://www.daogukj.com/0480738)
-- [沈腾龙餐馆口碑大爆 出品方一字涨停](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
-- [女子瘫痪10年重新站起称爱是奇迹](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
-- [67岁农户听信AI喷农药致150亩地一夜枯萎，老人听AI翻车的事层出不穷，有啥办法能帮助他们辨别吗？](http://www.movie.hkepx.cn/movie/6914548.htm)
-- [泰国被接机女生疑遭带走](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
-- [西语Vlog｜我终于来到了巴塔哥尼亚](http://www.daogukj.com/8595353)
-- [原来90后这么小众](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
-- [发烧梗](http://www.daogukj.com/gozdpjud/)
-- [假如全球所有人同时获得三个选项：立刻变成祖国人、十分钟后变成超人、十五分钟后变成曼哈顿博士，怎么选？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
-- [钟睒睒：必须限制电商平台权力](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
-- [苏州河水抢排翻泄至黄浦江](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
-- [谢婷婷晒照怀念谢贤](http://www.movie.hkepx.cn/movie/4558388.htm)
-- [演员秦焰去世 曾出演《狂飙》](http://www.movie.hkepx.cn/movie/4205366.htm)
-- [多位大疆员工离职后创业成功](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
-- [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
-- [百花奖红毯](http://www.daogukj.com/8939549)
-- [台风「白海豚」疯狂倒水，上海内涝严重，地铁多条线路停运，你的出行和生活受影响了吗？今天有居家办公吗？](http://www.daogukj.com/ixxuunfh/)
-- [如何评价《绝区零》3.1版本拍照活动「咔嚓！焦点对决！」？大家都拍出了哪些有意思的照片？](http://www.daogukj.com/2398854)
-- [网友发帖吐槽医院梯控员工作太闲，医院梯控员真的「工作清闲」吗？如何看待当事员工称自己因该帖已被开除？](http://www.movie.hkepx.cn/movie/0490118.htm)
-- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](http://www.daogukj.com/utabxjrg/)
-- [龙餐馆](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
-- [费大厨撤下全国小炒肉大王称号](http://www.daogukj.com/uqvpybnb/)
-- [“上海女子在台风中坠楼”不实](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
-- [不打游戏这件事害惨了我](http://www.movie.hkepx.cn/xiju/5297963.htm)
-- [无锡降雨量冲至全国第一](http://www.daogukj.com/4768730)
+- [长江十年行](http://www.movie.hkepx.cn/movie/6237029.htm)
+- [易烊千玺用床单当桌布](http://www.movie.hkepx.cn/movie/1586252.htm)
+- [大V：塞俄关系越来越微妙](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
+- [演员秦焰去世 曾出演《狂飙》](http://www.daogukj.com/0480738)
+- [女子称7旬环卫工父亲被女主播骗钱3年](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
+- [母子三人想去郴州结果到了彬州](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
+- [CF出新作，居然是3A单机？深度对话《穿越火线：潜伏》首席创意官【视频播客EP.64】](http://www.movie.hkepx.cn/movie/6914548.htm)
+- [大理百元豪车租赁乱象调查：186元租的保时捷是重大事故车，游客拒买高价保险遭敲诈【探照灯计划】](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
+- [杨幂现场换发型了](http://www.daogukj.com/8595353)
+- [百花奖](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
+- [自学五天做出来的神人游戏](http://www.daogukj.com/gozdpjud/)
+- [网传数据显示广东人吃肉量是山西的4倍以上，是真是假？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
+- [姚景源：不主张给低收入群体直接发钱](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
+- [打骂乡村兽医的后果？？？](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
+- [发烧梗](http://www.movie.hkepx.cn/movie/4558388.htm)
+- [母亲救溺水女儿 两人均被海浪卷走](http://www.movie.hkepx.cn/movie/4205366.htm)
+- [萨日娜获百花奖最佳女配角](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
+- [相声演员李晓龙因病去世 年仅38岁](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
+- [王骁百花奖最佳男配](http://www.daogukj.com/8939549)
+- [《欢迎来龙餐馆》为啥不叫《欢迎来到龙餐馆》？](http://www.daogukj.com/ixxuunfh/)
+- [男单前10国乒仅剩王楚钦、林诗栋](http://www.daogukj.com/2398854)
+- [无畏向吴老狗请教驯兽秘籍](http://www.movie.hkepx.cn/movie/0490118.htm)
+- [上海将苏州河水强排至黄浦江](http://www.daogukj.com/utabxjrg/)
+- [我和bro的潦草日常belike:](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
+- [多地高分生扎堆填报「3+4」中本贯通，为什么会这样？中本贯通有哪些优势？](http://www.daogukj.com/uqvpybnb/)
+- [硬盘、内存价格还会降回去吗？](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
+- [ai漫剧顶流已经出了8季了](http://www.movie.hkepx.cn/xiju/5297963.htm)
+- [百余名菲律宾公民在中国被依法处理](http://www.daogukj.com/4768730)
 - [《人民の少爷》](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
-- [迪丽热巴曾靠玉米茶叶蛋熬过追梦期](http://www.daogukj.com/6807039)
+- [67岁农户听信AI喷农药致150亩地一夜枯萎，老人听AI翻车的事层出不穷，有啥办法能帮助他们辨别吗？](http://www.daogukj.com/6807039)
 
 </details>
 
 ## 原始来源
 
-- [母亲下水救女双双遇险 市民合力施救](https://www.toutiao.com/trending/7671925232492429338/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227671925232492429338%22%2C%22hot_board_impr_id%22%3A%222026081018021582154F22894F8BE94222%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [《肖申克的救赎》内地定档 豆瓣9.7分](https://www.baidu.com/s?wd=%E3%80%8A%E8%82%96%E7%94%B3%E5%85%8B%E7%9A%84%E6%95%91%E8%B5%8E%E3%80%8B%E5%86%85%E5%9C%B0%E5%AE%9A%E6%A1%A3+%E8%B1%86%E7%93%A39.7%E5%88%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7a25a1da3ea54e128a39 -->
+<!-- content-fingerprint: f70a338d8335b1d89e19 -->
