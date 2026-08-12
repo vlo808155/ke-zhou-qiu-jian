@@ -2,11 +2,11 @@
 
 # 互联护苗2026
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6856064 · 更新：2026-08-12T17:03:23+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6851000 · 更新：2026-08-12T18:18:00+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“互联护苗2026”位列第 10 位，公开热度指标为 6856064。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“互联护苗2026”位列第 10 位，公开热度指标为 6851000。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：8月8日，“互联护苗2026”研学活动在京举办，活动通过机器人科普实践提升未成年人网络素养与创新意识。
 
@@ -18,73 +18,73 @@
 
 ## 相关热点
 
-- [贾冰否认私人饭局爆粗口](dong-shi-xiao-pin.md)
+- [华人富豪全裸坠亡女友发声](dong-shi-xiao-pin.md)
 - [AI科创润童心 网络安全伴成长](han-dan-xue-bu.md)
-- [如何看待 C 罗社媒晒婚戒官宣与乔治娜正式完婚，相恋十年低调举办私密婚礼？](qi-ren-you-tian.md)
-- [全程随意发挥挑战，感到尴尬奖励1000](chao-san-mu-si.md)
+- [兰州公交规定，车辆能耗超出规定标准将扣除司机绩效工资，导致司机不敢开空调，把车辆能耗和绩效挂钩合理吗？](qi-ren-you-tian.md)
+- [第一印象：毁掉一个人，为什么只需要0.1秒？](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [上半年结婚登记327.5万对](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [演员开始批量生产自己](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [中598万男子称保密是怕影响妻子孩子](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [沈腾调侃贾冰：最近又聚会了没有](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [男子酒后与女子亲密猝死家属索赔被驳](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [国务院原总理朱镕基逝世](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [“摸到国徽了 我才不害怕”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [41国联名吓唬谁？中国试射不看谁脸色](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [男子找邻居哭穷 2个月借走1400万被拘](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [如何看待李嘉诚又一次大撤退](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [沈腾在电影《欢迎来龙餐馆》中从喜剧转型演正剧，如何评价其演技？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [龙餐馆差评被批文化殖民心态](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [8 月 12 日河南发布暴雨红色预警，多地停课停工，安徽、浙江、河北等地有大暴雨，你那里情况怎么样？](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [全程随意发挥挑战，感到尴尬奖励1000](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [《影之刃零》正式开启预售，标准版268元，甄子丹出演核心角色，11分钟实机视频全程高能，如何评价？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [全球首款机器人手机今日发布](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [男子酒后与女子亲密猝死家属索赔被驳](http://www.daogukj.com/4734416)
+- [你认为川菜的麻辣是为了祛湿，还是为了掩盖食材不新鲜味道？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [日全食](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [武侠世界的朝廷第一高手，为什么总是深宫里的公公，而不是统兵大将或御前侍卫?](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [第一印象：毁掉一个人，为什么只需要0.1秒？](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [如何看待京东上大规模出现「李鬼」笔记本电脑？](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [丁禹兮回应脖子前倾](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [如何看待李嘉诚又一次大撤退](http://www.daogukj.com/4734416)
 - [女子调婚姻证明发现和前男友结过婚](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [300w粉百大区UP主开什么车？有山先生爱车首曝！](http://www.daogukj.com/eujljnlh/)
-- [交警回应多人国道上驾轮椅行驶](http://www.daogukj.com/3484796)
-- [中598万男子称保密是怕影响妻子孩子](http://www.daogukj.com/6840289)
-- [你遇到的自助餐餐厅为了让顾客尽量少吃都采用了哪些措施？](http://www.daogukj.com/8544186)
-- [二阳“微服私访”](http://www.daogukj.com/4262842)
-- [演员开始批量生产自己](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [船新版本新宝岛！这个联动怎么说？](http://www.daogukj.com/eujljnlh/)
+- [媒体：中国试射导弹不看谁脸色](http://www.daogukj.com/3484796)
+- [41国联名吓唬谁？中国试射不看谁脸色](http://www.daogukj.com/6840289)
+- [家里只有自动挡汽车，却被家人劝着考 C1，「驾照能考全就考全」的观念现在还合理吗？](http://www.daogukj.com/8544186)
+- [来龙餐馆 好好吃饭](http://www.daogukj.com/4262842)
+- [“摸到国徽了 我才不害怕”](http://www.movie.hkepx.cn/movie/0136106.htm)
 - [未来5年 15万亿元或将投向这里](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [沈腾调侃贾冰：最近又聚会了没有](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [贾冰否认私人饭局爆粗口](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [为什么液体可以完全浮在水上面，固体则必须被淹没一部分？](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [雷军称小米成功量产发光材料，成为国内首家实现底层发光材料自研的手机厂商，有哪些突破？会带来什么改变？](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [王者荣耀的公平竞技又回来了，这种熟悉的感觉](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [《异环》残虹角色PV丨惑心谲影](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [高价洞洞鞋卖不动了](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [深圳大学拟拿出5.3亿元，买下整栋商品房给学生当宿舍，背后有哪些考量？买商品房当宿舍会成为趋势吗？](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [曝 10 万亿参数的 GPT-6 即将发布，10 万亿参数是什么水平？对此你有哪些期待？](http://www.daogukj.com/4133568)
-- [家里只有自动挡汽车，却被家人劝着考 C1，「驾照能考全就考全」的观念现在还合理吗？](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [7月汽车销量前10仅卡罗拉锐放 1 款燃油车，吉利星愿、零跑A10等持续热销，燃油车还有多大生存空间？](http://www.daogukj.com/0480016)
-- [喻言帮沈月捡到了三万块钱的耳夹](http://www.daogukj.com/4561506)
-- [几块钱的手机壳可能在消耗你的健康](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [41国联名吓唬谁？中国试射不看谁脸色](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [郭兰英走了 “一条大河”还在流淌](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [C罗宣布结婚](http://www.daogukj.com/jbdvxipc/)
-- [【原神八国语填翻】荣耀向我俯首 (八神原声演唱版)⚡𝑳𝒂 𝒈𝒍𝒐𝒊𝒓𝒆 𝒂 𝒎𝒆𝒔 𝒈𝒆𝒏𝒐𝒖𝒙⚡](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [男子找邻居哭穷 2个月借走1400万被拘](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [华人富豪全裸坠亡女友发声](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [五大热门国产中央空调实测真拆，谁才是真低频、猛高频，更符合中国家庭使用习惯的中央空调？](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [求职者因已结案诉讼、仲裁记录背调被拒聘，背调信息的准确性谁来保证？打工人怎么才能不被背调「误伤」？](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [特朗普挥不动的重拳](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [上半年结婚登记327.5万对](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [曝 10 万亿参数的 GPT-6 即将发布，10 万亿参数是什么水平？对此你有哪些期待？](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [李嘉诚再抛售海外资产，估值最多为 166 亿港元，如何理解这一举动？长江实业为何频繁出售海外资产？](http://www.daogukj.com/4133568)
+- [深圳大学拟拿出5.3亿元，买下整栋商品房给学生当宿舍，背后有哪些考量？买商品房当宿舍会成为趋势吗？](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [8 月 12 日河南发布暴雨红色预警，多地停课停工，安徽、浙江、河北等地有大暴雨，你那里情况怎么样？](http://www.daogukj.com/0480016)
+- [腾讯自由现金流](http://www.daogukj.com/4561506)
+- [曝大众酝酿把中国新能源车卖到欧洲](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [印度和越南也催生了 发钱鼓励生育](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [400年古槐被吊车撞断？林业局回应](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [上半年全国结婚登记327.5万对](http://www.daogukj.com/jbdvxipc/)
+- [《异环》残虹角色PV丨惑心谲影](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
 - [小米SU7七月销量21044辆](http://www.daogukj.com/awgjjjvg/)
-- [油价即将调整 跌幅继续缩水](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [船新版本新宝岛！这个联动怎么说？](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [华裔加密货币大亨离奇坠亡](http://www.daogukj.com/ditzbwwz/)
+- [郭兰英走了 “一条大河”还在流淌](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [《癫佬外传》第一季合集](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [被薅怕了的酒店开始往死里防](http://www.daogukj.com/ditzbwwz/)
 - [武大靖出任中国短道速滑队主教练](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [印度客机空中骤降伤20余人 机长涉毒](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [虞书欣张昊玥事件时间线](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [《癫佬外传》第一季合集](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [蒯曼7个半小时三战](http://www.daogukj.com/aqmuomii/)
-- [男子找邻居哭穷 2个月借走1400万被拘](http://www.daogukj.com/phjdnbun/)
-- [⚡泥 肘⚡](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [特朗普挥不动的重拳](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [《顽童戏老叟》](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [郭德纲篡改红歌 武汉文旅立案](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [成都一面馆老板松弛感营业火爆全网](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [于荣光释小龙现身哈尔滨逛吃](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [「妄想天使」全新企划《天使导览》第一期](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [郭兰英1994年将演唱版权无偿捐国家](http://www.daogukj.com/aqmuomii/)
+- [高价洞洞鞋卖不动了](http://www.daogukj.com/phjdnbun/)
+- [百米赛道高难度闯关、只有上过的才知道含金量有多高！](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [锻造马赛克爆炸纹大马士革](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [赵一鸣4块牛肉干64元 复称仅17元](http://www.movie.hkepx.cn/xiju/5109166.htm)
 - [邵兵 退赛](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [高叶曝卫诗雅获奖后聚餐趣事](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [被刺19岁辅警摩托车噪音达110分贝](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [曾被戏称为「狗剩」的国产龙芯，其 3A6000 出货量突破百万，这对国产 CPU 发展有何意义？](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [C罗宣布结婚](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
 - [AI科创润童心 网络安全伴成长](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c375012eb919f5b0fbda -->
+<!-- content-fingerprint: e551abeb91926859623c -->
