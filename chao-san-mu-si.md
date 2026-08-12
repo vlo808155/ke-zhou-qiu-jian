@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 网红逍遥客为救父亲氨气中毒去世
+# 男子不堪炸街噪音刺死辅警被判死刑
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6758442 · 更新：2026-08-12T07:56:17+08:00
+> 来源：微博热搜 · 排名：第 12 位 · 热度：440477 · 分类：民生新闻 · 更新：2026-08-12T10:38:21+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“网红逍遥客为救父亲氨气中毒去世”位列第 11 位，公开热度指标为 6758442。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“男子不堪炸街噪音刺死辅警被判死刑”位列第 12 位，公开热度指标为 440477，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月11日，吉林蛟河网红“逍遥客”时隔17天发视频称，逍遥客于2026年7月26日下午3点53分，因救其父亲氨气中毒抢救无效与世长辞，年仅36岁。据悉，“逍遥客”的真名叫客群。目前其父亲并无生命危险，其妻子将遵从丈夫的遗愿，继续在“逍遥客”的账号上更新。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [Angelababy时隔一年千鸟格造型](dui-niu-tan-qin.md)
-- [媒体：哪吒票房换不来圈内人一次起立](mang-ren-mo-xiang.md)
-- [演员贾冰参加朋友饭局被偷拍，网传视频中有爆粗口、抽烟喝酒等行为，是真的吗？为什么反而被网友力挺？](yuan-mu-qiu-yu.md)
-- [勇闯互联网](sha-ji-qu-luan.md)
+- [河南许昌：市民非必要不外出](dui-niu-tan-qin.md)
+- [巴、沙、土三国共同防务协议只是代表了中东新局面吗？背后要注意什么 ？](mang-ren-mo-xiang.md)
+- [【战双帕弥什】「歧海循光」版本PV](yuan-mu-qiu-yu.md)
+- [高考444分考生回应被殡葬专业录取](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
-- [2026和平精英刺激之夜完整高清回放](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [东北被低估的城市 爆发了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [C罗晒照官宣完婚](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [河南平顶山发通知：停课停工停产停业](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [跳桥救人小哥彭清林又救回了一条命](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [【咒术回战IF】高羽史彦:你觉得未来的英雄来救场会搞笑吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [比亚迪海獭日本订单破千](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [业内认为蒋奇明是下一个大演员](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [如何看待胖东来的“反规模”叛逆期](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [美共和党候选人骂前以军士兵种族灭绝](http://www.daogukj.com/4141941)
-- [16 岁少年强抱女友跳河自己上岸女友溺亡，凶手母亲包庇其 17 年，凶手及其家属可能受到哪些处罚？](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [东北被低估的城市 爆发了](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [Angelababy时隔一年千鸟格造型](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [俄称乌军袭击致9名外国人遇难](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [短剧演员自曝富婆带资进组演女主，给自己硬加 60 多场吻戏，短剧上线仅数日便被下架，如何看待此事？](http://www.daogukj.com/7265089)
-- [李玉刚发文悼念郭兰英](http://www.daogukj.com/3085948)
-- [原配妻子称丈夫非常坚定选择第三者](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [媒体：哪吒票房换不来圈内人一次起立](http://www.daogukj.com/jtbnzsng/)
-- [《阴阳师》×Vsinger丨联动限定角色洛天依情报公开](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [勇闯互联网](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [第一印象：毁掉一个人，为什么只需要0.1秒？](http://www.daogukj.com/5882217)
-- [高血压擅自停药的受害者出现了](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [中方坚决反对美方大搞麦克风外交](http://www.daogukj.com/0190432)
-- [梁文锋跻身全球最富有50人之列](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [伊朗高层近期密集调整军政核心职位，是出于哪些考虑？向外界传递了怎样的信息？](http://www.daogukj.com/nzmqevzx/)
-- [演员贾冰参加朋友饭局被偷拍，网传视频中有爆粗口、抽烟喝酒等行为，是真的吗？为什么反而被网友力挺？](http://www.daogukj.com/qnzjxpsz/)
-- [借用30多年 兰州拉面还给兰州了](http://www.daogukj.com/7347029)
-- [六公主力挺赵丽颖百花奖](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [桑德斯要求三大AI公司暂停开发](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [郭兰英逝世](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [曝赵一鸣4块牛肉干64元复称仅17元](http://www.daogukj.com/4141941)
+- [C919国产大飞机正式执飞国际商业航线](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [河南许昌：市民非必要不外出](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [《英文最差の一集》](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [三体IF线：如果维德成为执剑人](http://www.daogukj.com/7265089)
+- [C罗结婚5个孩子出席婚礼](http://www.daogukj.com/3085948)
+- [媒体：哪吒票房换不来圈内人一次起立](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [巴、沙、土三国共同防务协议只是代表了中东新局面吗？背后要注意什么 ？](http://www.daogukj.com/jtbnzsng/)
+- [第一印象：毁掉一个人，为什么只需要0.1秒？](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [高考444分考生回应被殡葬专业录取](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/5882217)
+- [5 万元以下微型车遇冷，40 万元以上新能源车热销，这说明了什么？](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [《我的祖国》演唱者郭兰英逝世](http://www.daogukj.com/0190432)
+- [马伊琍想让谁顺谁就顺极了](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [《阴阳师》×Vsinger丨联动限定角色洛天依情报公开](http://www.daogukj.com/nzmqevzx/)
+- [【战双帕弥什】「歧海循光」版本PV](http://www.daogukj.com/qnzjxpsz/)
+- [多地试点：直升高中](http://www.daogukj.com/7347029)
+- [白海豚](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [欢迎来龙餐馆票房](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [C罗五个孩子出席婚礼](http://www.movie.hkepx.cn/xiju/8115054.htm)
 - [C罗宣布结婚](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [《英文最差の一集》](http://www.daogukj.com/2641155)
-- [Claude证明黎曼猜想取得了重大突破，这个事件有什么开创性意义？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [马斯克：强烈推荐大家去中国看看](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [胖东来公布侵犯员工尊严案例，顾客驾车顶撞员工被行拘、掌掴员工被起诉，员工获上万元赔偿，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [赵一鸣涉事店铺老板回应](http://www.daogukj.com/3850819)
+- [曾被戏称为「狗剩」的国产龙芯，其 3A6000 出货量突破百万，这对国产 CPU 发展有何意义？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [直击全国多地强降雨](http://www.daogukj.com/2641155)
+- [怎么看 DeepSeek 注册 Harness 公众号并选用黑鲸鱼 logo ？](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [郭兰英逝世](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [孕妇胎监异常被安排4天后手术结果胎儿死亡，医院40余次篡改病历，法院判医院赔偿 14 万，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [比亚迪闪充开抢10万级市场](http://www.daogukj.com/3850819)
 - [请查收这份暴雨天避险指南](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [中国女排3-0横扫日本](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [王菲过完57岁生日带女儿回北京](http://www.daogukj.com/9307696)
-- [为什么沈腾作为中国影史票房第一人，却金鸡、百花、华表一个奖都没拿？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [雅典娜朋友发声](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [【不是说奥特曼在地球的活动时间只有三分钟吗】我发点别的看看流量怎么样，这不是我盗的，也别盗我视频](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [《我的前半生》全网翻红](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [租金从800降到450房东决定不租了](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [恢复生命力只需要一些低成本爱好](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [忙到晕倒炸鸡店员工已结算工资离职](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [男子直播淫秽内容获利0.1元被判刑](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [睡车里被酒店收150元住宿费事件反转](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [台风过境浙江舟山1500艘渔船出海开捕](http://www.daogukj.com/6360237)
-- [上海浦东一女子台风中坠楼不实](http://www.daogukj.com/7781714)
-- [跳桥救人小哥彭清林又救回了一条命](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [夫妻结婚40余年一直实行AA制](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [赵心童遭张安达绝杀止步首轮](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [女子3万全款购入宝鸡40平米住宅](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [租金从800元降到450元房东决定不租了](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [怎样评价高希希拍《江流不尽之三国时代》将参考《史记》？](http://www.movie.hkepx.cn/xiju/7034358.htm)
-- [曝赵一鸣4块牛肉干64元复称仅17元](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [东莞招教师将其称作「课时服务人员」，网友质疑老师变为服务者，如何看待这一称呼的转变？会弱化教师身份吗？](http://www.daogukj.com/nlksxqaw/)
+- [深圳大学拟拿出5.3亿元，买下整栋商品房给学生当宿舍，背后有哪些考量？买商品房当宿舍会成为趋势吗？](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [这已经不是一般的变态了，必须加大电量](http://www.daogukj.com/9307696)
+- [最有魅力的男主！到底谁才是智性恋的天花板？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [印度为何突然对华示好](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [王者荣耀的公平竞技又回来了，这种熟悉的感觉](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [曝 10 万亿参数的 GPT-6 即将发布，10 万亿参数是什么水平？对此你有哪些期待？](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [百万粉丝网红姜小柔去世，年仅 24 岁，还有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [茅台的红丝带原来是这样用的](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [中方坚决反对美方大搞麦克风外交](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [暑期档 沈腾效应](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [如何评价起点官方被曝禁止新人作者使用 AI 润色？否则不允许上架？](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [男子强行超车剐倒女子逃逸被抓](http://www.daogukj.com/6360237)
+- [谁家领导出来送外卖了](http://www.daogukj.com/7781714)
+- [如何看待胖东来的“反规模”叛逆期](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [日全食](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [【不是说奥特曼在地球的活动时间只有三分钟吗】我发点别的看看流量怎么样，这不是我盗的，也别盗我视频](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [夫妻结婚40余年一直实行AA制](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [河南发布暴雨红色预警](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [沈腾新片豆瓣开分8.4](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [高钾晚餐可以让人睡得更香](http://www.movie.hkepx.cn/xiju/0218818.htm)
+- [小咕嘎我真得控制一下你了](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [网红逍遥客为救父亲氨气中毒去世](https://www.baidu.com/s?wd=%E7%BD%91%E7%BA%A2%E9%80%8D%E9%81%A5%E5%AE%A2%E4%B8%BA%E6%95%91%E7%88%B6%E4%BA%B2%E6%B0%A8%E6%B0%94%E4%B8%AD%E6%AF%92%E5%8E%BB%E4%B8%96&sa=fyb_news&rsv_dl=fyb_news)
+- [男子不堪炸街噪音刺死辅警被判死刑](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E4%B8%8D%E5%A0%AA%E7%82%B8%E8%A1%97%E5%99%AA%E9%9F%B3%E5%88%BA%E6%AD%BB%E8%BE%85%E8%AD%A6%E8%A2%AB%E5%88%A4%E6%AD%BB%E5%88%91)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5b58dba9b2e48fdb768e -->
+<!-- content-fingerprint: f68d6be24931d1d02e36 -->
