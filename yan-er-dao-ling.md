@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 职场人嘴替！曹国舅出场台词火出圈
+# 网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6951286 · 更新：2026-08-13T14:03:39+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：174 万热度 · 分类：问答 · 更新：2026-08-13T15:49:29+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“职场人嘴替！曹国舅出场台词火出圈”位列第 9 位，公开热度指标为 6951286。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？”位列第 9 位，公开热度指标为 174 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，《八仙》曹国舅出场台词火出圈，丝毫不吃压力，完全是职场人嘴替。
+来源公开摘要显示：网传《欢迎来龙餐馆》原本是徐峥的“饼”确有其事，但最终沈腾接棒已成定局，且徐峥本人不仅未生嫌隙，反而公开包场力挺，大方送上祝福。 一、传闻的三大依据确凿角色名暗藏玄机：主角取名“徐福”，与2022年徐峥在文牧野导演的《奇迹·笨小孩》中客串的厨师角色同名同姓，被外界普遍视为导演为旧搭档埋下的伏笔量身打造的“药神配方”：文牧野+徐峥+宁浩的黄金组合本就为复刻《我不是药神》的成功。网友评论文牧野的电影里处处都是“徐峥味儿”，甚至有观众在沈腾身上看到了徐峥的影子。圈内与片方的默认：《龙餐馆》立项初期男主确为徐峥，后更换为沈腾主演的说法得到众多业内人士和片方信息的
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [恋与深空](nan-yuan-bei-zhe.md)
-- [美国老师崩溃痛哭：高中生不会读写](mai-du-huan-zhu.md)
-- [弗洛伊德的理论那么扯淡为什么他又那么出名？](ye-gong-hao-long.md)
-- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](lan-yu-chong-shu.md)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](nan-yuan-bei-zhe.md)
+- [A股三大指数冲高回落集体收绿](mai-du-huan-zhu.md)
+- [霍仙姑就是隔世老祖](ye-gong-hao-long.md)
+- [上市公司中科软被暂停军采资格](lan-yu-chong-shu.md)
 
 ## 站内推荐
 
 - [货拉拉司机中途加价被拒，带货跑 600 公里外，平台介入后仍拒不归还，怎么回事？暴露出平台哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [邹市明45岁重返拳击赛场](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [肖战李沁五搭只有狼殿下有吻戏](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [山西一医院实习护士晒患者隐私照，院方称将严肃处理，具体怎么回事？为什么这类事时有发生，问题出在哪？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [唐朝女人头上插那么多金钗步摇，走路不累吗，她们到底图什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [大量人员被抓捕！三角洲行动被央视点名](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [重罚台风请假员工公司多年0人参保](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [姜潮麦迪娜新疆婚礼含金量太高了](http://www.daogukj.com/dzgfjkrf/)
-- [郭德纲 改编红歌](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
+- [「直到大地变成一颗烂苹果！！」](http://www.daogukj.com/dzgfjkrf/)
+- [【毕导】吵翻天了！飞机放在跑步机上，到底能不能起飞？](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
 - [新能源汽车迎来两个“首次”突破](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
-- [全程随意发挥挑战，感到尴尬奖励1000](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
-- [重罚台风请假员工公司多年0人参保](http://www.daogukj.com/3970663)
-- [特朗普挥不动的重拳](http://www.movie.hkepx.cn/movie/5367817.htm)
-- [恋与深空](http://www.daogukj.com/bcavubqj/)
-- [【网络热门AI鉴定】AI版野兽先生，居然这么离谱?如何做一个AI版挑战视频?](http://www.daogukj.com/8795484)
-- [臣妾要线上告发熹贵妃](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
-- [飞龙在天！](http://www.movie.hkepx.cn/xiju/9388208.htm)
+- [银行能办结婚证了](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
+- [生理性喜欢是很可怕的一件事](http://www.daogukj.com/3970663)
+- [拳击生意盯上中国打工人](http://www.movie.hkepx.cn/movie/5367817.htm)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/bcavubqj/)
+- [《寄生虫》里的豪宅，看起来没什么东西，豪在哪里？](http://www.daogukj.com/8795484)
+- [爷爷用象鼻虫做风车逗孙女](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
+- [邹市明曾回应重返拳击赛场](http://www.movie.hkepx.cn/xiju/9388208.htm)
 - [DeepSeek V4 Pro 正式版发布，如何评价该模型？](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
 - [新规：禁止在居民楼开油烟餐饮](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
-- [天然气公司要求壁挂炉满8年必须换](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
-- [李雪健已经完全听不见了](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
-- [普京首次登上俄日争议岛屿](http://www.daogukj.com/3703920)
-- [曝曾辉送考人不是韩雨彤了](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
-- [“两弹一星”元勋王希季逝世](http://www.daogukj.com/akojpuxw/)
-- [情侣懒得拍婚纱照交给豆包](http://www.movie.hkepx.cn/movie/0307482.htm)
-- [海底捞终于原谅i人了](http://www.movie.hkepx.cn/xiju/4985219.htm)
-- [美国老师崩溃痛哭：高中生不会读写](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
-- [爷爷用象鼻虫做风车逗孙女](http://www.daogukj.com/sqbgfepf/)
-- [中国退役军人受邀训练国外安保员工](http://www.daogukj.com/0772573)
-- [李雪健已完全听不见](http://www.daogukj.com/iaiklsqf/)
-- [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
+- [肖战李沁五搭只有狼殿下有吻戏](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
+- [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
+- [手机价格全线暴涨](http://www.daogukj.com/3703920)
+- [如何评价9999元起售的荣耀RobotPhone，有哪些亮点值得关注？](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
+- [普京首次登上俄日争议岛屿](http://www.daogukj.com/akojpuxw/)
+- [花48万买事业编](http://www.movie.hkepx.cn/movie/0307482.htm)
+- [女子花8万做试管被推进简易房手术](http://www.movie.hkepx.cn/xiju/4985219.htm)
+- [A股三大指数冲高回落集体收绿](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
+- [“两弹一星”元勋王希季逝世](http://www.daogukj.com/sqbgfepf/)
+- [病毒吧吧主 人民的喜羊羊](http://www.daogukj.com/0772573)
+- [免费领鸡蛋还能抽奖？警惕](http://www.daogukj.com/iaiklsqf/)
+- [金鹰奖女主提名](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
 - [朱镕基同志逝世](http://www.daogukj.com/iejdmdav/)
-- [🔥全看完的可以封神了！三角洲AI夏日晚会🔥](http://www.daogukj.com/3595629)
-- [爱吃西红柿的人真的“赚”了](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
-- [如何看待本届羽毛球世锦赛东道主印度请来能模仿猴子的「猴语者」，只为驱赶冲进赛场的另一种猴子，能奏效吗？](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
-- [暑期网上冲浪 这份安全提示请收好](http://www.daogukj.com/7736560)
-- [中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
-- [学生兼职送外卖一个月倒欠公司200多](http://www.daogukj.com/9580900)
-- [银行能办结婚证了，天津开放首个银行网点婚姻登记处，这事只是「多一个领证地」这么简单吗？银行有什么盘算？](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
-- [中国印尼首次台岛以东联演有何深意](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
-- [卖车亏百万的4S店集体“爆改”](http://www.daogukj.com/lsbolopb/)
-- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/ssuxjwef/)
-- [手机壳 偷拍](http://www.daogukj.com/ukxzmdih/)
-- [一些泳池高手到了海里，为什么突然不会游了？](http://www.movie.hkepx.cn/movie/0461195.htm)
-- [媒体曝茶颜悦色入职培训强制收手机、被子叠「豆腐块」，具体什么情况？企业的行为侵犯员工权益了吗？](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
-- [网友爆料科技圈电商圈的大厂拒收阿里系中高层，是真的吗？反映了什么问题？他们为什么被称为互联网藤壶？](http://www.movie.hkepx.cn/movie/9527500.htm)
-- [《西游记》中猪八戒和沙和尚到底是真的弱还是在摸鱼？](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
-- [沈腾感谢榜一大姐马丽](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
-- [日本“草莓仙人”挑衅中国人](http://www.daogukj.com/hvfyixhj/)
-- [西班牙日全食](http://www.movie.hkepx.cn/movie/4719114.htm)
-- [美国渣男王水牛](http://www.daogukj.com/jollzwuo/)
-- [胖东来许昌老店关闭周边商户发声](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
-- [《癫佬外传》第一季合集](http://www.movie.hkepx.cn/movie/4200387.htm)
-- [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](http://www.movie.hkepx.cn/xiju/0668299.htm)
-- [邹市明45岁重返拳击赛场](http://www.movie.hkepx.cn/xiju/2277955.htm)
-- [为什么结婚少了离婚多了](http://www.daogukj.com/7974348)
-- [这视频等了五年！](http://www.movie.hkepx.cn/xiju/6045140.htm)
+- [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](http://www.daogukj.com/3595629)
+- [如何评价《影之刃零》开启预售之后迅速荣登全球Steam畅销榜第一名？](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
+- [董卿 抖音评论被造谣](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
+- [为什么蚊子没有进化成像猫猫那样特别可爱的样子，让人不忍心拍死？](http://www.daogukj.com/7736560)
+- [医保局公布住院人次排名第一的疾病](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
+- [寺庙售卖开光奥特曼？当地回应](http://www.daogukj.com/9580900)
+- [男子帮朋友装空调不慎12楼坠亡](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
+- [日本“草莓仙人”挑衅中国人](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
+- [为见24岁儿子最后一面母亲报警赶高铁](http://www.daogukj.com/lsbolopb/)
+- [上市公司中科软被暂停军采资格](http://www.daogukj.com/ssuxjwef/)
+- [情侣懒得拍婚纱照交给豆包](http://www.daogukj.com/ukxzmdih/)
+- [普京登岛后日本急了](http://www.movie.hkepx.cn/movie/0461195.htm)
+- [邹市明计划年底重返拳击赛场](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
+- [为什么过去都说鱼翅和鲍鱼是顶级菜肴，而现在却很少人提了？](http://www.movie.hkepx.cn/movie/9527500.htm)
+- [学生兼职送外卖一个月倒欠公司200多](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
+- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
+- [美国老师崩溃痛哭：高中生不会读写](http://www.daogukj.com/hvfyixhj/)
+- [来云南必吃，见太奶套餐](http://www.movie.hkepx.cn/movie/4719114.htm)
+- [当年为加入 WTO 做出的让步，今天看来到底有多值？](http://www.daogukj.com/jollzwuo/)
+- [A股](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
+- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.movie.hkepx.cn/movie/4200387.htm)
+- [山西一医院实习护士晒患者隐私照，院方称将严肃处理，具体怎么回事？为什么这类事时有发生，问题出在哪？](http://www.movie.hkepx.cn/xiju/0668299.htm)
+- [唐朝女人头上插那么多金钗步摇，走路不累吗，她们到底图什么？](http://www.movie.hkepx.cn/xiju/2277955.htm)
+- [养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？](http://www.daogukj.com/7974348)
+- [臣妾要线上告发熹贵妃](http://www.movie.hkepx.cn/xiju/6045140.htm)
 
 </details>
 
 ## 原始来源
 
-- [职场人嘴替！曹国舅出场台词火出圈](https://www.baidu.com/s?wd=%E8%81%8C%E5%9C%BA%E4%BA%BA%E5%98%B4%E6%9B%BF%EF%BC%81%E6%9B%B9%E5%9B%BD%E8%88%85%E5%87%BA%E5%9C%BA%E5%8F%B0%E8%AF%8D%E7%81%AB%E5%87%BA%E5%9C%88&sa=fyb_news&rsv_dl=fyb_news)
+- [网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？](https://www.zhihu.com/question/2070925244152246749)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c8f0cb8fe1864d6ff8ef -->
+<!-- content-fingerprint: 96167d264407efeac6ac -->
