@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待杨奇回应《黑神话：钟馗》进度「设计阶段会远离 AIGC 工具，诺兰的奥德赛也是古法创作」？
+# 业内人士谈结婚登记下降3大原因
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：86 万热度 · 分类：问答 · 更新：2026-08-13T07:59:28+08:00
+> 来源：微博热搜 · 排名：第 13 位 · 热度：271405 · 分类：民生新闻 · 更新：2026-08-13T10:40:28+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待杨奇回应《黑神话：钟馗》进度「设计阶段会远离 AIGC 工具，诺兰的奥德赛也是古法创作」？”位列第 13 位，公开热度指标为 86 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“业内人士谈结婚登记下降3大原因”位列第 13 位，公开热度指标为 271405，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月10日，游戏科学联合创始人、《黑神话》系列美术总监杨奇在社交平台分享团队新作研发思路，明确现阶段正在开发的《黑神话：钟馗》，将会在设计、游戏资产制作环节主动避开AIGC生成式工具。 事件起因源自杨奇分享的观影感悟，他在自己微博账号发贴，称诺兰全新影片《奥德赛》是“史诗电影的标准答案，深受启发”。随后有网友在评论区提问，当下AI工具的水平，能否帮助提速《黑神话：钟馗》整体研发进度，缩短新作上线周期。 对此，杨奇直接回应：设计和资产阶段会远离aigc，倒不是抵触，只是为了站好最后一班岗？顺道点个题啊，数字电影和3d后期看似穷途末路的今天，诺兰这不红光满面
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](mang-ren-mo-xiang.md)
-- [微信回应群聊可彻底关闭通知](yuan-mu-qiu-yu.md)
-- [Lululemon劲敌来中国了](sha-ji-qu-luan.md)
-- [男子上班脑出血送医后死亡未认定工伤](yin-zhen-zhi-ke.md)
+- [李建华任广西文旅厅党组书记](mang-ren-mo-xiang.md)
+- [中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？](yuan-mu-qiu-yu.md)
+- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](sha-ji-qu-luan.md)
+- [李雪健已经完全听不见了](yin-zhen-zhi-ke.md)
 
 ## 站内推荐
 
 - [DeepSeek V4 Pro 正式版发布，如何评价该模型？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [《癫佬外传》第一季合集](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [升学宴35桌无人上桌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [梁文锋财富一年暴涨 3850% ，跻身全球亿万富豪榜，他是如何做到的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [女子开一天一夜空调后确诊呼吸性碱中毒，是空调导致的吗？为什么会被误传为「二氧化碳中毒」，二者有何区别？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [百米赛道高难度闯关、只有上过的才知道含金量有多高！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [假千金绑定了云原神系统，没想到我绑定了爱上雷神系统，这都什么和什么啊我剪的时候果珍绷住了吗。](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [刘晓庆 女帝和她的将相](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [网传再见朋友拟邀马天宇张萌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [英仙座流星雨](http://www.daogukj.com/7783346)
-- [这视频等了五年！](http://www.movie.hkepx.cn/xiju/0144340.htm)
-- [荣耀发布首款机器人手机 9999元起售](http://www.movie.hkepx.cn/xiju/5872465.htm)
-- [「直到大地变成一颗烂苹果！！」](http://www.daogukj.com/xyupryli/)
-- [胖东来许昌老店关闭周边商户发声](http://www.daogukj.com/6352765)
+- [如何评价《影之刃零》开启预售之后迅速荣登全球Steam畅销榜第一名？](http://www.daogukj.com/7783346)
+- [据媒体报道部分手机壳疑似采用废弃针管等医疗垃圾加工而成，真的吗？对健康会有多大危害？消费者该如何辨别？](http://www.movie.hkepx.cn/xiju/0144340.htm)
+- [华人加密投资者叶俊德被曝全裸从 30 楼坠亡，生前曾管理超 24 亿美元资产，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/5872465.htm)
+- [一些泳池高手到了海里，为什么突然不会游了？](http://www.daogukj.com/xyupryli/)
+- [新规来了：禁止在居民楼开油烟餐饮](http://www.daogukj.com/6352765)
 - [中共中央 全国人大常委会 国务院 全国政协讣告 朱镕基同志逝世](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
-- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.movie.hkepx.cn/xiju/6435292.htm)
-- [船新版本新宝岛！这个联动怎么说？](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
-- [特朗普挥不动的重拳](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
-- [武大靖出任中国短道速滑队主教练，他有哪些优势？将面临哪些挑战？](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
-- [为什么有的人天生「精力旺盛」，有的人天生「低精力」？](http://www.daogukj.com/1493456)
+- [介文汲：中国印尼海军联演重击菲律宾](http://www.movie.hkepx.cn/xiju/6435292.htm)
+- [2008年选秀中还未退役的球员仅剩5位](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
+- [机器人手机发布首日官网商城售罄](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
+- [神行者8豪华大六座新旗舰](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
+- [作家李娟10年没见妈妈了](http://www.daogukj.com/1493456)
 - [第一视角从中国空间站看地球](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
-- [DeepSeek重磅更新 V4Pro正式版上线](http://www.daogukj.com/wecagjke/)
-- [女子开一天一夜空调后确诊呼吸性碱中毒，是空调导致的吗？为什么会被误传为「二氧化碳中毒」，二者有何区别？](http://www.daogukj.com/8911687)
+- [《癫佬外传》第一季合集](http://www.daogukj.com/wecagjke/)
+- [网传再见朋友拟邀马天宇张萌](http://www.daogukj.com/8911687)
 - [DeepSeek V4 Pro 正式版发布，如何评价该模型？](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [郭兰英1994年将演唱版权无偿捐国家](http://www.movie.hkepx.cn/xiju/6645788.htm)
-- [雷军称小米成功量产发光材料，成为国内首家实现底层发光材料自研的手机厂商，这意味着什么？会带来什么改变？](http://www.movie.hkepx.cn/xiju/9394899.htm)
-- [男子看病8天花8万治疗按分钟收费](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
-- [41国所谓涉华声明不过是废纸一张](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [普京观摩舰队演习作战图被打码](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [胖东来关一家店为何全民关注](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
-- [微信群聊可以彻底关闭通知了](http://www.daogukj.com/sfshhzje/)
-- [岳云鹏说打羽毛球瘦了20斤](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [母亲与怀孕妻子遇害 男子发声](http://www.daogukj.com/6469340)
-- [赵一鸣零食被困在毛利里了吗](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [如何看待媒体曝沃尔特 120 亿美元出售湖人，创历史记录？](http://www.movie.hkepx.cn/xiju/6637455.htm)
-- [朱镕基同志遗像发布](http://www.daogukj.com/ezqthdyk/)
-- [男子上班脑出血送医后死亡未认定工伤](http://www.movie.hkepx.cn/movie/8362403.htm)
-- [《顽童戏老叟》](http://www.daogukj.com/blmliwwv/)
-- [员工20多年未到岗 单位登返岗通知书](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
-- [原来姚安娜是艺名](http://www.daogukj.com/6808681)
-- [为什么我用思维导图反而感觉信息更乱了？](http://www.daogukj.com/8913120)
-- [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/8931072)
-- [浙江一公司收到美国2.62亿元关税退税](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [如何看待京东上大规模出现「李鬼」笔记本电脑？](http://www.movie.hkepx.cn/xiju/2847418.htm)
-- [龙餐馆 老扎](http://www.daogukj.com/nrrtwuij/)
-- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
-- [中印发生新的边境事件？中方回应](http://www.daogukj.com/emrfuprm/)
-- [男子出轨销售买千万保险还转账350万](http://www.movie.hkepx.cn/movie/7899876.htm)
-- [为什么《哪吒之魔童闹海》获百花奖最佳影片无人站起，《惊蛰无声》获优秀影片，现场全体起立？](http://www.movie.hkepx.cn/xiju/7135879.htm)
+- [员工台风天临时请假被罚近1500元](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [姚安娜真名曝光](http://www.movie.hkepx.cn/xiju/9394899.htm)
+- [2026 LPL 第三赛段 BLG 1-2 JDG，如何评价这场比赛？Flandre 的表现如何？](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
+- [魏如萱称歌手丑八怪是节目组选的](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
+- [流星雨](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [🔥全看完的可以封神了！三角洲AI夏日晚会🔥](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [6年，你们童年的愿望，我帮你们实现了！](http://www.daogukj.com/sfshhzje/)
+- [普京：亚太形成新军事政治集团](http://www.movie.hkepx.cn/xiju/2060263.htm)
+- [诺兰2.5亿巨制！看懂奥德赛](http://www.daogukj.com/6469340)
+- [梁家辉在《人民日报》撰文](http://www.movie.hkepx.cn/movie/8131985.htm)
+- [云南大象睡了一地](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [金价油价全涨了](http://www.daogukj.com/ezqthdyk/)
+- [李雪健已经完全听不见了](http://www.movie.hkepx.cn/movie/8362403.htm)
+- [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.daogukj.com/blmliwwv/)
+- [养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
+- [扬州一餐厅用垃圾车运包子系谣言](http://www.daogukj.com/6808681)
+- [女孩在自家店里完成12部位颠球](http://www.daogukj.com/8913120)
+- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.daogukj.com/8931072)
+- [胖东来弃租背后房东的“话事权”转移](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
+- [龙餐馆](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [DeepSeek最新版本藏了一个大招](http://www.daogukj.com/nrrtwuij/)
+- [李建华任广西文旅厅党组书记](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
+- [哥哥去世嫂子改嫁 女子抚养侄子](http://www.daogukj.com/emrfuprm/)
+- [大量人员被抓捕！三角洲行动被央视点名](http://www.movie.hkepx.cn/movie/7899876.htm)
+- [Lululemon劲敌来中国了](http://www.movie.hkepx.cn/xiju/7135879.htm)
 - [朱镕基同志逝世](http://www.daogukj.com/obfbkvuj/)
-- [微信回应群聊可彻底关闭通知](http://www.movie.hkepx.cn/xiju/2876935.htm)
-- [2026和平精英刺激之夜完整高清回放](http://www.movie.hkepx.cn/xiju/8438607.htm)
-- [《阿嬷》导演看《欢迎来龙餐馆》落泪](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
-- [龙餐馆](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
-- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.daogukj.com/8210319)
+- [中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/xiju/8438607.htm)
+- [《起屁了》红石音乐](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
+- [男子装空调坠亡 家属：免费帮朋友](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
+- [这视频等了五年！](http://www.daogukj.com/8210319)
 - [60万亿元消费蓝海要来了](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [喜欢穿洞洞鞋的人天塌了](http://www.movie.hkepx.cn/xiju/1710411.htm)
-- [据媒体报道部分手机壳疑似采用废弃针管等医疗垃圾加工而成，真的吗？对健康会有多大危害？消费者该如何辨别？](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
-- [肖战收工后会给剧组朋友做饭](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
+- [深切缅怀！朱总理一路走好！](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [货拉拉司机中途加价被拒，带货跑 600 公里外，平台介入后仍拒不归还，怎么回事？暴露出平台哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
+- [高中牲自制蛛丝发射器（一）](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待杨奇回应《黑神话：钟馗》进度「设计阶段会远离 AIGC 工具，诺兰的奥德赛也是古法创作」？](https://www.zhihu.com/question/2070508935673378471)
+- [业内人士谈结婚登记下降3大原因](https://s.weibo.com/weibo?q=%E4%B8%9A%E5%86%85%E4%BA%BA%E5%A3%AB%E8%B0%88%E7%BB%93%E5%A9%9A%E7%99%BB%E8%AE%B0%E4%B8%8B%E9%99%8D3%E5%A4%A7%E5%8E%9F%E5%9B%A0)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a3a1400df70d108f5df4 -->
+<!-- content-fingerprint: 3e6f8c3777c871b1f18c -->
