@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 姜潮麦迪娜婚礼葡萄摆成树和瀑布
+# 中使馆重要提醒：中国公民尽快撤离
 
-> 来源：微博热搜 · 排名：第 12 位 · 热度：133912 · 分类：艺人 · 更新：2026-08-14T07:52:42+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6762242 · 更新：2026-08-14T09:49:01+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“姜潮麦迪娜婚礼葡萄摆成树和瀑布”位列第 12 位，公开热度指标为 133912，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中使馆重要提醒：中国公民尽快撤离”位列第 11 位，公开热度指标为 6762242。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：当前，刚果（金）安全形势复杂严峻。刚东地区暴发新一轮埃博拉疫情。北基伍省、南基伍省安全形势急剧恶化，刚军和M23持续激烈交火。中国驻刚果（金）使馆提醒全体在刚中国公民务必高度重视安全问题，中国公民不得前往伊图里、北基伍、南基伍、上韦莱省等安全极高风险地区，仍处当地的中国公民和企业请尽快撤离或转移至安全地区。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [梁文锋打新宇树科技 1.8 亿获配 120 万股，账面浮盈或超 7.04 亿元，怎样解读他的这一布局？](mang-ren-mo-xiang.md)
-- [🐧当你打游戏时父母进你房间蹭空调🐧](yuan-mu-qiu-yu.md)
-- [第一次见“骨瘦如柴”的猪](sha-ji-qu-luan.md)
-- [任嘉伦红房子成青岛景点](yin-zhen-zhi-ke.md)
+- [姜潮麦迪娜婚礼葡萄摆成树和瀑布](mang-ren-mo-xiang.md)
+- [如何评价《一人之下》第772(826）话？](yuan-mu-qiu-yu.md)
+- [[审美积累]“黑暗时代所定义的中世纪电影美学”](sha-ji-qu-luan.md)
+- [男子健身房指导女友 被要求看结婚证](yin-zhen-zhi-ke.md)
 
 ## 站内推荐
 
-- [黄色预警！17省区市部分地区大到暴雨](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [39度高温管家喊话全楼关空调](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [王曼昱蒯曼无缘女双四强](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [为什么娱乐圈这么多人得强直性脊柱炎](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [月薪三万多，和老公都太忙，都没时间照顾孩子，老公让我回家照顾孩子几年先，如果是你该怎么选？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [华为“天才少年”宁博宇回应离职](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [哥哥借房给侄女上学 房子被弟弟偷卖](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [小米升降车标专利曝光：提高车辆续航](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [郭麒麟瘦到认不出](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [为什么胖东来关店比开店还可怕](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [河北承德市滦平县发生2.4级地震](http://www.daogukj.com/7783346)
-- [舍不得买可直接休学退学？校方通报](http://www.movie.hkepx.cn/xiju/0144340.htm)
-- [🐧功夫女足🐧](http://www.movie.hkepx.cn/xiju/5872465.htm)
-- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/xyupryli/)
+- [【半佛】足不出户，背刺满屋](http://www.daogukj.com/7783346)
+- [新一代“人造太阳”要来了](http://www.movie.hkepx.cn/xiju/0144340.htm)
+- [【恐怖版】PVZ恐怖版：序章宣传片](http://www.movie.hkepx.cn/xiju/5872465.htm)
+- [路况千千万，总能遇到点新知识，今天是地上的大镜子](http://www.daogukj.com/xyupryli/)
 - [今年以来我国生态环境质量持续向好](http://www.daogukj.com/6352765)
-- [邹市明辟谣](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
-- [《奥德赛》“最佳尿点”](http://www.movie.hkepx.cn/xiju/6435292.htm)
-- [如何看待 10 年期、30 年期美债中标利率都达到 2007 年全球金融危机以来最高水平？](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
-- [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
-- [中国印尼首次台岛以东联演有何深意](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
-- [面对不确定性，管理者如何做出有效决策？](http://www.daogukj.com/1493456)
+- [胖东来闭店一天整条街都没人出摊](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
+- [多所高校公寓配共享冰箱，如何看待这一举措？会让大学生们提升住宿幸福感吗？](http://www.movie.hkepx.cn/xiju/6435292.htm)
+- [为什么认知高的人最终都会走向金融市场？](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
+- [电影《牛来》上映9天票房7169元](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
+- [WTT欧洲大满贯国乒男双独苗无缘四强](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
+- [二手豪华车为啥卖不动了](http://www.daogukj.com/1493456)
 - [普京在俄日争议岛大口品尝鱼子酱](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
-- [田曦薇胡一天吻戏是我能看的吗](http://www.daogukj.com/wecagjke/)
-- [月薪三万多，和老公都太忙，都没时间照顾孩子，老公让我回家照顾孩子几年先，如果是你该怎么选？](http://www.daogukj.com/8911687)
-- [黄色预警！17省区市部分地区大到暴雨](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [胖东来许昌老店关闭周边商户发声](http://www.movie.hkepx.cn/xiju/6645788.htm)
-- [网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？](http://www.movie.hkepx.cn/xiju/9394899.htm)
-- [路况千千万，总能遇到点新知识，今天是地上的大镜子](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
-- [二手豪华车为啥卖不动了](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [2027年最后一批“00后”也将成年](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [张帅组合夺得多伦多站女双冠军](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
-- [男子健身房指导女友 被要求看结婚证](http://www.daogukj.com/sfshhzje/)
-- [天然气公司要求壁挂炉满8年必须换](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [苏州“我听交警的”案判了](http://www.daogukj.com/6469340)
-- [《寄生虫》里的豪宅，看起来没什么东西，豪在哪里？](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [铃木、雷诺、Jeep、三菱退出中国市场，如今雪佛兰也退出中国市场，说明了什么？](http://www.movie.hkepx.cn/xiju/6637455.htm)
-- [如何看待娱乐圈大部分明星失业？](http://www.daogukj.com/ezqthdyk/)
-- [任嘉伦红房子成青岛景点](http://www.movie.hkepx.cn/movie/8362403.htm)
-- [油价将迎来年内第五次下调](http://www.daogukj.com/blmliwwv/)
-- [DeepSeek官网撤公告疑似回滚](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
-- [俄演习同时朝鲜发射导弹是巧合吗](http://www.daogukj.com/6808681)
-- [上海一员工台风天请假1小时被罚近1500元，公司称其未提前一天申请，人社局表示处罚行为违规，怎样解读？](http://www.daogukj.com/8913120)
-- [国内多晶硅市场连续两周无成交](http://www.daogukj.com/8931072)
+- [银行能办结婚证了](http://www.daogukj.com/wecagjke/)
+- [为什么胖东来关店比开店还可怕](http://www.daogukj.com/8911687)
+- [华为“天才少年”宁博宇回应离职](http://www.movie.hkepx.cn/movie/7897439.htm)
+- [王艺迪/陈熠1-3不敌日本组合](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [AI企业扎堆内蒙古抢风](http://www.movie.hkepx.cn/xiju/9394899.htm)
+- [天坛保洁雨中用海绵吸水打扫地面，工作人员回复称保护古代金砖，金砖为啥如此特殊？有什么更好的办法清洁吗？](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
+- [国内多晶硅市场连续两周无成交](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
+- [胖东来老店旁缝补摊主：会跟着走](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [贾鲁河河南周口川汇区段出现溃口](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [成年人在“新乐高”里发现了啥乐趣](http://www.daogukj.com/sfshhzje/)
+- [结婚登记好像也没多大意义](http://www.movie.hkepx.cn/xiju/2060263.htm)
+- [哥伦比亚强震已致281人遇难](http://www.daogukj.com/6469340)
+- [杨博文救场](http://www.movie.hkepx.cn/movie/8131985.htm)
+- [什么胶水可以把木头和木头粘一起，我的古筝散架了，要自己弄，用502稀稀的就渗到木头里了，粘不住？](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [西南医科大学要求学生在教务处小程序买教材，导员称舍不得买教材就退学，校方有权要求学生必须买新教材吗？](http://www.daogukj.com/ezqthdyk/)
+- [男子健身房指导女友 被要求看结婚证](http://www.movie.hkepx.cn/movie/8362403.htm)
+- [王老吉杀进年轻人扎堆的新赛道](http://www.daogukj.com/blmliwwv/)
+- [《人类史上最绝望事件》](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
+- [28岁快递员突发大面积脑梗死](http://www.daogukj.com/6808681)
+- [孔雪儿当年逆风改命的第一支百万直拍](http://www.daogukj.com/8913120)
+- [9岁姐姐带5岁弟弟雨中抢收车前草](http://www.daogukj.com/8931072)
 - [如何评价在 8 月 13 日发布的 DeepSeek Harness？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [10 岁女孩每天「拼豆」三四小时，眼轴增长速度是正常的两倍，这对孩子视力的影响有多大？怎么缓解？](http://www.movie.hkepx.cn/xiju/2847418.htm)
-- [WTT欧洲大满贯国乒男双独苗无缘四强](http://www.daogukj.com/nrrtwuij/)
-- [梁文锋打新宇树科技 1.8 亿获配 120 万股，账面浮盈或超 7.04 亿元，怎样解读他的这一布局？](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
-- [郭麒麟瘦到认不出](http://www.daogukj.com/emrfuprm/)
-- [中使馆重要提醒：中国公民尽快撤离](http://www.movie.hkepx.cn/movie/7899876.htm)
-- [大巴车悄悄杀回来了吗](http://www.movie.hkepx.cn/xiju/7135879.htm)
-- [新一代“人造太阳”要来了](http://www.daogukj.com/obfbkvuj/)
-- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.movie.hkepx.cn/xiju/2876935.htm)
-- [胖东来闭店一天整条街都没人出摊](http://www.movie.hkepx.cn/xiju/8438607.htm)
-- [世界最小鸭子首次现身河北](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
-- [中国足球小将战平巴萨](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
+- [上海知青：回黑龙江就像回家一样](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [领证不只在民政局](http://www.daogukj.com/nrrtwuij/)
+- [姜潮麦迪娜婚礼葡萄摆成树和瀑布](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
+- [日男子在韩性骚扰中国游客被判缓刑](http://www.daogukj.com/emrfuprm/)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/7899876.htm)
+- [闪迪宣布100%现金返还](http://www.movie.hkepx.cn/xiju/7135879.htm)
+- [黄色预警！17省区市部分地区大到暴雨](http://www.daogukj.com/obfbkvuj/)
+- [如何评价《一人之下》第772(826）话？](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [4岁半女童满头白发网友提醒白癜风](http://www.movie.hkepx.cn/xiju/8438607.htm)
+- [A股开盘：存储芯片、半导体等板块走强](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
+- [吴越 你确定这话是吴越说的](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
 - [紧急预拨8000万支持3省抢险救灾](http://www.daogukj.com/8210319)
 - [怎么看 DeepSeek 8 月17 日涨价后的价格，这个峰谷定价你接受吗？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [伊朗：美若敢用核弹 全球基地将成靶子](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [《癫佬外传》第一季合集](http://www.movie.hkepx.cn/xiju/1710411.htm)
 - [中国持续刷新生态“成绩单”](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
-- [男子补办结婚证发现有两个妻子](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
+- [【大航海TV】乾乾是海洋之子！？](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
 </details>
 
 ## 原始来源
 
-- [姜潮麦迪娜婚礼葡萄摆成树和瀑布](https://s.weibo.com/weibo?q=%E5%A7%9C%E6%BD%AE%E9%BA%A6%E8%BF%AA%E5%A8%9C%E5%A9%9A%E7%A4%BC%E8%91%A1%E8%90%84%E6%91%86%E6%88%90%E6%A0%91%E5%92%8C%E7%80%91%E5%B8%83)
+- [中使馆重要提醒：中国公民尽快撤离](https://www.baidu.com/s?wd=%E4%B8%AD%E4%BD%BF%E9%A6%86%E9%87%8D%E8%A6%81%E6%8F%90%E9%86%92%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E5%B0%BD%E5%BF%AB%E6%92%A4%E7%A6%BB&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d4701289904267a53850 -->
+<!-- content-fingerprint: 7f1112577dd12fb5d157 -->
