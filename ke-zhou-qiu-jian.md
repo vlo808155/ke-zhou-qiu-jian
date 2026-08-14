@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 秦焰告别仪式
+# 寿司郎 脚踩水龙头
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7041596 · 更新：2026-08-14T16:23:51+08:00
+> 来源：微博热搜 · 排名：第 9 位 · 热度：409349 · 分类：民生新闻 · 更新：2026-08-14T17:35:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“秦焰告别仪式”位列第 8 位，公开热度指标为 7041596。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“寿司郎 脚踩水龙头”位列第 9 位，公开热度指标为 409349，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月14日，老戏骨秦焰告别仪式在北京举行，众人打扮低调出席，谢宁现场还忍不住抹泪，陈佩斯、倪萍等人献花圈。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [牛来票房 7352元没有万](yan-er-dao-ling.md)
-- [媒体：胖东来少赚钱也不惯着漫天要价](nan-yuan-bei-zhe.md)
-- [《欢迎来龙餐馆》中那枚发芽的土豆意味着什么？影片中还有哪些容易被忽略的隐喻、象征细节？](mai-du-huan-zhu.md)
-- [用MC还原《神的随波逐流》 【B萌应援】](ye-gong-hao-long.md)
+- [国防部：菲应尽快拖走非法坐滩军舰](yan-er-dao-ling.md)
+- [胖东来许昌 24 年老店将关闭，对周边商户和商圈发展有哪些影响？](nan-yuan-bei-zhe.md)
+- [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](mai-du-huan-zhu.md)
+- [一看你照片破戒了 董事长被指开黄腔](ye-gong-hao-long.md)
 
 ## 站内推荐
 
 - [这些中国机器人“小众”却好用](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [沈腾路演泪崩](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [所谓“包治百病”都是骗局](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [买牛奶为啥这么难](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [Keep官方为支付宝答题用户避坑](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [谢霆锋认为糖拌西红柿不能拿来比赛](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [侯卓成称前女友已道歉](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [专访2034杯重庆足球小将团队](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [浙江长兴突发山洪泥石流致1死3失联](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【恐怖版】PVZ恐怖版：序章宣传片](http://www.movie.hkepx.cn/xiju/2843648.htm)
-- [2026瑞满1/4男双林诗栋/温瑞博0-3艾尼克斯·勒布伦/菲尼克斯·勒布伦，如何看待这场比赛？](http://www.daogukj.com/0895296)
-- [为什么玄幻小说里人人争抢功法秘籍，而现实中大量能够改变人生的顶级知识免费公开，却很少有人认真学习？](http://www.movie.hkepx.cn/xiju/3970296.htm)
-- [用MC还原《神的随波逐流》 【B萌应援】](http://www.movie.hkepx.cn/movie/5125967.htm)
-- [侯卓成称前女友已道歉](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
+- [奥德赛](http://www.movie.hkepx.cn/xiju/2843648.htm)
+- [河流地貌](http://www.daogukj.com/0895296)
+- [当你约朋友上线打游戏](http://www.movie.hkepx.cn/xiju/3970296.htm)
+- [一看你照片破戒了 董事长被指开黄腔](http://www.movie.hkepx.cn/movie/5125967.htm)
+- [美国政府设备重新允许使用TikTok，特朗普称其在TikTok上长期霸榜，靠它帮助赢下大选，如何解读？](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
 - [小龙虾线下堂食遇冷，杭州一小龙虾店日销从五百斤跌到一百斤，小龙虾卖不动了吗？为什么会出现这一变化？](http://www.movie.hkepx.cn/xiju/5735202.htm)
-- [221元酒店订单商家到手40.67元](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
-- [终于懂了亲人离世是一生的潮湿](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
-- [广东一地发现展翅约26cm蛇头蛾](http://www.daogukj.com/1682120)
-- [有没有一个瞬间让你失去追求汽车性能的动力？](http://www.daogukj.com/3781657)
+- [追觅卖出首台手机售价超20万元](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
+- [3到5年内社保走向全额实缴](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
+- [《牛来》建模粗糙惊呆观众](http://www.daogukj.com/1682120)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/3781657)
 - [WasteTheFallen丨首曝PV＆实机演示：凝视深渊，人性渐泯](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
-- [武汉投用100台无人配送车](http://www.movie.hkepx.cn/xiju/8318389.htm)
-- [网上花大钱买神药包治百病？假的](http://www.movie.hkepx.cn/xiju/6056931.htm)
-- [张婧仪秦MAX发布会生图](http://www.movie.hkepx.cn/xiju/3703541.htm)
-- [张雅琪 湖南卫视下场](http://www.movie.hkepx.cn/xiju/8516838.htm)
-- [中国“救援航母”奔赴河南溃口现场](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
+- [天坛祈年殿前惊现“功夫松鼠”](http://www.movie.hkepx.cn/xiju/8318389.htm)
+- [如何评价 DeepSeek 与北大联合发布的新论文，有哪些亮点？对 Agent 发展有什么影响？](http://www.movie.hkepx.cn/xiju/6056931.htm)
+- [普京登岛是中国怂恿？日网友又说胡话](http://www.movie.hkepx.cn/xiju/3703541.htm)
+- [网上花大钱买神药包治百病？假的](http://www.movie.hkepx.cn/xiju/8516838.htm)
+- [家里快供不起我在外面上班了](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
 - [小伙为控体重改喝 「0糖」「无糖」饮料一年多，体重不降反增血脂也升高了，这是什么原因？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
-- [武汉女子离婚反赔非洲丈夫17万](http://www.movie.hkepx.cn/movie/7128560.htm)
-- [糖拌西红柿参赛给谢霆锋整不会了](http://www.daogukj.com/3515190)
-- [河南唐河14岁女孩落水失联](http://www.daogukj.com/0169777)
-- [《下一个是谁》音乐特辑](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
-- [C罗婚后归队 换了新发型](http://www.daogukj.com/4071713)
-- [美国政府设备重新允许使用TikTok，特朗普称其在TikTok上长期霸榜，靠它帮助赢下大选，如何解读？](http://www.daogukj.com/pjoqnyew/)
-- [胖东来闭店一天整条街都没人出摊](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
+- [男子健身房指导女友被场馆教练认定为外来私教，要求看结婚证，否则就办理退卡，这合理吗？健身房有权核查吗？](http://www.movie.hkepx.cn/movie/7128560.htm)
+- [丰田又拿了全球车企销量第一](http://www.daogukj.com/3515190)
+- [中国有什么成语或者典故可以对应「奥德赛」这个词呢？](http://www.daogukj.com/0169777)
+- [终于懂了亲人离世是一生的潮湿](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
+- [常州星巴克 关空调](http://www.daogukj.com/4071713)
+- [秦焰告别仪式](http://www.daogukj.com/pjoqnyew/)
+- [加长版三伏天最后10天](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
 - [亲戚3200卖给我的电脑，他说现在2手能卖4000多，能流畅运行生化危机9类型的游戏吗?](http://www.movie.hkepx.cn/movie/5516169.htm)
-- [追觅卖出首台手机 售价超20万元](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
-- [🐧功夫女足🐧](http://www.daogukj.com/pgdrxeea/)
-- [《人类史上最绝望事件》](http://www.daogukj.com/7272013)
+- [《欢迎来龙餐馆》中那枚发芽的土豆意味着什么？影片中还有哪些容易被忽略的隐喻、象征细节？](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
+- [眉姐姐感谢支付宝认证时尚钉子户](http://www.daogukj.com/pgdrxeea/)
+- [曝王嘉尔宋雨琦恋情](http://www.daogukj.com/7272013)
 - [6图看美丽中国建设十五五规划](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
-- [谢霆锋认为糖拌西红柿不能拿来比赛](http://www.daogukj.com/3521407)
-- [甘肃省副省长程晓波主动投案被查](http://www.daogukj.com/9982293)
-- [茅台党委原副书记赵书跃被查](http://www.movie.hkepx.cn/xiju/3540024.htm)
-- [普京登上俄日争议岛屿 日本拟反制](http://www.movie.hkepx.cn/movie/9307027.htm)
-- [猎哥说打绝航能让人眼前一亮【三角洲动画·勇敢者篇】](http://www.movie.hkepx.cn/movie/7494540.htm)
-- [杭州首批梭子蟹上市价格如何](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
+- [公职人员碾死醉汉赔偿后取得谅解](http://www.daogukj.com/3521407)
+- [酒吧多女子穿近似海航空姐制服跳舞](http://www.daogukj.com/9982293)
+- [如何评价北京协和医院住院医用AI解决了困扰数学界的难题Crouzeix猜想？](http://www.movie.hkepx.cn/xiju/3540024.htm)
+- [国产“空中重卡”开展极限测试](http://www.movie.hkepx.cn/movie/9307027.htm)
+- [胖东来闭店一天整条街都没人出摊](http://www.movie.hkepx.cn/movie/7494540.htm)
+- [纳斯达克即将开启 23 小时连续交易，对投资者是好事还是坏事？](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
 - [这些中国机器人“小众”却好用](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
-- [沈腾路演泪崩](http://www.daogukj.com/4973551)
-- [大衣哥为消防安全代言分文不收](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
-- [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/zirrjtcq/)
+- [谢霆锋认为糖拌西红柿不能拿来比赛](http://www.daogukj.com/4973551)
+- [WTT 瑞典大满贯王艺迪/陈熠 1-3 负于张本美和/早田希娜，国乒女双提前出局，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
+- [这居然是2026年的国产动画](http://www.daogukj.com/zirrjtcq/)
 - [我国生态环境持续向好](http://www.daogukj.com/pvjkdvkl/)
-- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/8281799.htm)
-- [“大衣哥”点燃日照文旅热潮](http://www.movie.hkepx.cn/movie/4145451.htm)
+- [用MC还原《神的随波逐流》 【B萌应援】](http://www.movie.hkepx.cn/movie/8281799.htm)
+- [《不玩了再也不玩了》#过山车](http://www.movie.hkepx.cn/movie/4145451.htm)
 - [【独家】时光代理人 第三季 PartOne 第1集 遗忘的过去【8月国创】](http://www.movie.hkepx.cn/xiju/5480896.htm)
-- [普京登岛是中国怂恿？日网友又说胡话](http://www.movie.hkepx.cn/xiju/6192675.htm)
-- [原来这就是大家命越来越好的原因](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
+- [《下一个是谁》音乐特辑](http://www.movie.hkepx.cn/xiju/6192675.htm)
+- [龙餐馆否认偷票房](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
 - [长着云台的手机？荣耀Robot Phone上手](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
-- [所谓“包治百病”都是骗局](http://www.movie.hkepx.cn/movie/8224566.htm)
-- [牛来票房 7352元没有万](http://www.daogukj.com/rdjgxawo/)
-- [淘宝竟然为了支付宝重启答题](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
-- [黑白色经典星空喷漆画，划走你就草率了](http://www.daogukj.com/4280554)
+- [侯卓成称前女友已道歉](http://www.movie.hkepx.cn/movie/8224566.htm)
+- [国防部：菲应尽快拖走非法坐滩军舰](http://www.daogukj.com/rdjgxawo/)
+- [男子好想来买111元零食复称仅64元，店员退钱但拒绝道歉，零食店频繁出现少称现象，暴露哪些问题？](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
+- [贵州茅台党委原副书记赵书跃被查](http://www.daogukj.com/4280554)
 
 </details>
 
 ## 原始来源
 
-- [秦焰告别仪式](https://www.baidu.com/s?wd=%E7%A7%A6%E7%84%B0%E5%91%8A%E5%88%AB%E4%BB%AA%E5%BC%8F&sa=fyb_news&rsv_dl=fyb_news)
+- [寿司郎 脚踩水龙头](https://s.weibo.com/weibo?q=%E5%AF%BF%E5%8F%B8%E9%83%8E%20%E8%84%9A%E8%B8%A9%E6%B0%B4%E9%BE%99%E5%A4%B4)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 07ed45fd76976f630bb6 -->
+<!-- content-fingerprint: e56a5f958f6fbeacecf7 -->
