@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 十八载征程，感谢有你，一路相伴。
+# 《牛来》导演：时间会证明一切
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：1332241 · 分类：财经商业 · 更新：2026-08-15T17:22:35+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6947304 · 更新：2026-08-15T17:49:55+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“十八载征程，感谢有你，一路相伴。”位列第 9 位，公开热度指标为 1332241，榜单分类为“财经商业”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“《牛来》导演：时间会证明一切”位列第 9 位，公开热度指标为 6947304。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：18年来，京东家电初心不变，只为不负每一个家的期待，感谢所有朋友的一路相伴，下一个18年，京东依然会在你身边，价格会更实在，服务会更省心，无论线上线下都能买到高品质的好产品，让大家生活常新。
+来源公开摘要显示：2026年暑期档动画电影《牛来》因画面粗糙、两人团队制作，上映9天累计票房仅7169元，创年度院线动画票房最低纪录，却因“烂到极致”意外走红。该片2021年立项、2024年获公映许可。导演发视频庆祝票房破10万，称“时间会证明一切”。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `财经商业`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [高市早苗遥拜靖国神社](ye-gong-hao-long.md)
-- [旺旺 配料表](lan-yu-chong-shu.md)
-- [各地游客到上海参观四行仓库抗战旧址](zi-xiang-mao-dun.md)
-- [国乒男单无缘 WTT 瑞典站 8 强，国乒男单连续第三站 WTT 高级别赛事全军覆没，男队怎么了？](bei-gong-she-ying.md)
+- [原来活体器官运输不是专门的飞机](ye-gong-hao-long.md)
+- [山东省检察院原检察长吴鹏飞逝世](lan-yu-chong-shu.md)
+- [国乒男单无缘 WTT 瑞典站 8 强，国乒男单连续第三站 WTT 高级别赛事全军覆没，男队怎么了？](zi-xiang-mao-dun.md)
+- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](bei-gong-she-ying.md)
 
 ## 站内推荐
 
 - [怎么看森多夫猜想（Sendov's Conjecture）已被AI、Lech Mazur、陶哲轩攻破？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [谢霆锋王菲 情侣手镯](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [美国为什么造不出宇树机器人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [年轻人为什么喜欢“手洗一辆车”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [胖东来首批刑释职工30人无一离职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [邓超给初代跑男合照签名](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [oner一语成谶](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [德比斯：中国人比法国人更懂礼貌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [程序员为保工作每月倒贴买 token「自费上班」，这反映了行业哪些问题？](http://www.daogukj.com/9193901)
-- [普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.daogukj.com/9193901)
+- [十八载征程，感谢有你，一路相伴。](http://www.movie.hkepx.cn/xiju/8468269.htm)
 - [这一天值得每一名中国人铭记](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [旅行社为啥不受欢迎了](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [牛来怎么过审的](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [恐怖奶奶1](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [日本千叶暴雨已致8人死亡](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [《牛来》排片暴涨](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [旺旺 配料表](http://www.daogukj.com/1877942)
-- [如何看待「大学新生三件套」涨价近五成，如果只给 5000 元预算配齐「开学三件套」，你会怎么分配？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [牛来综合票房破50万](http://www.daogukj.com/nuqwxjlx/)
-- [美国为什么造不出宇树机器人](http://www.daogukj.com/4054231)
-- [哆啦A梦和大雄开心大喊：日本战败了](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [山东省检察院原检察长吴鹏飞逝世](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [法国最有松弛感的劫案是哪起？【硬核狠人91】](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [JDG对战TTG](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [陈翔六点半：这是谁的手机？](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [美国为什么造不出宇树机器人](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [胖东来首批刑释职工30人无一离职](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [电台播报日本投降：谁敢阻挡就被消灭](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [王嘉尔吃自己的瓜](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [山东省检察院原检察长吴鹏飞逝世](http://www.daogukj.com/1877942)
+- [你醒啦！你已经变成苦力怕娘惹……](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [高市早苗未提“反省战争”](http://www.daogukj.com/nuqwxjlx/)
+- [oner一语成谶](http://www.daogukj.com/4054231)
+- [船厂爆炸牺牲消防员朋友圈：拼什么命](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [从《欢迎来到龙餐馆》来说，基本都觉得萨达姆坏，可是为何很多人也觉得美国插手不对，这不矛盾吗？](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [我们为什么总是容易相信谣言](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
 - [【独家】《凡人修仙传之慕兰之战》第11集【总第187集】](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [【短的发布会】我要验湃！一条视频带你看懂全网最带湃的澎湃OS 4](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [那年盖亚的导演选择了弹幕最多的打法！](http://www.daogukj.com/ygpoeeya/)
-- [谁杀死了驾校](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [邓超给初代跑男合照签名](http://www.daogukj.com/9246627)
-- [李连杰谈女儿心理问题](http://www.daogukj.com/2490072)
-- [宇树科技场外暗盘交易火了 谁在豪赌](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [【我在现代当幽差】EP01 大哥，你阳寿未尽啊【UP动画】](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [你醒啦！你已经变成苦力怕娘惹……](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [我们为什么总是容易相信谣言](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [年轻人为什么喜欢“手洗一辆车”](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [外国女子倒车落下山崖 女儿不幸身亡](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [比利时学生打工挖到900万欧元金库](http://www.daogukj.com/ygpoeeya/)
+- [胖东来 刑释人员](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [如何看待DeepSeek-V4 Pro正式版疑似过拟合DeepSeek Harness的极简模式？](http://www.daogukj.com/9246627)
+- [朱女士案赶快拿钱离婚才是上策](http://www.daogukj.com/2490072)
+- [《欢迎来龙餐馆》里的餐厅老板扎伊德在妻女被杀后，为什么不加入政府军或其他组织，而是加入恐怖分子阵营？](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [《牛来》排片暴涨](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [“上坟烧的牛都比这个建模好”](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [牛来票房暴涨1000倍](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [德比斯：中国人比法国人更懂礼貌](http://www.movie.hkepx.cn/movie/6846982.htm)
 - [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](http://www.movie.hkepx.cn/xiju/3845334.htm)
 - [旺旺董事长发内部信，直言遭遇重大经营危机，没有贡献的员工要被淘汰，这种方式能救企业吗？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [重庆：14名市管“一把手”被调整](http://www.daogukj.com/8715491)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉119/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/4788107)
-- [用MC还原《神的随波逐流》 【B萌应援】](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [星宇股份裁员数百应届生并要求「个人原因」离职，具体什么情况？拒绝者被调岗打螺丝，面对该操作只能认栽吗？](http://www.daogukj.com/8715491)
+- [制作糖果的流程—解压](http://www.daogukj.com/4788107)
+- [男子彩票中598万 没告诉妻子孩子父母](http://www.movie.hkepx.cn/movie/0622898.htm)
 - [河南周口溃口封堵现场现“三蹦子”](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [德比斯：中国人比法国人更懂礼貌](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [特朗普证实部署中东的林肯号航母将被替换，部署近9个月，船员心理崩溃、跳海事件引发质疑，如何看待此事？](http://www.daogukj.com/3872248)
-- [年轻人回村“卷”起了自建房](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [各地游客到上海参观四行仓库抗战旧址](http://www.daogukj.com/sguhnydl/)
-- [高市早苗未提“反省战争”](http://www.daogukj.com/6123602)
-- [国乒男单无缘 WTT 瑞典站 8 强，国乒男单连续第三站 WTT 高级别赛事全军覆没，男队怎么了？](http://www.daogukj.com/7243934)
-- [从《欢迎来到龙餐馆》来说，基本都觉得萨达姆坏，可是为何很多人也觉得美国插手不对，这不矛盾吗？](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [isa聊天记录](http://www.daogukj.com/fgkxwaik/)
-- [比利时学生打工挖到900万欧元金库](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [电视剧「蜗居」里的宋思明权力那么大，为什么没把海藻安排进体制内？](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [如何看待DeepSeek-V4 Pro正式版疑似过拟合DeepSeek Harness的极简模式？](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [葡萄树的主人终于上当了](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [终于明白减重减肥减脂区别](http://www.daogukj.com/4800229)
-- [公司空调已经做到这种程度了](http://www.daogukj.com/1329201)
-- [星宇股份裁员数百应届生并要求「个人原因」离职，具体什么情况？拒绝者被调岗打螺丝，面对该操作只能认栽吗？](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [印尼7.7级强震 海面出现巨大漩涡](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [谢霆锋王菲 情侣手镯](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [【我在现代当幽差】EP01 大哥，你阳寿未尽啊【UP动画】](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [“这个正在读初三的女生订婚了”](http://www.daogukj.com/3872248)
+- [当兵的苦真不是一般人能吃得下的，都是怎么下定决心去当兵的呢？](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [国乒男单无缘 WTT 瑞典站 8 强，国乒男单连续第三站 WTT 高级别赛事全军覆没，男队怎么了？](http://www.daogukj.com/sguhnydl/)
+- [程序员为保工作每月倒贴买 token「自费上班」，这反映了行业哪些问题？](http://www.daogukj.com/6123602)
+- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](http://www.daogukj.com/7243934)
+- [第6集丨“各怀心事？”](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [重庆：14名市管“一把手”被调整](http://www.daogukj.com/fgkxwaik/)
+- [公司空调已经做到这种程度了](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [法国最有松弛感的劫案是哪起？【硬核狠人91】](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [那年盖亚的导演选择了弹幕最多的打法！](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [是谁“杀死”了驾校](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [比利时学生挖到价值900万欧元金库](http://www.daogukj.com/4800229)
+- [原来《恭喜恭喜》是庆祝抗战胜利](http://www.daogukj.com/1329201)
+- [【挽救计划】Amaze Amaze Amaze！](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [手机涨得快买不起了](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [邓超给初代跑男合照签名](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [十八载征程，感谢有你，一路相伴。](https://b23.tv/BV19YgP6aEq6)
+- [《牛来》导演：时间会证明一切](https://www.baidu.com/s?wd=%E3%80%8A%E7%89%9B%E6%9D%A5%E3%80%8B%E5%AF%BC%E6%BC%94%EF%BC%9A%E6%97%B6%E9%97%B4%E4%BC%9A%E8%AF%81%E6%98%8E%E4%B8%80%E5%88%87&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c6fe96f32e32b0962329 -->
+<!-- content-fingerprint: 6f21716fd82affe94ed7 -->
