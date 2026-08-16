@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 为什么诺兰非要选《奥德赛》？这个故事和现代人有什么关系？
+# 《欢迎来龙餐馆》老扎为什么一直说菜咸了？有什么别的隐喻吗？
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：96 万热度 · 分类：问答 · 更新：2026-08-17T05:51:14+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：81 万热度 · 分类：问答 · 更新：2026-08-17T06:14:52+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么诺兰非要选《奥德赛》？这个故事和现代人有什么关系？”位列第 12 位，公开热度指标为 96 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“《欢迎来龙餐馆》老扎为什么一直说菜咸了？有什么别的隐喻吗？”位列第 12 位，公开热度指标为 81 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：不单单是指徐福做的这盘菜吧
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -20,15 +20,15 @@
 
 - [难倒100万人的铁球难题，我终于！解！开！了！](yuan-mu-qiu-yu.md)
 - [王艺迪4-2复仇张本美和](sha-ji-qu-luan.md)
-- [离世39岁儿科医生最后一条朋友圈](yin-zhen-zhi-ke.md)
-- [请3天假连休13天](ke-zhou-qiu-jian.md)
+- [张睿披哥下沉市场口碑](yin-zhen-zhi-ke.md)
+- [日军在南京每晚至少发生一千起强奸案](ke-zhou-qiu-jian.md)
 
 ## 站内推荐
 
-- [莫斯科遭乌方600架无人机袭击](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [让孩子读《钢铁是怎样炼成的》是不是已经不适合这个时代了呢？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [市民打12345投诉月光太亮影响睡觉](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [邵永灵：汉奸石平连站直都不敢](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
 - [旺旺被指太甜后连夜晒出无糖低糖新品，企业这一听劝的行为能自救吗？看完后你会购买吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [LPL2026赛季第三赛段组内赛WBG 1:2 iG，如何评价这场比赛？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [RTX60系显卡大概什么时候发布?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
 - [哥哥送给我的兔子玩偶，为什么一直盯着我看...？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
@@ -36,34 +36,34 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [市民打12345投诉月光太亮影响睡觉](http://www.movie.hkepx.cn/xiju/5254484.htm)
-- [旺旺的无糖产品连店员都没听过](http://www.play.hengshemaoyi.cn/kongbu/8300835.htm)
+- [莫斯科遭乌方600架无人机袭击](http://www.movie.hkepx.cn/xiju/5254484.htm)
+- [云旗](http://www.play.hengshemaoyi.cn/kongbu/8300835.htm)
 - [谷爱凌否认恋情](http://www.daogukj.com/8538561)
 - [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](http://www.movie.hkepx.cn/xiju/9636707.htm)
-- [C罗乔治娜婚礼合照](http://www.movie.hkepx.cn/xiju/9677755.htm)
+- [离世39岁儿科医生最后一条朋友圈](http://www.movie.hkepx.cn/xiju/9677755.htm)
 - [礼物要送有溢价的东西](http://www.movie.hkepx.cn/xiju/9380354.htm)
-- [枪杀联合健康保险 CEO 的路易吉正式认罪，12 月将迎来量刑，或面临终身监禁，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/1083051.htm)
+- [让孩子读《钢铁是怎样炼成的》是不是已经不适合这个时代了呢？](http://www.play.hengshemaoyi.cn/kongbu/1083051.htm)
 - [吴艳妮加冕全锦赛100米栏六冠王](http://www.play.hengshemaoyi.cn/kongbu/9908956.htm)
-- [王源年度最佳内地男歌手](http://www.play.hengshemaoyi.cn/kongbu/7203266.htm)
-- [王曼昱4比2王艺迪](http://www.play.hengshemaoyi.cn/xiju/1700337.htm)
-- [央视曝光近150人组团夜爬封禁山峰](http://www.play.hengshemaoyi.cn/kongbu/0703101.htm)
-- [谷爱凌最后一个吃到自己的瓜](http://www.play.hengshemaoyi.cn/xiju/9617132.htm)
-- [电影《奥德赛》表达了什么主题？](http://www.play.hengshemaoyi.cn/kongbu/0549768.htm)
+- [小沈阳初舞台第一](http://www.play.hengshemaoyi.cn/kongbu/7203266.htm)
+- [有人要求政府联系某明星给自己过生日](http://www.play.hengshemaoyi.cn/xiju/1700337.htm)
+- [胖东来将闭门老店28个收银口排长龙](http://www.play.hengshemaoyi.cn/kongbu/0703101.htm)
+- [王源年度最佳内地男歌手](http://www.play.hengshemaoyi.cn/xiju/9617132.htm)
+- [为什么明明知道批评孩子不好，却又忍不住？](http://www.play.hengshemaoyi.cn/kongbu/0549768.htm)
 - [朱镕基同志遗体18日火化 天安门等地将下半旗志哀](http://www.play.hengshemaoyi.cn/kongbu/6791255.htm)
-- [新加坡老人轻拍女童头部被家长撂倒](http://www.play.hengshemaoyi.cn/xiju/6801572.htm)
-- [媒体：中方16问后菲防长路只剩一条](http://www.movie.hkepx.cn/xiju/0098246.htm)
+- [央视曝光近150人组团夜爬封禁山峰](http://www.play.hengshemaoyi.cn/xiju/6801572.htm)
+- [00后女儿和80后妈妈前后脚生娃](http://www.movie.hkepx.cn/xiju/0098246.htm)
 - [曾辉 不吃压力](http://www.daogukj.com/4591818)
 - [财神窦占龙 第1集 家宴【8月国创】](http://www.movie.hkepx.cn/xiju/1647126.htm)
 - [央视曝光低价徒步团：3个领队带150人](http://www.daogukj.com/3416339)
-- [让孩子读《钢铁是怎样炼成的》是不是已经不适合这个时代了呢？](http://www.daogukj.com/dibrlfyn/)
+- [邵永灵：汉奸石平连站直都不敢](http://www.daogukj.com/dibrlfyn/)
 - [《干噎砒霜》](http://www.play.hengshemaoyi.cn/xiju/1230197.htm)
-- [小摩警告：明年或爆发全球粮食危机](http://www.play.hengshemaoyi.cn/xiju/3891752.htm)
-- [为什么越南和印度也开始发钱「催生」了？此举能有效解决人口问题带来的挑战吗？](http://www.movie.hkepx.cn/xiju/7475483.htm)
+- [梭子蟹大量上市 中医提醒](http://www.play.hengshemaoyi.cn/xiju/3891752.htm)
+- [枪杀联合健康保险 CEO 的路易吉正式认罪，12 月将迎来量刑，或面临终身监禁，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7475483.htm)
 - [劣迹艺人那艺娜活动被当场叫停](http://www.daogukj.com/rdwzlexf/)
-- [王曼昱瑞典大满贯冠军](http://www.movie.hkepx.cn/movie/1674926.htm)
-- [伊朗：美军不得进入霍尔木兹海峡](http://www.movie.hkepx.cn/movie/1659578.htm)
+- [居民存款7月又少了6300亿](http://www.movie.hkepx.cn/movie/1674926.htm)
+- [男子与老婆吵架跳江第二天又游回来](http://www.movie.hkepx.cn/movie/1659578.htm)
 - [两人为博眼球发布不实信息被处罚](http://www.movie.hkepx.cn/movie/0830848.htm)
-- [王曼昱vs王艺迪](http://www.play.hengshemaoyi.cn/kongbu/3347718.htm)
+- [过度提醒有时是种提前责备](http://www.play.hengshemaoyi.cn/kongbu/3347718.htm)
 - [三星堆：是谁杀死了他们的神？](http://www.movie.hkepx.cn/movie/9387059.htm)
 - [披荆斩棘排名](http://www.play.hengshemaoyi.cn/kongbu/5252676.htm)
 - [小沈阳初舞台得分第一](http://www.daogukj.com/kmdfuktu/)
@@ -72,27 +72,27 @@
 - [乌克兰出现由日本人组成的战斗分队，与俄军作战，会对局势有哪些影响？日本未来会大规模介入俄乌冲突吗？](http://www.movie.hkepx.cn/xiju/0049899.htm)
 - [Jennie因服装问题道歉](http://www.daogukj.com/fmnuomue/)
 - [南极冰川现“神秘生物”系AI生成](http://www.movie.hkepx.cn/xiju/3068674.htm)
-- [为什么欧洲王室接受一夫一妻制，私生子和妾没有继承权？](http://www.movie.hkepx.cn/xiju/8770398.htm)
-- [王俊凯口误了](http://www.play.hengshemaoyi.cn/kongbu/2331230.htm)
+- [电视剧「蜗居」里的宋思明权力那么大，为什么没把海藻安排进体制内？](http://www.movie.hkepx.cn/xiju/8770398.htm)
+- [王曼昱瑞典大满贯冠军](http://www.play.hengshemaoyi.cn/kongbu/2331230.htm)
 - [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.daogukj.com/4228742)
-- [LPL2026赛季第三赛段组内赛WBG 1:2 iG，如何评价这场比赛？](http://www.daogukj.com/mmqadtuf/)
-- [韩国总统李在明称房地产泡沫已不容忽视，韩国楼市现在泡沫严重吗？](http://www.play.hengshemaoyi.cn/xiju/9349178.htm)
-- [加油新规11月起正式实施](http://www.play.hengshemaoyi.cn/xiju/8636122.htm)
-- [请3天假连休13天](http://www.movie.hkepx.cn/xiju/8338745.htm)
+- [RTX60系显卡大概什么时候发布?](http://www.daogukj.com/mmqadtuf/)
+- [为什么越南和印度也开始发钱「催生」了？此举能有效解决人口问题带来的挑战吗？](http://www.play.hengshemaoyi.cn/xiju/9349178.htm)
+- [30美元1小时 机器人上门做保洁](http://www.play.hengshemaoyi.cn/xiju/8636122.htm)
+- [日军在南京每晚至少发生一千起强奸案](http://www.movie.hkepx.cn/xiju/8338745.htm)
 - [王艺迪4-2复仇张本美和](http://www.daogukj.com/vwhhkfjg/)
 - [口技表演《定海神珍铁》](http://www.movie.hkepx.cn/movie/1928240.htm)
 - [朱镕基同志遗体18日火化](http://www.play.hengshemaoyi.cn/xiju/2512943.htm)
 - [全球疯抢磷化铟](http://www.play.hengshemaoyi.cn/xiju/2526699.htm)
 - [赵本山女儿自曝患三种精神疾病](http://www.movie.hkepx.cn/movie/4945995.htm)
-- [C罗结婚仪式画面曝光](http://www.daogukj.com/3001046)
+- [手机消费毁了逛街和创造力吗](http://www.daogukj.com/3001046)
 - [县委大院69间土坯房用了69年](http://www.movie.hkepx.cn/xiju/0762217.htm)
 
 </details>
 
 ## 原始来源
 
-- [为什么诺兰非要选《奥德赛》？这个故事和现代人有什么关系？](https://www.zhihu.com/question/2070555651827131614)
+- [《欢迎来龙餐馆》老扎为什么一直说菜咸了？有什么别的隐喻吗？](https://www.zhihu.com/question/2071658364904239886)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 03318a84abae50b427a0 -->
+<!-- content-fingerprint: 9446414b8775f8d26174 -->
