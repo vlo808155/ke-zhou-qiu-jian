@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 景德镇做的陶瓷还是太超前了
+# 看完心跳停止 ，可以纳入影史的一坨史--《牛来》观影吐槽【周余】
 
-> 来源：微博热搜 · 排名：第 10 位 · 热度：355004 · 分类：民生新闻 · 更新：2026-08-16T16:02:03+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：1026532 · 分类：动漫杂谈 · 更新：2026-08-16T16:43:42+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“景德镇做的陶瓷还是太超前了”位列第 10 位，公开热度指标为 355004，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“看完心跳停止 ，可以纳入影史的一坨史--《牛来》观影吐槽【周余】”位列第 12 位，公开热度指标为 1026532，榜单分类为“动漫杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：私信太疯狂了，刚好今天周六，那宠粉阿余肯定要出一期讲讲，因为咱也不能举着个手机录枪版，所以只能是用一下网上流出的一些图像，再配合亲临现场观影的情况，跟大伙讲讲这个电影剧情到底啥样~
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `动漫杂谈`
 
 ## 相关热点
 
-- [00后女儿和80后妈妈前后脚生娃](ye-gong-hao-long.md)
-- [LPL2026赛季第三赛段组内赛BLG 2:0 WE，如何评价这场比赛？](lan-yu-chong-shu.md)
-- [财神窦占龙 第1集 家宴【8月国创】](zi-xiang-mao-dun.md)
-- [一条谣言“诞生”的全流程](bei-gong-she-ying.md)
+- [“全球粮食危机或将在明年爆发”](ye-gong-hao-long.md)
+- [等了好久的妆造是遗照](lan-yu-chong-shu.md)
+- [39岁儿科医生去世 多人缅怀](zi-xiang-mao-dun.md)
+- [⚡️老 叟 肘 高 玩⚡️](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [过敏性鼻炎 打单抗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [胖东来将闭门店28个收银口排长龙](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [张睿一看手机天又塌了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [曾经爆火的洞洞鞋遇冷，Crocs 联合瑞幸推出近六百元洞洞鞋，二手平台半价出售，高价洞洞鞋卖不动了吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [39岁知名儿科医生去世 市民献花送别](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [过敏性鼻炎 打单抗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [赵本山女儿自曝患三种精神疾病](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [中使馆7连问“特奥多罗抓中国工人”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [难倒100万人的铁球难题，我终于！解！开！了！](http://www.daogukj.com/9193901)
-- [一个伤害脑血管的动作 你可能正在做](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [西安女子 3 万全款拿下宝鸡 40 平老房，你会入手这类「万元老破小」吗？这种低压力买房思路你认同吗？](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [台当局查扣首辆张雪机车在怕什么](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [暴雨、大暴雨 接下来雨会下在哪](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [其实人最好的状态就是销声匿迹](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [胖东来将闭门店28个收银口排长龙](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [国产小微型挖掘机刷屏海外](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [热播剧《来自河南的你 》](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [LPL2026赛季第三赛段组内赛BLG 2:0 WE，如何评价这场比赛？](http://www.daogukj.com/1877942)
-- [种菜养花能帮着防癌保护心血管](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [我们的秘密……（1）](http://www.daogukj.com/nuqwxjlx/)
-- [曾经爆火的洞洞鞋遇冷，Crocs 联合瑞幸推出近六百元洞洞鞋，二手平台半价出售，高价洞洞鞋卖不动了吗？](http://www.daogukj.com/4054231)
-- [胖东来将闭门老店28个收银口排长龙](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [雷军晒15年前小米手机发布会](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [打赏要求陪睡](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [沪上阿姨 涉不正当竞争](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [一个先进外星文明拿到地球的一颗完整但孤立的CPU会怎样?](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [“全球粮食危机或将在明年爆发”](http://www.daogukj.com/ygpoeeya/)
-- [如何看待《欢迎到龙餐馆》讲中东故事，却全程国内取景拍摄，手搓一座乱世下的中东城？](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [李宗盛为什么口碑变差了?](http://www.daogukj.com/9246627)
-- [筋斗云+辅助移动，我现在什么都不缺了](http://www.daogukj.com/2490072)
-- [2026年WTT瑞典大满贯，张本美和 4-0 轻取陈熠晋级女单四强，怎么评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [纯数学研究者未来会被 AI 取代吗？](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [孩子考上985 全家免三年物业费](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [两人为博眼球发布不实信息被处罚](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [我国现代化应急体系建设提速](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [中使馆7连问“特奥多罗抓中国工人”](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/8715491)
-- [少年时代2真给我看进去了](http://www.daogukj.com/4788107)
-- [事业编三甲医生没全额缴社保](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [飞机安检模拟器](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [胖东来许昌店员工不会失业](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [白宫回应泽连斯基请求更多导弹](http://www.daogukj.com/3872248)
-- [穿越战锤20年，你却靠实力登上贵族宝座，你的后半生会如何度过？](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [财神窦占龙 第1集 家宴【8月国创】](http://www.daogukj.com/sguhnydl/)
-- [老人闯高速身亡子女索赔13万](http://www.daogukj.com/6123602)
-- [一条谣言“诞生”的全流程](http://www.daogukj.com/7243934)
-- [小摩警告：明年或爆发全球粮食危机](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [以色列国安部长：加沙人根本不配活着](http://www.daogukj.com/fgkxwaik/)
-- [何穗妊娠纹](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [日本民众质问：供奉战犯是什么意思](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [口技表演《定海神珍铁》](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [王祖贤：我们是用AI不是被AI用](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [Anthropic Q2营收逾115亿美元，同比增14倍，是何引爆了其业绩，大模型商业化成功了？](http://www.daogukj.com/4800229)
-- [39岁儿科医生去世 多人缅怀](http://www.daogukj.com/1329201)
-- [⚡️老 叟 肘 高 玩⚡️](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [我实现了我儿时的梦想](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [张睿一看手机天又塌了](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [小米澎程：电池热失控后不起火、爆炸](http://www.daogukj.com/9193901)
+- [三星堆：是谁杀死了他们的神？](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [以色列国安部长：加沙人不配活着](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [两人为博眼球发布不实信息被处罚](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [老人进山失联刻意躲避救援](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [乌克兰多地遭俄方导弹及无人机打击](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [过敏性鼻炎 打单抗](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [手机涨价何时是个头](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [雷军晒图：15年前的今天小米手机发布](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [等了好久的妆造是遗照](http://www.daogukj.com/1877942)
+- [男子喝完自制药酒四肢抽搐昏迷不醒](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [孩子考上985 全家免三年物业费](http://www.daogukj.com/nuqwxjlx/)
+- [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](http://www.daogukj.com/4054231)
+- [轮 回 跑 酷](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [筋斗云+辅助移动，我现在什么都不缺了](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [日本民众质问：供奉战犯是什么意思](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [飞机安检模拟器](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [小摩警告：明年或爆发全球粮食危机](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [暴雨、大暴雨 接下来雨会下在哪](http://www.daogukj.com/ygpoeeya/)
+- [我国现代化应急体系建设提速](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [专访无偿捐赠日军侵华史料少年](http://www.daogukj.com/9246627)
+- [白宫回应泽连斯基请求更多导弹](http://www.daogukj.com/2490072)
+- [难倒100万人的铁球难题，我终于！解！开！了！](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [打个车怎么还有高手](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [航旅纵横接送机订单被层层转包](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [事业编三甲医生没全额缴社保](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [中使馆7连问“特奥多罗抓中国工人”](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [日本人战斗分队在乌成立 与俄军作战](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [新加坡老人轻拍女童头部被家长撂倒](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [财神窦占龙 第1集 家宴【8月国创】](http://www.daogukj.com/8715491)
+- [真的建议要从源头减少家务](http://www.daogukj.com/4788107)
+- [马正阳声音侵权声明](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [沪上阿姨 涉不正当竞争](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [父子决裂40年儿子仍继承九成遗产](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [《堡垒之夜》X《明日方舟：终末地》佩丽卡 舞蹈展示](http://www.daogukj.com/3872248)
+- [去征服吧神行者们](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [39岁儿科医生去世 多人缅怀](http://www.daogukj.com/sguhnydl/)
+- [网红小家电集体吃灰了](http://www.daogukj.com/6123602)
+- [⚡️老 叟 肘 高 玩⚡️](http://www.daogukj.com/7243934)
+- [美国大兵拍视频吐槽航母卫生间太脏](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [我们的秘密……（1）](http://www.daogukj.com/fgkxwaik/)
+- [ASMR 当憋了半个月没洗头的你去做头疗（绝望的“单王”）](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [孙楠回应体重只有128斤](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [热播剧《来自河南的你 》](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [曝谷爱凌LV三公子恋情](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [女子产后抑郁离世父母与丈夫争夺财产](http://www.daogukj.com/4800229)
+- [王祖贤：我们是用AI不是被AI用](http://www.daogukj.com/1329201)
+- [飞鹤直播治好了宝妈的选奶焦虑](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [WasteTheFallen丨首曝PV＆实机演示：凝视深渊，人性渐泯](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [赵本山女儿自曝患三种精神疾病](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [景德镇做的陶瓷还是太超前了](https://s.weibo.com/weibo?q=%E6%99%AF%E5%BE%B7%E9%95%87%E5%81%9A%E7%9A%84%E9%99%B6%E7%93%B7%E8%BF%98%E6%98%AF%E5%A4%AA%E8%B6%85%E5%89%8D%E4%BA%86)
+- [看完心跳停止 ，可以纳入影史的一坨史--《牛来》观影吐槽【周余】](https://b23.tv/BV12Xby62E32)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6ee4df97519914f45abf -->
+<!-- content-fingerprint: 90e496cab5eaef495cb5 -->
