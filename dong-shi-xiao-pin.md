@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 哥哥送给我的兔子玩偶，为什么一直盯着我看...？
+# 官方通报传销头目出狱办书院，涉事书院被关停、3人被刑拘，还有其他违法犯罪线索被发现，哪些信息值得关注？
 
-> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：703953 · 分类：校园学习 · 更新：2026-08-17T08:58:34+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：171 万热度 · 分类：问答 · 更新：2026-08-17T10:23:25+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“哥哥送给我的兔子玩偶，为什么一直盯着我看...？”位列第 14 位，公开热度指标为 703953，榜单分类为“校园学习”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“官方通报传销头目出狱办书院，涉事书院被关停、3人被刑拘，还有其他违法犯罪线索被发现，哪些信息值得关注？”位列第 11 位，公开热度指标为 171 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：游戏：魔法兔兔
+来源公开摘要显示：8月5日，有媒体报道浙江新昌县“如是书院”相关问题。当日当地成立联合调查组，开展线索核查、调查取证、溯源摸排等工作。调查组经调查后发布如下通报： 赖某明（化名如平），1968年3月出生，户籍地浙江省绍兴市新昌县羽林街道，2002年因犯非法经营罪被广西壮族自治区北海市海城区人民法院判处有期徒刑2年，并处罚金50万元。 经查，“如是书院”未依法办理相关登记备案手续，经营场所由赖某明于2016年向新昌县七盘合一农业发展有限公司（系民营企业，实控人为当地村民张某某）转租，面积共306.1亩，其业务主要依托赖某明及其亲属关联的6家公司开展。6家公司核准经营范围主要
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `校园学习`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [DeepSeek调价生效 涨幅最高达1100%](han-dan-xue-bu.md)
-- [苏新皓辟谣穿丝袜](qi-ren-you-tian.md)
-- [伊朗称逮捕或消灭美军者将获奖励](chao-san-mu-si.md)
-- [我把全网热梗做成了捏捏乐【B站AI创造公开赛】](dui-niu-tan-qin.md)
+- [《干噎砒霜》](han-dan-xue-bu.md)
+- [央视曝光999元六天五晚云南低价游](qi-ren-you-tian.md)
+- [灵活就业人数越来越多怎么破解](chao-san-mu-si.md)
+- [问界儿童车即将上市](dui-niu-tan-qin.md)
 
 ## 站内推荐
 
-- [居民存款7月又少了6300亿](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [辟谣恋情都按谷爱凌这个标准来](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [劣迹艺人那艺娜活动被当场叫停](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [挣得太多了？海力士掌门叹气：确实](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [如何评价 DeepSeek 涨价后，OpenCode Go 套餐的 Flash 模型调用量削减94%？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [枪杀联合健康保险 CEO 的路易吉正式认罪，12 月将迎来量刑，或面临终身监禁，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [网文作者文黛黛假死 3 年承认骗局，读者斥责其消费感情，从法律上看，这种行为是否构成欺诈？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [继小米YU7完成品类启蒙后，岚图追光S、智界RX接连入局，FUV这个市场到底有没有想象空间？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [茅台的价值正在被重新定义](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“台风过后推开门 我差点哭出来”](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
-- [美林肯号航母为何海上漂了9个月](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
-- [四个儿子争着养95岁老母亲](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
-- [央视曝光后 云南连夜通报](http://www.movie.hkepx.cn/movie/5991338.htm)
-- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.daogukj.com/lxoougkn/)
-- [挣得太多了？海力士掌门叹气：确实](http://www.daogukj.com/8326428)
-- [小勒布伦战胜张本智和夺男单冠军](http://www.movie.hkepx.cn/xiju/5072880.htm)
+- [劣迹艺人那艺娜活动被当场叫停](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
+- [2026 年英格兰社区盾杯阿森纳 3-0 曼城，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
+- [摩根大通警告明年或爆发全球粮食危机，食品通胀率将从2.8%升至5%，粮价会大涨吗？会对国内有影响吗？](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
+- [胖东来被涨租逼走却从不涨商户租](http://www.movie.hkepx.cn/movie/5991338.htm)
+- [它是水果界的维C天花板](http://www.daogukj.com/lxoougkn/)
+- [茅台的价值正在被重新定义](http://www.daogukj.com/8326428)
+- [档案袋被外婆拆了好崩溃](http://www.movie.hkepx.cn/xiju/5072880.htm)
 - [为中国航天点赞](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
-- [丁程鑫从不遮掩自己农村家庭背景](http://www.daogukj.com/1022614)
-- [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.movie.hkepx.cn/xiju/7621812.htm)
-- [手机消费毁了逛街和创造力吗](http://www.movie.hkepx.cn/movie/2413887.htm)
-- [顺天意承因果，强者之间的怜悯](http://www.movie.hkepx.cn/xiju/7532931.htm)
-- [伊朗称逮捕或消灭美军者将获奖励](http://www.daogukj.com/kbhgllhh/)
-- [DeepSeek正式涨价](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
-- [加油新规11月起正式实施](http://www.daogukj.com/1222828)
-- [南极冰川现“神秘生物”系AI生成](http://www.daogukj.com/ttvulxwh/)
-- [罕见爆仓！华尔街巨头巨亏1000亿](http://www.movie.hkepx.cn/xiju/9490112.htm)
-- [胖东来将闭门老店28个收银口排长龙](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
-- [巴西一杀手指着男子头扣扳机结果卡壳](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
-- [孙楠回应体重只有128斤](http://www.daogukj.com/qxdtupzr/)
-- [中国为什么值得“反复探索”](http://www.movie.hkepx.cn/xiju/3795229.htm)
+- [为什么说“围棋已死”而没有“象棋已死”的说法？](http://www.daogukj.com/1022614)
+- [【独家】牧神记 第96集 延康双雄](http://www.movie.hkepx.cn/xiju/7621812.htm)
+- [DeepSeek正式涨价](http://www.movie.hkepx.cn/movie/2413887.htm)
+- [“喵星人”爬上了丽江的墙](http://www.movie.hkepx.cn/xiju/7532931.htm)
+- [灵活就业人数越来越多怎么破解](http://www.daogukj.com/kbhgllhh/)
+- [如何看待富达投资人加文贝克声称，达里奥曾表示未来Anthropic将成为全世界唯一剩下的私营企业？](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
+- [纪念江泽民同志诞辰100周年大会](http://www.daogukj.com/1222828)
+- [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.daogukj.com/ttvulxwh/)
+- [【隂十娘】第52集](http://www.movie.hkepx.cn/xiju/9490112.htm)
+- [2026 WTT瑞典大满贯赛女单决赛，王曼昱 4-2 战胜王艺迪夺得女单冠军，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
+- [为什么日本不愿放弃北方四岛？](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
+- [胖东来将闭门店现大排长龙，附近商贩说要跟着搬迁，为啥这么多年过去了胖东来的客户粘性还这么强？](http://www.daogukj.com/qxdtupzr/)
+- [老外被中式美学硬控的N个瞬间](http://www.movie.hkepx.cn/xiju/3795229.htm)
 - [热播剧《来自河南的你 》](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
-- [赛博神话之大圣归来04:什么？听说大圣又来打闹天空了。](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
-- [17岁少年确诊胃癌一个半月后离世](http://www.daogukj.com/8473621)
-- [王俊凯妈妈给粉丝送伴手礼](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
-- [中企12亿收购阿根廷矿产项目遇波折](http://www.movie.hkepx.cn/xiju/0754538.htm)
-- [【ASMR】牛来 轻语助眠](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
+- [三星堆：是谁杀死了他们的神？](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
+- [乌克兰自研的火烈鸟导弹水平如何](http://www.daogukj.com/8473621)
+- [飞机安检模拟器](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
+- [哥哥送给我的兔子玩偶，为什么一直盯着我看...？](http://www.movie.hkepx.cn/xiju/0754538.htm)
+- [披荆斩棘一公组队](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
 - [有人要求政府联系某明星给自己过生日](http://www.daogukj.com/nddpfxtw/)
-- [央视曝光999元六天五晚云南低价游](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
-- [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
-- [龙餐馆原型称每天都可能被死神点名](http://www.daogukj.com/0923785)
-- [误订机票一小时内退票被扣5700元](http://www.daogukj.com/ytapmyxr/)
-- [吴艳妮示意中断比赛被出示黄牌](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
-- [乌克兰自研的火烈鸟导弹水平如何](http://www.daogukj.com/3735760)
-- [唐九洲凭高考647分加入乐华](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
-- [两人为博眼球发布不实信息被处罚](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
-- [小勒布伦4比1张本智和](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
-- [专家：靖国神社是“战犯神社”](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
-- [【2233生日主题曲】˚₊‧✩夏日幻梦列车✩‧₊˚](http://www.daogukj.com/0437875)
-- [三星堆：是谁杀死了他们的神？](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
-- [华泰证券：A股向上趋势基础未变](http://www.movie.hkepx.cn/xiju/4010771.htm)
-- [档案袋被外婆拆了好崩溃](http://www.daogukj.com/cvgkgyqv/)
-- [儿科医生杨国辉去世妻子发声](http://www.daogukj.com/afffhqsf/)
-- [哈尔滨把街道当自己家客厅拖](http://www.movie.hkepx.cn/movie/4359740.htm)
-- [胖东来被涨租逼走却从不涨商户租](http://www.daogukj.com/zaudsbpz/)
-- [王曼昱瑞典大满贯女单夺冠](http://www.daogukj.com/riicnlnn/)
-- [辟谣恋情都按谷爱凌这个标准来](http://www.movie.hkepx.cn/movie/3461436.htm)
-- [纳斯达克将实施23小时交易制有何影响](http://www.movie.hkepx.cn/xiju/6388091.htm)
-- [谷爱凌发文否认新恋情](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
-- [张元英水晶凉鞋](http://www.daogukj.com/9288361)
+- [假军人骗财骗色致10多名女子上当](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
+- [人生不只有考公考研两条路](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
+- [口技表演《定海神珍铁》](http://www.daogukj.com/0923785)
+- [2026 WTT瑞典大满贯，菲利克斯·勒布伦 4-1 击败张本智和，获得男单冠军，如何评价这场比赛？](http://www.daogukj.com/ytapmyxr/)
+- [美林肯号航母为何海上漂了9个月](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
+- [王曼昱瑞典大满贯女单夺冠](http://www.daogukj.com/3735760)
+- [电动自行车蓄电池爆炸有哪些预兆](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
+- [儿科医生杨国辉去世妻子发声](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
+- [辟谣恋情都按谷爱凌这个标准来](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
+- [让孩子读《钢铁是怎样炼成的》是不是已经不适合这个时代了呢？](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
+- [中企12亿收购阿根廷矿产项目遇波折](http://www.daogukj.com/0437875)
+- [小沈阳口碑](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
+- [王老菊教你壳BRO ①](http://www.movie.hkepx.cn/xiju/4010771.htm)
+- [影视圈“千万大V”被查](http://www.daogukj.com/cvgkgyqv/)
+- [龙餐馆原型说当时做饭很难吃](http://www.daogukj.com/afffhqsf/)
+- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.movie.hkepx.cn/movie/4359740.htm)
+- [四个儿子争着养95岁老母亲](http://www.daogukj.com/zaudsbpz/)
+- [瑞幸联名漫画 抄袭](http://www.daogukj.com/riicnlnn/)
+- [枪杀联合健康保险 CEO 的路易吉正式认罪，12 月将迎来量刑，或面临终身监禁，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/3461436.htm)
+- [三支 CN 战队小组赛出局创历史最差成绩，买了 TI15 门票的朋友们现在是什么感受？](http://www.movie.hkepx.cn/xiju/6388091.htm)
+- [市民打12345投诉月光太亮影响睡觉](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
+- [3名中法青年捐赠26份日本侵华资料](http://www.daogukj.com/9288361)
 
 </details>
 
 ## 原始来源
 
-- [哥哥送给我的兔子玩偶，为什么一直盯着我看...？](https://b23.tv/BV1gXbU6AEyk)
+- [官方通报传销头目出狱办书院，涉事书院被关停、3人被刑拘，还有其他违法犯罪线索被发现，哪些信息值得关注？](https://www.zhihu.com/question/2072417954453354372)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 09c1bf3d4d795406e8fe -->
+<!-- content-fingerprint: 320969c5333485b3bed6 -->
