@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 居民存款7月又少了6300亿
+# DeepSeek 新定价已生效，实际体验下来你的感受如何？跟你预想的差异大吗？
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6757350 · 更新：2026-08-17T13:07:22+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：134 万热度 · 分类：问答 · 更新：2026-08-17T13:51:52+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“居民存款7月又少了6300亿”位列第 11 位，公开热度指标为 6757350。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“DeepSeek 新定价已生效，实际体验下来你的感受如何？跟你预想的差异大吗？”位列第 9 位，公开热度指标为 134 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：日前央行披露的金融数据显示，7月人民币存款仅增加300亿元，同比少增4700亿元。其中，非银存款因去年同期高基数等影响，同比少增1.03万亿元，居民存款则净减少6300亿元，同比少减4800亿元。有机构认为，受7月资本市场偏弱的影响，居民存款向非银存款转移的力度减弱，“存款搬家”继续放缓。
+来源公开摘要显示：8月17日，根据深度求索DeepSeek官方公告，DeepSeek-V4系列API全新定价自今日0时正式生效，同时V4-Pro结束测试阶段，全面转为正式版商用服务。 本次调价取消统一计费模式，采用行业少见的算力错峰分级计价，高峰时段收费标准较空闲时段直接翻倍。 官方划定高峰时段为每日9:00-12:00、14:00-18:00，其余时间为空闲时段，空闲时段定价为高峰时段的一半，计费单位为元/百万tokens。DeepSeek涨价正式生效 - 观点网
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [王俊凯妈妈好年轻](ye-gong-hao-long.md)
-- [从胖东来撤场看生态圈经济](lan-yu-chong-shu.md)
-- [什么⁉Bye bye baby blue翻译竟然是错的✖！](zi-xiang-mao-dun.md)
-- [央视曝光后 云南连夜通报](bei-gong-she-ying.md)
+- [我一路走来，嘴巴都是绿色的。](ye-gong-hao-long.md)
+- [TI三支中国战队全军覆没](lan-yu-chong-shu.md)
+- [胖东来](zi-xiang-mao-dun.md)
+- [厦门人的“第一口鲜”已上岸](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [建议这类手机壳赶紧扔掉](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [演员海顿潘妮蒂尔去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [我把全网热梗做成了捏捏乐【B站AI创造公开赛】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [湖南一烤肉店被指张贴不雅标语](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [东莞 17 亿元全额付款土地被无偿收回，官方公告称已解除出让合同，怎样从法律角度解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [吴艳妮以 13 秒 12 夺得全锦赛女子 100 米栏冠军，成就三连冠和六冠王，如何评价她的表现？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [胖东来被涨租逼走，为啥它不直接涨入驻商户的租金来平摊？这一权衡背后有啥考量吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [《干噎砒霜》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [影视圈“千万大V”被查](http://www.daogukj.com/9193901)
-- [喜剧演员为什么这么难拿奖](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [热播剧《来自河南的你 》](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [南京培训机构失火致伤亡系谣言](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [8月28日24时油价调整](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [评论员：普京给日本上硬核一课](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [演员海顿潘妮蒂尔去世](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [我们的秘密……（1）](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [沪上阿姨玩梗《我的前半生》](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [从胖东来撤场看生态圈经济](http://www.daogukj.com/1877942)
-- [曝虞书欣补偿一念江南换角亏损](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [39岁儿科医生离世 千名患儿家属送别](http://www.daogukj.com/nuqwxjlx/)
-- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.daogukj.com/4054231)
-- [这个钥匙扣价值105万元](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [假军人骗财骗色致10多名女子上当](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [现货黄金再次突破4400美元](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [茅台的价值正在被重新定义](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [敖瑞鹏孙珍妮师兄太稳健定档](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [海湾国家讨论保留美军设施还有意义吗](http://www.daogukj.com/ygpoeeya/)
-- [金价大涨藏着什么信号](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.daogukj.com/9246627)
-- [3娃非亲生男子说弄清生父可不要赔偿](http://www.daogukj.com/2490072)
-- [A股](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [【2233生日主题曲】˚₊‧✩夏日幻梦列车✩‧₊˚](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [iPhoneUltra备货量](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [西班牙战机击落侵入罗马尼亚无人机](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [湖南一烤肉店被指张贴不雅标语](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [暑期服务消费潜能加速释放](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [《鸣潮》共鸣者战斗演示 | 清宵](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [TI三支中国战队全军覆没](http://www.daogukj.com/8715491)
-- [猴子误触高压电身亡 同伴不肯离去](http://www.daogukj.com/4788107)
-- [第12期：收官之夜！无双唱将集结合唱《小美满》【国乐无双】](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [高市的路口遥拜 日本的路口之忧](http://www.daogukj.com/9193901)
+- [胖东来从未涨过入驻商户房租](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [暑期服务消费潜能加速释放](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [Jennie手抖](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [猫能知道人为什么打“它”吗？](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [吴艳妮以 13 秒 12 夺得全锦赛女子 100 米栏冠军，成就三连冠和六冠王，如何评价她的表现？](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [《龙餐馆》最让人心碎的不是沈腾](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [飞机安检模拟器](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [TI三支中国战队全军覆没](http://www.daogukj.com/1877942)
+- [方程豹钛7 DM长续航版8月18日上市](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [小沈阳一公队长](http://www.daogukj.com/nuqwxjlx/)
+- [《干噎砒霜》](http://www.daogukj.com/4054231)
+- [电商“看人下菜碟”乱象调查](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [3孩非亲生奶奶恳求留下1个孩子遭拒](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [为什么才短短两三年，AI就已经泛滥成灾，到了人人喊打、人嫌狗厌的境地？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [自行车被偷后，保安在监控里发现了霸王龙？#SpecialForAAIFF【AI全民制作人】](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [苹果被特朗普政府督促放弃采购中国存储芯片，这背后有哪些利益博弈？双方还能合作吗？](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [德比斯和张雪拥抱](http://www.daogukj.com/ygpoeeya/)
+- [问界儿童车即将上市](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [南京培训机构失火致伤亡系谣言](http://www.daogukj.com/9246627)
+- [我把全网热梗做成了捏捏乐【B站AI创造公开赛】](http://www.daogukj.com/2490072)
+- [央视曝光后 云南连夜通报](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [神之瞳在这么显眼的地方，旅行者拿走了，当地人就没什么反应吗？](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [辣条业务已不足卫龙总营收三分之一，卫龙的辣条卖不动了吗？蔬菜制品收入大涨，反映了品牌哪些趋势？](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [第12期：收官之夜！无双唱将集结合唱《小美满》【国乐无双】](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [严浩翔生日会全程回顾：严浩翔YAN常热爱【2026时代少年团系列直播】](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [《鸣潮》共鸣者战斗演示 | 清宵](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [摩根大通警告明年或爆发全球粮食危机，食品通胀率将从2.8%升至5%，粮价会大涨吗？会对国内有影响吗？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [演员海顿潘妮蒂尔去世](http://www.daogukj.com/8715491)
+- [《绝区零》希格莉德角色PV | 小马希莉](http://www.daogukj.com/4788107)
+- [伊朗称美国被驱逐已成事实，今后不得进入波斯湾、阿曼湾和霍尔木兹海峡，如何看待这一表态？](http://www.movie.hkepx.cn/movie/0622898.htm)
 - [央视曝光低价宰客团云南连夜彻查](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [河南文旅的口碑都在留言区](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [口技表演《定海神珍铁》](http://www.daogukj.com/3872248)
-- [李荣浩给杨丞琳送花篮落款先生](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [什么⁉Bye bye baby blue翻译竟然是错的✖！](http://www.daogukj.com/sguhnydl/)
-- [AI预测未来增加1.7亿新岗位](http://www.daogukj.com/6123602)
-- [央视曝光后 云南连夜通报](http://www.daogukj.com/7243934)
-- [关于我的手工猫咪](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [【隂十娘】第52集](http://www.daogukj.com/fgkxwaik/)
-- [小沈阳一公队长](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [整个银河系，因为一盒“野生狗奶”外卖打起来了......](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [“极少数巨婴碰瓷了大量公共资源”](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [欢天喜地七仙女凡间造型](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [飞机安检模拟器](http://www.daogukj.com/4800229)
-- [迪丽热巴在大学是辩论赛主席](http://www.daogukj.com/1329201)
-- [伊朗称逮捕或消灭美军者将获奖励](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [离家20多年母亲现身分儿子死亡赔偿](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [我把全网热梗做成了捏捏乐【B站AI创造公开赛】](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [从胖东来撤场看生态圈经济](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [为什么有同学放弃了北大清华，选择了复旦？](http://www.daogukj.com/3872248)
+- [爸爸带14岁厌学儿子三伏天送外卖](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [胖东来](http://www.daogukj.com/sguhnydl/)
+- [19岁小勒布伦世界排名冲至第二](http://www.daogukj.com/6123602)
+- [厦门人的“第一口鲜”已上岸](http://www.daogukj.com/7243934)
+- [评论员：普京给日本上硬核一课](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [长鑫科技盘中涨超10% 股价创新高](http://www.daogukj.com/fgkxwaik/)
+- [“行”是走路，“李”是水果，为什么“行李”这个词却是“出行带的物品”？](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [四个儿子争着养95岁老母亲](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [迪丽热巴在大学是辩论赛主席](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [18岁姑娘身体突然“崩”了 医生提醒](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [这6种剩菜别二次加热！再心疼也别吃](http://www.daogukj.com/4800229)
+- [热播剧《来自河南的你 》](http://www.daogukj.com/1329201)
+- [鹿晗去看极光了](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [【隂十娘】第52集](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [胖东来被涨租逼走，为啥它不直接涨入驻商户的租金来平摊？这一权衡背后有啥考量吗？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [居民存款7月又少了6300亿](https://www.baidu.com/s?wd=%E5%B1%85%E6%B0%91%E5%AD%98%E6%AC%BE7%E6%9C%88%E5%8F%88%E5%B0%91%E4%BA%866300%E4%BA%BF&sa=fyb_news&rsv_dl=fyb_news)
+- [DeepSeek 新定价已生效，实际体验下来你的感受如何？跟你预想的差异大吗？](https://www.zhihu.com/question/2072598571090538898)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0be94046826a13cd8243 -->
+<!-- content-fingerprint: cbd8c763036749534191 -->
