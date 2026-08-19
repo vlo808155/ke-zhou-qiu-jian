@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 章子怡到手3个亿 不是通过演戏
+# 我们不欢迎这样的客人，也不赚这种米
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6761948 · 更新：2026-08-19T07:54:41+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：3140944 · 分类：美食侦探 · 更新：2026-08-19T09:26:31+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“章子怡到手3个亿 不是通过演戏”位列第 11 位，公开热度指标为 6761948。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“我们不欢迎这样的客人，也不赚这种米”位列第 11 位，公开热度指标为 3140944，榜单分类为“美食侦探”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月11日，港股上市公司上美股份发布公告，其全资附属公司上海青道将从共青城大脚投资合伙企业处，收购婴童护肤品牌“newpage一页”母公司上海怡页23%的股权。该有限合伙由章子怡出资99%、其父章元孝出资1%设立，章子怡2022年首次持股上海怡页时认缴出资仅290万元，4年时间这笔数百万的投资直接套现超3亿元。
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `美食侦探`
 
 ## 相关热点
 
-- [李现回沙溪古镇了](dui-niu-tan-qin.md)
-- [“南京某培训机构失火致人伤亡”不实](mang-ren-mo-xiang.md)
-- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](yuan-mu-qiu-yu.md)
-- [我看看谁错字了！](sha-ji-qu-luan.md)
+- [3孩非亲生案女方提交流水含开房记录](dui-niu-tan-qin.md)
+- [章子怡套现3亿](mang-ren-mo-xiang.md)
+- [博主造谣赵尚志烈士哥哥冒领抚恤金](yuan-mu-qiu-yu.md)
+- [小米集团第二季度总收入 1089 亿元，经调整净利润 62 亿元，如何评价其业绩表现？](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
-- [微信开放520大额红包 限时一天](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [宇树科技今日上市](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [青海海西州5.6级地震](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [“泔水喂猪”被正式写入禁令](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [男子在景德镇卖树叶10元一片](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [《影之刃零》专场 State of Play 全程回顾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [《商务柔道》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [我把你们对铜的逆天想法都做到了MC里...?!🤣](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [绝境降临！狭小缆车空间怎样熬过危机四伏的一百天！！「缆车惊变100天」](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [欢迎来龙餐馆！世界眼中的中国，与中国眼中的世界](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [微信七夕再开放520红包](http://www.daogukj.com/4141941)
-- [BBA集体大降价，宝马5系跌至28万、奔驰E级优惠超10万，传统豪华车的价格体系是如何走向瓦解的？](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [宇树科技今日上市](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [李现回沙溪古镇了](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [反抗暴力强拆致死被判无罪当事人发声](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [25 年来最贵美债横空出世，美联储没加息，市场却完成一轮「被动加息」，有何影响？美债收益率为何飙升？](http://www.daogukj.com/7265089)
-- [狗妈妈每天叼4只崽上楼吹空调](http://www.daogukj.com/3085948)
-- [女子开门杀反遭关门杀](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [“南京某培训机构失火致人伤亡”不实](http://www.daogukj.com/jtbnzsng/)
-- [事关住房公积金 有这些新变化](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [我看看谁错字了！](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [“反诈老陈”新工作月薪1.5万](http://www.daogukj.com/5882217)
-- [白鹿包场敖瑞鹏孙珍妮师兄太稳健](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [小米集团第二季度总收入 1089 亿元，经调整净利润 62 亿元，如何评价其业绩表现？](http://www.daogukj.com/0190432)
-- [“一抬头以为梁朝伟给我挑水果”](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [「结婚8年3孩均非亲生」案女方当庭承认出轨，主张男方在婚内已知晓孩子非亲生，这会怎样影响法律判定？](http://www.daogukj.com/nzmqevzx/)
-- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](http://www.daogukj.com/qnzjxpsz/)
-- [朱雀三号](http://www.daogukj.com/7347029)
-- [胖东来招聘不包含性侵犯罪人员](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [上海2026社保基数公布](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [日本地震灾区有人假扮自卫队洗劫民宅](http://www.movie.hkepx.cn/xiju/8115054.htm)
-- [朱镕基同志生平](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [地球毁灭后，人类只剩四条路｜你会把文明带向哪里？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [《如常运转｜正常運転》MV：全世界都会震惊于日本的灾后重建速度](http://www.daogukj.com/2641155)
-- [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [河南钻石把英伟达馋哭了](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [《商务柔道》](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [美股](http://www.daogukj.com/3850819)
-- [60万亿元，打开消费增长新空间](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [中国小伙去越南见女友家长坠海失踪](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [人形机器人热身赛飞速过弯撞上电箱](http://www.daogukj.com/9307696)
-- [格力创办技工学校，首届招收三百名初中毕业生，毕业后可优先进入格力就业，这种培养模式前景如何？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [公积金](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [第一视角看高中生抢饭（夜宵版）](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [75岁王石再创业](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [女子凭基因认出十几年前同学的儿子](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [做事千万不要有状态洁癖](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [公积金 强制缴纳](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [医生：泡面不健康不是因为防腐剂](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [居民回忆胖东来出钱帮修排水沟](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [官方通报杭州酒局事件](http://www.daogukj.com/6360237)
-- [热点事件网络围观必备素养](http://www.daogukj.com/7781714)
-- [男子在景德镇卖树叶10元一片](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [狗妈妈怕幼崽中暑每天叼进室内吹空调](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [今日七夕](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [菜籽油运输车泄漏居民提桶接油](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [金枕榴莲也进入9.9元时代了](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [为什么杨过在英雄大会上当着这么多人的面说了他喜欢小龙女，小龙女后面还老是吃郭芙的醋?](http://www.movie.hkepx.cn/xiju/7034358.htm)
-- [杭州酒局事件赵某峰郁某栋被刑拘](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [有外卖平台在部分区域落地「红灯停表」，实测发现骑手等灯2分钟，系统可补回，能否缓解骑手们的时效焦虑？](http://www.daogukj.com/nlksxqaw/)
+- [AirPods5曝光](http://www.daogukj.com/4141941)
+- [美媒：“将中国拒之门外”损害美利益](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [《商务柔道》](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [3孩非亲生案女方提交流水含开房记录](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [蓝盈莹上浪姐确实赢麻了](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [究竟是谁在刻意收窄台海和平窗口](http://www.daogukj.com/7265089)
+- [京彩中国节](http://www.daogukj.com/3085948)
+- [热点事件网络围观必备素养](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [章子怡套现3亿](http://www.daogukj.com/jtbnzsng/)
+- [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [小米集团第二季度总收入 1089 亿元，经调整净利润 62 亿元，如何评价其业绩表现？](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [【独家】《百日成王》第17集 每一场应援就像一场战斗！【7月国创】](http://www.daogukj.com/5882217)
+- [75岁王石开健身房 每小时最高308元](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [宇树科技今日上市](http://www.daogukj.com/0190432)
+- [我看看谁错字了！](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [75岁王石再创业](http://www.daogukj.com/nzmqevzx/)
+- [博主造谣赵尚志烈士哥哥冒领抚恤金](http://www.daogukj.com/qnzjxpsz/)
+- [弟弟举报哥哥冒名上大学案母亲未出庭](http://www.daogukj.com/7347029)
+- [今日七夕](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [这些诗词句句不提爱句句充满爱](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [七夕](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [朱雀三号](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
+- [格力创办技工学校，首届招收三百名初中毕业生，毕业后可优先进入格力就业，这种培养模式前景如何？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [互联网大厂开始后悔搞AI了吗？](http://www.daogukj.com/2641155)
+- [小熊电器净利暴跌 41%，那些曾风靡一时的网红小家电为何集体「吃灰」？大家的消费选择发生了怎样的变化？](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [80后老登，1人，4个月，113分钟AI长片电影《出马仙镇东北》【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [如何评价网传消息「3700 均订起点作者因使用 AI 被斩杀」？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [卖21吨银条赚2.47亿的物业公司被套了](http://www.daogukj.com/3850819)
+- [公积金用途又多了](http://www.movie.hkepx.cn/xiju/8710542.htm)
+- [李现回沙溪古镇了](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [那英北京演唱会嘉宾](http://www.daogukj.com/9307696)
+- [伊朗举行哈梅内伊下葬四十日纪念仪式](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [金枕榴莲也进入9.9元时代了](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [日本正式实施高端机床出口管制新规，这意味着什么？](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [比野生狗奶还永久的存在出现了](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [做事千万不要有状态洁癖](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [这才是《欢迎来龙餐馆》的彩蛋](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [医生：泡面不健康不是因为防腐剂](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [忍术回战 26分钟沉浸式观看](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [女子开门杀反遭关门杀](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [《鸣潮》共鸣者「清宵」PV | 修行](http://www.daogukj.com/6360237)
+- [《如常运转｜正常運転》MV：全世界都会震惊于日本的灾后重建速度](http://www.daogukj.com/7781714)
+- [欢迎来龙餐馆！世界眼中的中国，与中国眼中的世界](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [胖东来招聘不包含性侵犯罪人员](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [第一视角看高中生抢饭（夜宵版）](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [七夕文案](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [意外穿越怪谈世界，十二星座决定你的专属变身 第二期 （下） ASMR](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [日本地震灾区有人假扮自卫队洗劫民宅](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [反诈老陈宣布停更7天挣生活费](http://www.movie.hkepx.cn/xiju/0218818.htm)
+- [蒙古不法分子擅闯中资营地侮辱员工](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [章子怡到手3个亿 不是通过演戏](https://www.baidu.com/s?wd=%E7%AB%A0%E5%AD%90%E6%80%A1%E5%88%B0%E6%89%8B3%E4%B8%AA%E4%BA%BF+%E4%B8%8D%E6%98%AF%E9%80%9A%E8%BF%87%E6%BC%94%E6%88%8F&sa=fyb_news&rsv_dl=fyb_news)
+- [我们不欢迎这样的客人，也不赚这种米](https://b23.tv/BV1Neba63EDK)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bae500104c8a4e6fc14b -->
+<!-- content-fingerprint: 89e4fbe6bd0aa8cb3089 -->
