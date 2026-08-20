@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 法国一葡萄园发现赤裸烧焦女尸
+# 媒体曝劣质手机壳是用医疗垃圾做的，其释放的塑化剂是儿童性早熟主要诱因，长期接触真会导致性早熟吗？
 
-> 来源：今日头条热榜 · 排名：第 12 位 · 热度：18605622 · 分类：新事件上榜 · 更新：2026-08-20T15:15:35+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：170 万热度 · 分类：问答 · 更新：2026-08-20T16:02:51+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“法国一葡萄园发现赤裸烧焦女尸”位列第 12 位，公开热度指标为 18605622，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“媒体曝劣质手机壳是用医疗垃圾做的，其释放的塑化剂是儿童性早熟主要诱因，长期接触真会导致性早熟吗？”位列第 12 位，公开热度指标为 170 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，话题 “这种手机壳可能是医疗垃圾做的” 冲上热搜，引发网友热议 不少人可能都体会过 刚买的手机壳有浓烈的塑料味 当手机发热时味道更明显 这可能是有毒有害物质超标的信号 你的手机壳安全吗？ 廉价手机壳 暗藏3大健康隐患 手机壳为何成为“健康隐形杀手”？该行业准入门槛极低，仅需购买模具即可批量生产。许多小作坊为压缩成本，使用回收塑料、工业级染料，甚至违规添加廉价助剂。从业者透露：“正规原料每吨上万元，掺入废塑料成本能降三分之二。” 回收“垃圾”塑料 部分商家可能会回收医疗废料、电子垃圾，简单处理后注塑成型，这样的手机壳往往携带塑化剂、多环芳烃、重金属等
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [司法部认定欧盟针对京东的《外国补贴条例》跨境调查构成不当域外管辖，任何人不得协助执行，如何看待此事？](yuan-mu-qiu-yu.md)
-- [不是！可她真的不一样！](sha-ji-qu-luan.md)
-- [河南濮阳地震](yin-zhen-zhi-ke.md)
-- [曾辉一公没人选](ke-zhou-qiu-jian.md)
+- [《鸡来》一个半小时超长电影！！！](yuan-mu-qiu-yu.md)
+- [日本国宝级女演员岸惠子去世](sha-ji-qu-luan.md)
+- [河北涿州 代孕机构](yin-zhen-zhi-ke.md)
+- [恒大集团被罚88.2亿元](ke-zhou-qiu-jian.md)
 
 ## 站内推荐
 
-- [宇树上市第2天王兴兴最新发声](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [青岛男子否认亲子关系纠纷案开庭](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [美国国债突破40万亿意味着什么](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [上海出台楼市“沪八条”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [河南范县地震 济南菏泽有震感](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [美国制裁赤根智子 日本网民炸锅](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [上海出台楼市“沪八条”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [民进党精心布局击垮国民党辅选](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [河南某小区凭高考成绩减免物业费，有人质疑减免的物业费是否变相由其他业主承担，如何看待这一举措？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [杭州一父亲每月给上大学的女儿2500元生活费，想让女儿用10万压岁钱出1000元遭拒，你怎么看？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [男子划桨板时徒手拽出60斤大鱼](http://www.movie.hkepx.cn/xiju/5254484.htm)
-- [富士康紧急扩招 新人入职就奖8800元](http://www.play.hengshemaoyi.cn/kongbu/8300835.htm)
-- [北大报到日校园满是扛床垫的爸](http://www.daogukj.com/8538561)
-- [我这一生最大的罪，是把人写成了妖……](http://www.movie.hkepx.cn/xiju/9636707.htm)
-- [暗区突围手游剧情回顾，S19 赛季「硝烟无声」9 月 2 日即将上线！](http://www.movie.hkepx.cn/xiju/9677755.htm)
-- [恒大集团、恒大地产、许家印等案一审宣判](http://www.movie.hkepx.cn/xiju/9380354.htm)
-- [癌症疫苗真的来了？首个 mRNA 疫苗联合 K 药在黑色素瘤辅助治疗中优于 K 药单药，意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/1083051.htm)
-- [七夕节老番茄就和自己玩游戏](http://www.play.hengshemaoyi.cn/kongbu/9908956.htm)
-- [华人美女酒驾，魅力征服警察，全程公主般待遇，4个警察抢着送她 | Eric长安万年](http://www.play.hengshemaoyi.cn/kongbu/7203266.htm)
-- [你们忍得住不说吗？](http://www.play.hengshemaoyi.cn/xiju/1700337.htm)
+- [宇树总市值已跌超1500亿](http://www.play.hengshemaoyi.cn/kongbu/8300835.htm)
+- [我国消费市场向新向优](http://www.daogukj.com/8538561)
+- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.movie.hkepx.cn/xiju/9636707.htm)
+- [63斤“驼背女孩”被外卖男友求婚](http://www.movie.hkepx.cn/xiju/9677755.htm)
+- [富士康紧急扩招 新人入职就奖8800元](http://www.movie.hkepx.cn/xiju/9380354.htm)
+- [那些把软件放D盘的人是出于什么目的考虑的？](http://www.play.hengshemaoyi.cn/kongbu/1083051.htm)
+- [这几个片段大家可能都听过，但你们知道其实来源于同一首歌吗](http://www.play.hengshemaoyi.cn/kongbu/9908956.htm)
+- [肿瘤疫苗历史性突破引爆医药行情](http://www.play.hengshemaoyi.cn/kongbu/7203266.htm)
+- [艾滋病检测结果不告知配偶？律师回应](http://www.play.hengshemaoyi.cn/xiju/1700337.htm)
 - [比收到更卑微的词出现了](http://www.play.hengshemaoyi.cn/kongbu/0703101.htm)
-- [《影之刃零》专场 State of Play 全程回顾](http://www.play.hengshemaoyi.cn/xiju/9617132.htm)
-- [宇树大跌](http://www.play.hengshemaoyi.cn/kongbu/0549768.htm)
+- [《空枪》口碑](http://www.play.hengshemaoyi.cn/xiju/9617132.htm)
+- [机器人什么时候能真正走进生活](http://www.play.hengshemaoyi.cn/kongbu/0549768.htm)
 - [《黑神话：钟馗》发布 15 分钟实机演示视频，有哪些细节设计值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6791255.htm)
-- [机场搬行李不用人了](http://www.play.hengshemaoyi.cn/xiju/6801572.htm)
-- [首个治疗性癌症疫苗](http://www.movie.hkepx.cn/xiju/0098246.htm)
-- [当朋友总用奇怪的皮肤和你一起玩...](http://www.daogukj.com/4591818)
-- [男子重病期间立遗嘱遗产全部留给弟弟不给妻儿，引爆房产争夺战，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/1647126.htm)
+- [艾滋病检测结果不得告知配偶](http://www.play.hengshemaoyi.cn/xiju/6801572.htm)
+- [青岛文旅关闭评论区天才是真塌了](http://www.movie.hkepx.cn/xiju/0098246.htm)
+- [小米扫拖机器人避障不灵撞坏百万家具](http://www.daogukj.com/4591818)
+- [司法部认定欧盟针对京东的《外国补贴条例》跨境调查构成不当域外管辖，任何人不得协助执行，如何看待此事？](http://www.movie.hkepx.cn/xiju/1647126.htm)
 - [今年秋裤可能真的不用穿了](http://www.daogukj.com/3416339)
-- [青岛男子否认亲子关系纠纷案开庭](http://www.daogukj.com/dibrlfyn/)
-- [空军预警学院500余名新学员陆续报到](http://www.play.hengshemaoyi.cn/xiju/1230197.htm)
-- [央视七夕晚会舞台全是惊喜](http://www.play.hengshemaoyi.cn/xiju/3891752.htm)
-- [抖音推出「馋猫外卖」虚拟点餐，订单不会送达，金额存入「一起攒」，如何看待这一功能？怎样从商业角度解读？](http://www.movie.hkepx.cn/xiju/7475483.htm)
-- [【七夕】我用50部电影来感受《出现又离开》这首歌，发现早已热泪盈眶](http://www.daogukj.com/rdwzlexf/)
-- [河北涿州 代孕机构](http://www.movie.hkepx.cn/movie/1674926.htm)
-- [河南某小区凭高考成绩减免物业费，有人质疑减免的物业费是否变相由其他业主承担，如何看待这一举措？](http://www.movie.hkepx.cn/movie/1659578.htm)
-- [许家印两个儿子也判了](http://www.movie.hkepx.cn/movie/0830848.htm)
-- [日本国宝级女演员岸惠子去世](http://www.play.hengshemaoyi.cn/kongbu/3347718.htm)
-- [王兴兴进入“奥德赛”时期了吗](http://www.movie.hkepx.cn/movie/9387059.htm)
+- [上海出台楼市“沪八条”](http://www.daogukj.com/dibrlfyn/)
+- [多地商场外墙撤下商业广告，挂上钱学森、邓稼先等多名科学家公益海报，这么做背后可能有哪些考量？](http://www.play.hengshemaoyi.cn/xiju/1230197.htm)
+- [谁在七夕送了李小冉一辆车](http://www.play.hengshemaoyi.cn/xiju/3891752.htm)
+- [两人买三张票空座放零食，站票乘客想入座，列车员称无法强制协调，你觉得该让座吗？两人买三座算浪费资源吗？](http://www.movie.hkepx.cn/xiju/7475483.htm)
+- [北大报到日校园满是扛床垫的爸](http://www.daogukj.com/rdwzlexf/)
+- [孕妇产检因医生疏忽误服有毒液体](http://www.movie.hkepx.cn/movie/1674926.htm)
+- [不是！可她真的不一样！](http://www.movie.hkepx.cn/movie/1659578.htm)
+- [李响8年3次求婚孙骁骁未果](http://www.movie.hkepx.cn/movie/0830848.htm)
+- [A股收盘：全市场近4100只个股上涨](http://www.play.hengshemaoyi.cn/kongbu/3347718.htm)
+- [顾客曝全季酒店敞房门8小时，20万财产无人看管，片区主管称再追究下去对你我都不好，哪些问题值得关注？](http://www.movie.hkepx.cn/movie/9387059.htm)
 - [许家印一审被判无期](http://www.play.hengshemaoyi.cn/kongbu/5252676.htm)
-- [怪谈逃生指南第一期：《恶魔法典》](http://www.daogukj.com/kmdfuktu/)
-- [上市第二日，宇树科技一度大跌17%，市值跌破3000亿元，哪些资金在离场？短期行情后续会如何演化？](http://www.movie.hkepx.cn/movie/7517228.htm)
-- [7个China热词讲透中国潮](http://www.daogukj.com/eyzxcodq/)
-- [男子穿女装戴假发进女厕被抓现行](http://www.movie.hkepx.cn/xiju/0049899.htm)
+- [【IGN】《黑神话：钟馗》实机演示](http://www.daogukj.com/kmdfuktu/)
+- [怪谈逃生指南第一期：《恶魔法典》](http://www.movie.hkepx.cn/movie/7517228.htm)
+- [中非视听之约北京启幕](http://www.daogukj.com/eyzxcodq/)
+- [如何看待美国出手救美债](http://www.movie.hkepx.cn/xiju/0049899.htm)
 - [警方通报时代峰峻楼下聚集事件](http://www.daogukj.com/fmnuomue/)
-- [《鸡来》一个半小时超长电影！！！](http://www.movie.hkepx.cn/xiju/3068674.htm)
-- [又一家新能源汽车公司入局](http://www.movie.hkepx.cn/xiju/8770398.htm)
+- [七夕节老番茄就和自己玩游戏](http://www.movie.hkepx.cn/xiju/3068674.htm)
+- [英国哈里王子与妻子被曝月内返英定居](http://www.movie.hkepx.cn/xiju/8770398.htm)
 - [月薪4000存款20w](http://www.play.hengshemaoyi.cn/kongbu/2331230.htm)
-- [每天一瓶饮料和患糖尿病的关系是直接的吗？](http://www.daogukj.com/4228742)
-- [上海出台楼市“沪八条”](http://www.daogukj.com/mmqadtuf/)
-- [机器人什么时候能真正走进生活](http://www.play.hengshemaoyi.cn/xiju/9349178.htm)
-- [德国最忌讳的两线作战，为何到1941年，居然让希特勒自己拾了起来？就没人冒死劝谏？](http://www.play.hengshemaoyi.cn/xiju/8636122.htm)
-- [曾辉一公没人选](http://www.movie.hkepx.cn/xiju/8338745.htm)
-- [不是！可她真的不一样！](http://www.daogukj.com/vwhhkfjg/)
+- [停更7年，我又以经典的方式玩MC](http://www.daogukj.com/4228742)
+- [河南某小区凭高考成绩减免物业费，有人质疑减免的物业费是否变相由其他业主承担，如何看待这一举措？](http://www.daogukj.com/mmqadtuf/)
+- [宇树上市第2天王兴兴最新发声](http://www.play.hengshemaoyi.cn/xiju/9349178.htm)
+- [各个省份早餐对比（第一期）](http://www.play.hengshemaoyi.cn/xiju/8636122.htm)
+- [恒大集团被罚88.2亿元](http://www.movie.hkepx.cn/xiju/8338745.htm)
+- [日本国宝级女演员岸惠子去世](http://www.daogukj.com/vwhhkfjg/)
 - [【独家/完结】《将夜》第19集 光明之夜【4月国创】](http://www.movie.hkepx.cn/movie/1928240.htm)
-- [许家印被判无期徒刑](http://www.play.hengshemaoyi.cn/xiju/2512943.htm)
-- [小米扫拖机器人避障不灵撞坏百万家具](http://www.play.hengshemaoyi.cn/xiju/2526699.htm)
-- [警方通报青岛男子辱骂女游客](http://www.movie.hkepx.cn/movie/4945995.htm)
-- [多地商场外墙撤下商业广告，挂上钱学森、邓稼先等多名科学家公益海报，这么做背后可能有哪些考量？](http://www.daogukj.com/3001046)
-- [恒大集团被罚88.2亿元](http://www.movie.hkepx.cn/xiju/0762217.htm)
+- [恒大集团、恒大地产、许家印等案宣判](http://www.play.hengshemaoyi.cn/xiju/2512943.htm)
+- [中方回应“特朗普称将同金正恩会晤”](http://www.play.hengshemaoyi.cn/xiju/2526699.htm)
+- [12306回应2人买3座是否有处置权](http://www.movie.hkepx.cn/movie/4945995.htm)
+- [龙 餐 馆 连 线 勇 哥](http://www.daogukj.com/3001046)
+- [曾辉一公没人选](http://www.movie.hkepx.cn/xiju/0762217.htm)
 
 </details>
 
 ## 原始来源
 
-- [法国一葡萄园发现赤裸烧焦女尸](https://www.toutiao.com/trending/7675902442810654770/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227675902442810654770%22%2C%22hot_board_impr_id%22%3A%2220260820151532DCECE27F7DF3E5CC9E4B%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [媒体曝劣质手机壳是用医疗垃圾做的，其释放的塑化剂是儿童性早熟主要诱因，长期接触真会导致性早熟吗？](https://www.zhihu.com/question/2072722723030000085)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d0e45ae1ffb825d7c126 -->
+<!-- content-fingerprint: 468e685b3103628ec9e9 -->
