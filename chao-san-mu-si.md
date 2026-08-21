@@ -2,11 +2,11 @@
 
 # 我收容了100位粉丝到我的一辈子存档里！
 
-> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：355657 · 分类：单机游戏 · 更新：2026-08-21T22:47:49+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：401967 · 分类：单机游戏 · 更新：2026-08-21T23:24:46+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“我收容了100位粉丝到我的一辈子存档里！”位列第 11 位，公开热度指标为 355657，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“我收容了100位粉丝到我的一辈子存档里！”位列第 11 位，公开热度指标为 401967，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：感谢所有参与本期内容的观众！ 点赞过19.8W开启比奇堡小区二期！ 喜欢本期内容记得点赞！投币呀！
 
@@ -19,9 +19,9 @@
 ## 相关热点
 
 - [临沂爆炸疑因租户非法储存捕鱼爆炸物](dui-niu-tan-qin.md)
-- [易烊千玺把乌兰布和泥土变成了礼物](mang-ren-mo-xiang.md)
+- [葫芦娃的公司告了时代峰峻](mang-ren-mo-xiang.md)
 - [45岁的陈冠希和48岁的黄晓明](yuan-mu-qiu-yu.md)
-- [华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？](sha-ji-qu-luan.md)
+- [MMORPG游戏《诡秘之主》开服一小时同时在线破70万，这游戏玩起来怎么样？](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
@@ -37,55 +37,55 @@
 <summary>展开更多相关内容</summary>
 
 - [微信聊天框 难看](http://www.daogukj.com/4141941)
-- [截止本次 15 分钟实机演示，你会愿意尝试玩《黑神话：钟馗》吗？](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [李小冉喜提奔驰大G](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
 - [举手之劳 亦是人间微光](http://www.movie.hkepx.cn/xiju/6168121.htm)
 - [临沂爆炸疑因租户非法储存捕鱼爆炸物](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [丰田扩大召回部分进口汽车](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [披荆斩棘一公仅淘汰一人](http://www.movie.hkepx.cn/xiju/3455382.htm)
 - [张雪机车遭查扣 李胜峰质问台当局](http://www.daogukj.com/7265089)
 - [“假鲁迅”“假余华”泛滥 谁来管](http://www.daogukj.com/3085948)
 - [湖北快递员被罚100元结束生命不实](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [易烊千玺把乌兰布和泥土变成了礼物](http://www.daogukj.com/jtbnzsng/)
+- [葫芦娃的公司告了时代峰峻](http://www.daogukj.com/jtbnzsng/)
 - ["复活吧！我的（ ）"](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [MMORPG游戏《诡秘之主》开服一小时同时在线破70万，这游戏玩起来怎么样？](http://www.movie.hkepx.cn/xiju/3032776.htm)
 - [我这一生最大的罪，是把人写成了妖……](http://www.daogukj.com/5882217)
-- [歌手自曝乘网约车在高速上出车祸](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [男子在KTV包厢厕所殴打女子被刑拘](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
 - [铁路通报“旅客买票占座放零食”](http://www.daogukj.com/0190432)
 - [缅甸人以为我不懂货？拿这种东西试图骗我](http://www.movie.hkepx.cn/xiju/9120157.htm)
 - [湖南唯一录取女生到空军预警学院报到](http://www.daogukj.com/nzmqevzx/)
 - [45岁的陈冠希和48岁的黄晓明](http://www.daogukj.com/qnzjxpsz/)
 - [全球粮食危机或于明年爆发](http://www.daogukj.com/7347029)
-- [光纤龙头 净利大增888.88%](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [宁德舰最新训练画面](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [警方通报男子KTV厕所殴打女子](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [官方回应旅客买票占座放零食](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [阿根廷4人因世界杯决赛冲突被禁赛](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [官方通报旅客买票占座放零食事件](http://www.movie.hkepx.cn/xiju/8115054.htm)
 - [临沂爆炸事故1死2失联](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
 - [台风「美莎克」致广西两地 159 人遇难 10 人失联，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [如何看待8月21日市场监管总局公告9家车企（特斯拉，小米，小鹏等）因车门紧急拉手不醒目召回多款汽车？](http://www.daogukj.com/2641155)
+- [为什么感觉三角洲越来越没意思了？](http://www.daogukj.com/2641155)
 - [怎么评价 DeepSeek-V4-Flash-Vision-Exp 发布，多模态能力表现如何？](http://www.movie.hkepx.cn/movie/4750298.htm)
 - [《 黑 神 话 咕 嘎 》终极典藏版](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [铁路部门通报「两人买三张票空座放零食事件」，称空座为未检票旅客座位，另两人不能占用，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
 - [台风沙德尔周日或升级为超强台风](http://www.daogukj.com/3850819)
 - [多元消费场景激发经济澎湃活力](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [妻子偷拍女子洗澡丈夫负责点评](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [影院午睡2.5小时仅1元多](http://www.daogukj.com/9307696)
+- [舒淇美成这样还有什么烦恼](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [披荆斩棘一公分数](http://www.daogukj.com/9307696)
 - [日本公务人员与情人开房时开线上会议](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
 - [河北涿州通报代孕事件：已立案抓获6人](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
 - [花椒的味道那么奇怪，为什么古代最高级别的宠爱会叫“椒房之宠”呢？](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [舒淇美成这样还有什么烦恼](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [顺其自然 难听](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [妻子偷拍女子洗澡丈夫负责点评](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [这就是伯牙子期](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
 - [微信新功能有点丑丑的](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [如是书院被查封 被洗脑的家长还没醒](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [500万成本狂揽34亿 这片太恐怖了](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
 - [《你咋开的车》](http://www.movie.hkepx.cn/movie/6584812.htm)
 - [汤家凤怼北大副院长张丹丹](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [本周演唱会热门推荐](http://www.daogukj.com/6360237)
+- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.daogukj.com/6360237)
 - [《明日方舟：终末地》「雪凇幽梦」版本前瞻预告](http://www.daogukj.com/7781714)
 - [时隔一年！久违的整合包生存，缆车末日惊变 100 天！绝不烂尾！！！](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [小沈阳摔了](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [警方通报男子KTV厕所殴打女子](http://www.movie.hkepx.cn/movie/1491579.htm)
 - [诡秘之主欧式古风发布会！失控版](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [这就是伯牙子期](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [微信测试“按住转文字”新功能](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [女子怀孕被房东要求退租，还被出具《房屋租赁补充告知书》限制在屋内坐月子，这合法吗？房东有权这样做吗？](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [小沈阳摔了](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [【万字硬核考据】全方位拆解《黑钟馗》-主角/怪物/战斗/剧情/符箓](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [大衣哥朱之文在新乡演出人气爆棚](http://www.movie.hkepx.cn/xiju/7034358.htm)
 - [欢子 摆烂](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [大衣哥朱之文在新乡演出人气爆棚](http://www.daogukj.com/nlksxqaw/)
+- [宁夏一化工公司爆炸事故致1死详情公布](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0aa5c8ac48d40903b23c -->
+<!-- content-fingerprint: 8784058d0983c7361450 -->
