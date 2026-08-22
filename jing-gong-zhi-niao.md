@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？
+# 旅客买票占座放零食引争议，购票是否拥有座位全部使用权？
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：117 万热度 · 分类：问答 · 更新：2026-08-23T02:44:54+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：99 万热度 · 分类：问答 · 更新：2026-08-23T03:10:53+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？”位列第 10 位，公开热度指标为 117 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“旅客买票占座放零食引争议，购票是否拥有座位全部使用权？”位列第 10 位，公开热度指标为 99 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：DeepSeek v4 Flash 0731 在 OpenCode 于 8 月 1 号上线后，短短两周内，每日交易量就从 3 万亿 Token 飙升到 18 万亿 Token ，几乎是 OpenRouter 每日交易量的两倍，也可能达到了 DeepSeek 总交易量的 30%到 50%。 然后 8 月 16 号，DeepSeek 将价格提高了大概 5 倍，OpenCode 平台的 DeepSeek 用量也大幅下降，而 OpenCode CEO 在尝试复现 DeepSeek 之前价格的时候发现，DeepSeek 似乎存在一些定制的基础设备支持，能够做到很长
+来源公开摘要显示：中新网8月21日电 据“西南铁路”微博消息，8月21日，中国铁路成都局集团有限公司官方微博发布《关于“旅客买票占座放零食”网络信息情况说明》。全文如下： 近日，针对 “旅客买票占座放零食” 网络信息，相关部门迅速组织核实，并组织法律和客运专业人员进行专题分析。 经核查，视频中的列车为8月16日上海至成都西的K1156次，由成都局集团公司成都客运段担当。当日，3名旅客实名制购买6号车厢005号、006号、007号三个硬座席位车票，乘车区间为上海站至南充站，其中2名旅客检票乘车并按席位号就座，将零食放置到1名未检票乘车旅客车票所对应的006号空闲席位。途中，
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -26,7 +26,7 @@
 ## 站内推荐
 
 - [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [如何看待现在好多小学初中生身高一米八？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
 - [到底是「女主播隐瞒已婚诱导粉丝打赏2500万」，还是「榜一大哥敲诈式维权」？此事关键在哪？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
 - [自驾1500公里，去看看西藏最西边的县、乡、村都是啥样？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
 - [挑战让精神小妹一天花1500，看她怎么花](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
@@ -37,19 +37,19 @@
 <summary>展开更多相关内容</summary>
 
 - [披荆斩棘淘汰](http://www.movie.hkepx.cn/movie/3685842.htm)
-- [2026羽毛球世锦赛，中国男单选手全部止步 16 强‌，创历史最差成绩。对此你怎么看呢？](http://www.movie.hkepx.cn/xiju/5670446.htm)
-- [80岁西班牙“狼孩”去世](http://www.movie.hkepx.cn/xiju/4927200.htm)
-- [以色列土耳其会爆发冲突吗](http://www.movie.hkepx.cn/movie/2410383.htm)
+- [如何看待中国传媒大学拟新增「游戏科学与技术」和「电子竞技」两个游戏类专业？对考生报考有何建议？](http://www.movie.hkepx.cn/xiju/5670446.htm)
+- [专家：座位是给人坐的不是来放零食的](http://www.movie.hkepx.cn/xiju/4927200.htm)
+- [80岁西班牙“狼孩”去世](http://www.movie.hkepx.cn/movie/2410383.htm)
 - [《黑神话：钟馗》15分钟实机演示](http://www.movie.hkepx.cn/xiju/7011492.htm)
 - [女孩求职被拒发现自己竟是“精神病”](http://www.daogukj.com/yuizpcez/)
-- [白血病不再是不治之症](http://www.daogukj.com/skvkqhkp/)
+- [马克龙宣布进一步加强对乌军事支持](http://www.daogukj.com/skvkqhkp/)
 - [宇树预赛小组垫底 回应缩减参赛项目](http://www.daogukj.com/7989270)
-- [男子调包订婚五金典当套现208万](http://www.movie.hkepx.cn/movie/8235826.htm)
+- [孙楠跳舞像老实人豁出去了](http://www.movie.hkepx.cn/movie/8235826.htm)
 - [人民日报：处置甲醛白菜必须从速从严](http://www.play.hengshemaoyi.cn/kongbu/1330395.htm)
 - [新赛季第一战，曼联 0-2 赫尔城，如何评价本场比赛？](http://www.daogukj.com/8516308)
-- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.movie.hkepx.cn/xiju/2845747.htm)
-- [王传君的雷霆野人妆是自己设计的](http://www.movie.hkepx.cn/xiju/4647338.htm)
-- [“速成车”的危害有多大](http://www.movie.hkepx.cn/movie/1997691.htm)
+- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.movie.hkepx.cn/xiju/2845747.htm)
+- [男子调包订婚五金典当套现208万](http://www.movie.hkepx.cn/xiju/4647338.htm)
+- [身高1.08米男生被深圳企业主动录用](http://www.movie.hkepx.cn/movie/1997691.htm)
 - [严肃观看儿子的历史记录](http://www.play.hengshemaoyi.cn/kongbu/9175355.htm)
 - [暑期旅游市场迸发新活力](http://www.movie.hkepx.cn/xiju/1117313.htm)
 - [郭晓东张睿 越看越心酸](http://www.movie.hkepx.cn/xiju/6588524.htm)
@@ -64,35 +64,35 @@
 - [曾被狼群抚养12年狼孩去世](http://www.play.hengshemaoyi.cn/xiju/9796102.htm)
 - [乘法的本质是什么？](http://www.movie.hkepx.cn/xiju/0936500.htm)
 - [住破房穿20块衣服男子20年攒下789万](http://www.play.hengshemaoyi.cn/kongbu/0289669.htm)
-- [韩国明年2月开始禁止吃狗肉](http://www.daogukj.com/7886683)
+- [女孩试衣时被人掀开门帘 警方介入](http://www.daogukj.com/7886683)
 - [真的...没有人类了](http://www.play.hengshemaoyi.cn/xiju/6388803.htm)
-- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.movie.hkepx.cn/movie/5203333.htm)
+- [如何看待现在好多小学初中生身高一米八？](http://www.movie.hkepx.cn/movie/5203333.htm)
 - [挑战让精神小妹一天花1500，看她怎么花](http://www.play.hengshemaoyi.cn/kongbu/6780839.htm)
 - [到底是「女主播隐瞒已婚诱导粉丝打赏2500万」，还是「榜一大哥敲诈式维权」？此事关键在哪？](http://www.play.hengshemaoyi.cn/xiju/0807477.htm)
-- [如何看待中国传媒大学拟新增「游戏科学与技术」和「电子竞技」两个游戏类专业？对考生报考有何建议？](http://www.daogukj.com/nlaxdpez/)
+- [2026羽毛球世锦赛，中国男单选手全部止步 16 强‌，创历史最差成绩。对此你怎么看呢？](http://www.daogukj.com/nlaxdpez/)
 - [曾被狼群抚养12年的西班牙狼孩去世](http://www.movie.hkepx.cn/xiju/9167417.htm)
 - [王源一句话让几万人低头看手机](http://www.movie.hkepx.cn/movie/1116768.htm)
 - [《走马》夯爆了](http://www.play.hengshemaoyi.cn/xiju/3017853.htm)
 - [机器人秀释小龙旋风踢 给自己干趴下](http://www.movie.hkepx.cn/movie/4719317.htm)
-- [中国男篮时隔12年再进U18亚洲杯决赛](http://www.movie.hkepx.cn/xiju/0517263.htm)
+- [机器人跳拉丁有多惊艳](http://www.movie.hkepx.cn/xiju/0517263.htm)
 - [零食占座当事人母亲发声](http://www.movie.hkepx.cn/movie/9183008.htm)
 - [人民日报谈火车零食占座](http://www.daogukj.com/hsndvgzz/)
-- [女孩试衣时被人掀开门帘 警方介入](http://www.movie.hkepx.cn/xiju/7386231.htm)
+- [曝欢子进的医院是美容院](http://www.movie.hkepx.cn/xiju/7386231.htm)
 - [我这一生最大的罪，是把人写成了妖……](http://www.movie.hkepx.cn/movie/9109944.htm)
 - [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](http://www.movie.hkepx.cn/movie/9419430.htm)
 - [零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？](http://www.daogukj.com/ehwgmnxm/)
-- [55元捡漏1.41万项链女子获5元补偿](http://www.daogukj.com/2775056)
+- [男子错过服务区找了个“野生”充电桩](http://www.daogukj.com/2775056)
 - [住破房穿20块衣服男子20年攒789万](http://www.daogukj.com/1395089)
 - [男子20年省吃俭用攒789万6天被骗光](http://www.daogukj.com/jlgjcofz/)
 - [台湾节目嘉宾说北京没有冰箱引群嘲](http://www.play.hengshemaoyi.cn/kongbu/1564112.htm)
-- [如何看待现在好多小学初中生身高一米八？](http://www.movie.hkepx.cn/movie/0007962.htm)
+- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.movie.hkepx.cn/movie/0007962.htm)
 
 </details>
 
 ## 原始来源
 
-- [怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？](https://www.zhihu.com/question/2074077084964733784)
+- [旅客买票占座放零食引争议，购票是否拥有座位全部使用权？](https://www.zhihu.com/question/2074251022332064658)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6961431bd5ebdc92c828 -->
+<!-- content-fingerprint: 0b4b0cd557f924329819 -->
