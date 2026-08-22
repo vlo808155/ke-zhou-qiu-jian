@@ -2,11 +2,11 @@
 
 # 零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：117 万热度 · 分类：问答 · 更新：2026-08-23T01:39:54+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：115 万热度 · 分类：问答 · 更新：2026-08-23T01:58:58+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？”位列第 11 位，公开热度指标为 117 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？”位列第 11 位，公开热度指标为 115 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：近日，"两女孩买三张火车票拒绝让座"引发热议。8月21日，铁路成都局通报。结论是：对应006号席位的旅客未检票乘车，已放弃其本次列车正在运行区段席位使用权，另2名旅客也不能占用和处置该席位，列车工作人员应根据现场实际情况协调处置。 简而言之就是：大人未检票上车属于放弃使用权，两个女孩也不能使用，列车员现场根据情况安排谁来坐。 但事情远非"占座堆零食"那么简单。记者联系上购票的孩子妈妈，她表示，当时是她送两女儿乘27小时绿皮火车回四川老家。因未请到假，想锻炼孩子独立出行。儿童不能单独购票，必须与成人票捆绑，她花236元购成人票，把孩子安顿好后就下车了。 为
 
@@ -28,7 +28,7 @@
 - [三张银行卡，初始金额人民币1亿，1万，1元，日利息分别是0.01%，1%，10%，怎么选择呢？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
 - [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
 - [英雄联盟的"连招"概念为什么消失了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [《GTA6》遭大规模泄露：两段实机视频、一张完整地图，R星紧急发起DMCA投诉，你怎么看？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [乘法的本质是什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
 - [起猛了，在7月新番看到短剧了...... 【泛式】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
@@ -44,12 +44,12 @@
 - [如何看待现在好多小学初中生身高一米八？](http://www.movie.hkepx.cn/xiju/2772866.htm)
 - ["复活吧！我的（ ）"](http://www.movie.hkepx.cn/movie/8157133.htm)
 - [4步手机自查身份证是否被别人绑定](http://www.movie.hkepx.cn/movie/3703338.htm)
-- [男子患癌在车间自缢 公司赔20余万](http://www.movie.hkepx.cn/xiju/3368241.htm)
+- [美伊进入经济战 中东局势何去何从](http://www.movie.hkepx.cn/xiju/3368241.htm)
 - [台湾节目嘉宾说北京没有冰箱引群嘲](http://www.movie.hkepx.cn/movie/9040401.htm)
 - [您好 没有为您拼命的义务 #乐意效劳](http://www.movie.hkepx.cn/movie/7194765.htm)
-- [走马太好听了](http://www.movie.hkepx.cn/movie/6128990.htm)
+- [SuperJunior出场太帅了](http://www.movie.hkepx.cn/movie/6128990.htm)
 - [起猛了，在7月新番看到短剧了...... 【泛式】](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
-- [亚朵“枕头被子”收入逼近主业](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
+- [80岁西班牙“狼孩”去世](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
 - [本关最优解：放70个窝瓜僵尸 【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
 - [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.movie.hkepx.cn/movie/4858272.htm)
 - [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](http://www.daogukj.com/bfxepwya/)
@@ -66,8 +66,8 @@
 - [欢子淘汰 压根没来](http://www.movie.hkepx.cn/xiju/2137446.htm)
 - [世界人形机器人运动会亮点](http://www.daogukj.com/0166884)
 - [李信没了还可以玩六耳，拆完塔一个筋斗云就走了](http://www.movie.hkepx.cn/movie/0848231.htm)
-- [SuperJunior出场太帅了](http://www.daogukj.com/tckpumpu/)
-- [女孩求职被拒发现自己竟是“精神病”](http://www.daogukj.com/0292547)
+- [男孩被民警掌掴近1个月未能正常上学](http://www.daogukj.com/tckpumpu/)
+- [白血病不再是不治之症](http://www.daogukj.com/0292547)
 - [什么操作会对电脑造成永久性伤害？](http://www.daogukj.com/hejavvee/)
 - [机器人和丁宁切磋球技](http://www.movie.hkepx.cn/xiju/2863382.htm)
 - [怎么看彭博社发布的「美国 AI 优势正在被中国迅速缩小」？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
@@ -77,10 +77,10 @@
 - [马克龙宣布进一步加强对乌军事支持](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
 - [男子20年省吃俭用攒789万6天被骗光](http://www.daogukj.com/4367144)
 - [我这一生最大的罪，是把人写成了妖……](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
-- [乘法的本质是什么？](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
+- [如何看待中国传媒大学拟新增「游戏科学与技术」和「电子竞技」两个游戏类专业？对考生报考有何建议？](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
 - [顺直大改造-反畸形审美，棒打高街帝少萝cp！](http://www.movie.hkepx.cn/movie/3421929.htm)
 - [人民日报：处置甲醛白菜必须从速从严](http://www.movie.hkepx.cn/xiju/7147911.htm)
-- [80岁西班牙“狼孩”去世](http://www.movie.hkepx.cn/xiju/5231443.htm)
+- [男子错过服务区找了个“野生”充电桩](http://www.movie.hkepx.cn/xiju/5231443.htm)
 - [人民日报谈火车零食占座](http://www.daogukj.com/hwjpoycr/)
 - [小沈阳投诉《披荆斩棘》导演组](http://www.movie.hkepx.cn/movie/7786575.htm)
 - [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](http://www.movie.hkepx.cn/movie/1630389.htm)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5d85391313a19eb0a3db -->
+<!-- content-fingerprint: 737af3a49e2374bbccfd -->

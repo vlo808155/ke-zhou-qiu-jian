@@ -2,11 +2,11 @@
 
 # 中国男篮时隔12年再进U18亚洲杯决赛
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6944827 · 更新：2026-08-23T01:39:54+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6943188 · 更新：2026-08-23T01:58:58+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“中国男篮时隔12年再进U18亚洲杯决赛”位列第 9 位，公开热度指标为 6944827。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中国男篮时隔12年再进U18亚洲杯决赛”位列第 9 位，公开热度指标为 6943188。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：8月22日，中国队在印度艾哈迈达巴德举行的2026年国际篮联U18男篮亚洲杯半决赛中以79:66战胜新西兰队，时隔12年再度晋级该赛事决赛，张淳智命中四记三分砍下全队最高的18分。中国队上一次闯入U18男篮亚洲杯决赛要追溯到2014年的多哈，当时球队在决赛中战胜伊朗队夺冠。过去3届比赛中，中国队均获得季军。
 
@@ -19,7 +19,7 @@
 ## 相关热点
 
 - [三个台风出现了](zi-xiang-mao-dun.md)
-- [男子患癌在车间自缢 公司赔20余万](bei-gong-she-ying.md)
+- [美伊进入经济战 中东局势何去何从](bei-gong-she-ying.md)
 - [怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？](jing-gong-zhi-niao.md)
 - [【纪录片】守护解放西·探案季 第十集 难以“置信”](hu-jia-hu-wei.md)
 
@@ -29,7 +29,7 @@
 - [女兵放弃本科从军8年后军士专升本](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
 - [小沈阳投诉《披荆斩棘》导演组](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
 - [披荆斩棘排名](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [男孩被民警掌掴近1个月未能正常上学](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [走马太好听了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
@@ -42,7 +42,7 @@
 - [曾被狼群抚养12年狼孩去世](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
 - [4步手机自查身份证是否被别人绑定](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
 - [零食占座当事人母亲发声](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [《GTA6》遭大规模泄露：两段实机视频、一张完整地图，R星紧急发起DMCA投诉，你怎么看？](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [乘法的本质是什么？](http://www.movie.hkepx.cn/movie/5049902.htm)
 - [亚朵卖枕头被子收入快赶上酒店主业](http://www.daogukj.com/9955752)
 - [具身智能机器人正加速迈向应用](http://www.movie.hkepx.cn/movie/6160167.htm)
 - ["复活吧！我的（ ）"](http://www.movie.hkepx.cn/xiju/3768366.htm)
@@ -55,32 +55,32 @@
 - [暑期旅游市场迸发新活力](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
 - [人民日报：处置甲醛白菜必须从速从严](http://www.movie.hkepx.cn/xiju/7897697.htm)
 - [披荆斩棘淘汰](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [求职胖东来的刑满释放人员：去年失败](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [专家：座位是给人坐的不是来放零食的](http://www.movie.hkepx.cn/xiju/2758649.htm)
 - [起猛了，在7月新番看到短剧了...... 【泛式】](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
 - [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.movie.hkepx.cn/xiju/1875639.htm)
 - [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
 - [怎么看 DeepSeek 8 月22 日再调整定价，周末全天统一按低谷价收费？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
 - [披荆斩棘排名](http://www.daogukj.com/2395514)
 - [马克龙宣布进一步加强对乌军事支持](http://www.daogukj.com/6574038)
-- [王传君的雷霆野人妆是自己设计的](http://www.daogukj.com/ajcuxydy/)
-- [两女孩买三张火车票放零食 母亲回应](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [男孩被民警掌掴近1个月未能正常上学](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [机器人跳拉丁有多惊艳](http://www.daogukj.com/ajcuxydy/)
+- [女孩试衣时被人掀开门帘 警方介入](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [走马太好听了](http://www.movie.hkepx.cn/movie/3635328.htm)
 - [王源一句话让几万人低头看手机](http://www.daogukj.com/cfeqrkjc/)
 - [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.daogukj.com/rkkegwyy/)
 - [女兵放弃本科从军8年后军士专升本](http://www.movie.hkepx.cn/xiju/5333033.htm)
 - [怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [美伊进入经济战 中东局势何去何从](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [男子患癌在车间自缢 公司赔20余万](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [女孩求职被拒发现自己竟是“精神病”](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [美伊进入经济战 中东局势何去何从](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
 - [李信没了还可以玩六耳，拆完塔一个筋斗云就走了](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [专家：座位是给人坐的不是来放零食的](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [韩国明年2月开始禁止吃狗肉](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [亚朵“枕头被子”收入逼近主业](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [王传君的雷霆野人妆是自己设计的](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
 - [您好 没有为您拼命的义务 #乐意效劳](http://www.movie.hkepx.cn/xiju/5888939.htm)
 - [男子20年省吃俭用攒789万6天被骗光](http://www.daogukj.com/8099191)
-- [以色列土耳其会爆发冲突吗](http://www.daogukj.com/vrvcskzj/)
-- [白血病不再是不治之症](http://www.daogukj.com/lbbxrvry/)
+- [宣萱现身古天乐演唱会上演世纪拥抱](http://www.daogukj.com/vrvcskzj/)
+- [男子自驾3500公里送儿子去新疆上学](http://www.daogukj.com/lbbxrvry/)
 - [我收容了100位粉丝到我的一辈子存档里！](http://www.daogukj.com/9295095)
-- [80岁西班牙“狼孩”去世](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [走马太好听了](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [男子错过服务区找了个“野生”充电桩](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [SuperJunior出场太帅了](http://www.movie.hkepx.cn/movie/6539896.htm)
 - [那英边唱边哭](http://www.daogukj.com/7435478)
 - [机器人和丁宁切磋球技](http://www.daogukj.com/kwdurrnw/)
 - [真的...没有人类了](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: feb11c18e74a644fa23c -->
+<!-- content-fingerprint: 49eba06b68cf57d34854 -->
