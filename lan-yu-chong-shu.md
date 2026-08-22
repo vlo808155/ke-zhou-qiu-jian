@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 光纤龙头上半年净利暴涨888.88%
+# 女星穿香奈儿无底鞋脚掌变黑
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6943391 · 更新：2026-08-22T07:57:23+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6949665 · 更新：2026-08-22T09:45:42+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“光纤龙头上半年净利暴涨888.88%”位列第 9 位，公开热度指标为 6943391。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“女星穿香奈儿无底鞋脚掌变黑”位列第 9 位，公开热度指标为 6949665。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月21日晚间，光纤龙头公司长飞光纤(601869)发布2026年半年报，公司上半年实现营业收入98.09亿元，同比增长53.64%；归母净利润29.25亿元，同比增长888.88%。
+来源公开摘要显示：近日，香奈儿2027早春度假系列发布无底绑带鞋，仅保留鞋跟、无鞋底。女星玛格丽特·库里在伦敦出席新电影《末世行者》首映红毯时穿上此鞋，走过红毯后前脚掌明显变黑，她受访时称这是"香奈儿式光脚"。网友评论：失去了鞋子的功能，又保留了穿鞋的繁琐。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [购票后未上车视为放弃席位使用权](zi-xiang-mao-dun.md)
-- [美将向联合国支付7.25亿美元拖欠会费](bei-gong-she-ying.md)
-- [珠穆朗玛峰的海拔全球最高，距离太阳也更近，为何气温反倒很低？](jing-gong-zhi-niao.md)
-- [时隔一年！久违的整合包生存，缆车末日惊变 100 天！绝不烂尾！！！](hu-jia-hu-wei.md)
+- [张雅琪路人缘](zi-xiang-mao-dun.md)
+- [国际金价创三个月新高](bei-gong-she-ying.md)
+- [《欢迎来龙餐馆》徐福和马俊生到底谁在土豆上做了手脚？](jing-gong-zhi-niao.md)
+- [《晒足一百ber天3.0》](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [微信新功能有点丑丑的](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [62岁超高龄孕妇诞下6斤重男婴](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [欢子被批摆烂](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [机器人离服务“一老一小”还有多远](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [鸡蛋售价9天上涨15.5%](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [鸭货卖不动了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [申花：完全接受中足联处罚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [这两个强国 真到了战争的边缘](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [李现下意识伸手扶张婧仪](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [94岁老战士穿外骨骼感觉年轻了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李光洁：演员哪敢随便改剧本](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [张彬彬曹骏李光洁吃了演员身份的亏](http://www.daogukj.com/axnomarx/)
-- [世界杯决赛冲突处罚公布](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [网红峰哥自曝100万港元抄底锂电池](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [《晒足一百ber天3.0》](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [日本公务人员与情人开房时开线上会议](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [北京理工大学、南京航空航天大学等多所名校新校区搬到县城，去县城读名校是捡漏还是踩坑？会影响学生发展吗？](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [丈夫拍妻子出轨却因妨害隐私获刑](http://www.daogukj.com/9955752)
+- [世界杯决赛禁赛处罚出炉](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [鸭货为何不好卖了](http://www.daogukj.com/axnomarx/)
+- [暴雨台风双预警](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [陈柏霖当庭认罪](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [妻子偷拍丈夫点评 双双行拘](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [中国版Moderna崛起](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [官方通报旅客买票占座放零食事件](http://www.daogukj.com/9955752)
 - [雨天谨防触电 如何科学避险](http://www.movie.hkepx.cn/movie/6160167.htm)
 - ["复活吧！我的（ ）"](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [男子4次恶意别车被罚 网友：罚得好](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [李小冉喜提奔驰大G](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [台风「美莎克」致广西两地 159 人遇难 10 人失联，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [62岁超高龄孕妇诞下6斤重男婴](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [河北涿州地下代孕机构被曝光，官方已通报，上官正义质疑存在内鬼，为何此类黑产能够长期运作？](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [FIFA 公布世界杯决赛处罚，阿根廷队帕雷德斯禁赛 10 场、莫利纳禁 7 场，怎样看待这一结果？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [【二维动画】画二渲三，但是渲出来一堆BUG](http://www.movie.hkepx.cn/xiju/9543845.htm)
 - [多元消费场景激发经济澎湃活力](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [多家银行就贴息落地细节答疑](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [北京理工大学、南京航空航天大学等多所名校新校区搬到县城，去县城读名校是捡漏还是踩坑？会影响学生发展吗？](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
 - [未来五年将持续加大科技领域投入力度](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [美军机过航台湾海峡 解放军全程跟监](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [官方通报旅客买票占座放零食事件](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [李现下意识伸手扶张婧仪](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [曹云金在演出中用郭德纲『砸现挂』，此举对相声界传统和师徒关系有何影响？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [外卖小哥骑电动车撞持刀男子，王者荣耀全网寻人望颁发「国服孙策」奖状，如何看待这一系列暖心事迹？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [女子家中住进30窝燕子 每早开门放鸟](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [《欢迎来龙餐馆》徐福和马俊生到底谁在土豆上做了手脚？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [机器人离服务“一老一小”还有多远](http://www.daogukj.com/2395514)
-- [多方回应初中生夜间遭两人无故殴打](http://www.daogukj.com/6574038)
-- [停更7年，我又以经典的方式玩MC](http://www.daogukj.com/ajcuxydy/)
-- [男子被骗近800万还被骗子嘲讽](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [鸡蛋售价9天上涨15.5%](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [张俪辞退修图师反转](http://www.daogukj.com/cfeqrkjc/)
-- [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.daogukj.com/rkkegwyy/)
-- [62岁超高龄孕妇诞下6斤重男婴](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [珠穆朗玛峰的海拔全球最高，距离太阳也更近，为何气温反倒很低？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [外交部回应朝鲜发射10余枚弹道导弹](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [美将向联合国支付7.25亿美元拖欠会费](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [曝 iPhone17 系列国内销量超 4000 万，为何消费者仍青睐苹果？](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [大众插混中型轿车起售价8.99万元](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [《明日方舟：终末地》「雪凇幽梦」版本前瞻预告](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [《崩坏：星穹铁道》千星纪游PV——「众声之外」](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [购票后未上车视为放弃席位使用权](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [外国网友怀疑中国农村是AI](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [男子扮外卖员偷咖啡被抓](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [当你穿进老钱班33](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [珠穆朗玛峰的海拔全球最高，距离太阳也更近，为何气温反倒很低？](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [如何看待千万粉丝网红「桃黑黑」发长文称将离开互联网一段时间？](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [如何看待拆解输入的「张雪机车」遭台湾当局查扣？此举是出于产业保护还是政治考量？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [李现下意识伸手扶张婧仪](http://www.daogukj.com/2395514)
+- [俄乌打了4年俄到底是赢了还是输了](http://www.daogukj.com/6574038)
+- [世界杯决赛冲突处罚公布](http://www.daogukj.com/ajcuxydy/)
+- [张子枫陈飞宇《河清海晏》开机](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [94岁老战士穿外骨骼感觉年轻了](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [无法对小时候的杯子祛魅](http://www.daogukj.com/cfeqrkjc/)
+- [《下一个是谁》第七季（3）](http://www.daogukj.com/rkkegwyy/)
+- [申花：完全接受中足联处罚](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [《欢迎来龙餐馆》徐福和马俊生到底谁在土豆上做了手脚？](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [印尼外长：支持中国统一大业](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [国际金价创三个月新高](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [干完这票我们能发财吗老大！？「警察抓小偷」？？！](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [3人白天应聘踩点晚上进企业偷盗被抓](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [中国机器人能飞](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [《你咋开的车》](http://www.movie.hkepx.cn/xiju/5888939.htm)
 - [世界杯决赛处罚公布](http://www.daogukj.com/8099191)
-- [女排亚锦赛：日本队轻取中国香港队](http://www.daogukj.com/vrvcskzj/)
-- [两男子骑电动自行车抢手机被抓](http://www.daogukj.com/lbbxrvry/)
-- [举手之劳 亦是人间微光](http://www.daogukj.com/9295095)
-- [河北老人养老金月领212元](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [阿森纳连续5个英超赛季开门红](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [世界杯决赛禁赛处罚出炉](http://www.daogukj.com/7435478)
-- [门把手缺陷引发最大规模召回](http://www.daogukj.com/kwdurrnw/)
-- [【绍宋：还我河山】这一次，岳飞活下来！](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [男子被反锁在新能源汽车后备箱5小时](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [欢子被批摆烂](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [问界儿童车开启预售，售价 15800，如何评价其市场竞争力？](http://www.daogukj.com/vrvcskzj/)
+- [游客玉佩落水被锦鲤衔住](http://www.daogukj.com/lbbxrvry/)
+- [吃蜘蛛眼就可以飞去末地外岛？！这个bug简直是艺术品！](http://www.daogukj.com/9295095)
+- [两男子骑电动自行车抢手机被抓](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [欢子入院治疗](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [罗永浩公关复盘西贝事件始末](http://www.daogukj.com/7435478)
+- [乌一购物中心遭袭击致至少15人死亡](http://www.daogukj.com/kwdurrnw/)
+- [阿森纳4000万新援8分钟策动2球](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [女子55元捡漏一万四项链被要求退款](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [这两个强国 真到了战争的边缘](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [光纤龙头上半年净利暴涨888.88%](https://www.baidu.com/s?wd=%E5%85%89%E7%BA%A4%E9%BE%99%E5%A4%B4%E4%B8%8A%E5%8D%8A%E5%B9%B4%E5%87%80%E5%88%A9%E6%9A%B4%E6%B6%A8888.88%25&sa=fyb_news&rsv_dl=fyb_news)
+- [女星穿香奈儿无底鞋脚掌变黑](https://www.baidu.com/s?wd=%E5%A5%B3%E6%98%9F%E7%A9%BF%E9%A6%99%E5%A5%88%E5%84%BF%E6%97%A0%E5%BA%95%E9%9E%8B%E8%84%9A%E6%8E%8C%E5%8F%98%E9%BB%91&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cb3b99ee173b997b914d -->
+<!-- content-fingerprint: 0a67aa98f1597af5b7bf -->
