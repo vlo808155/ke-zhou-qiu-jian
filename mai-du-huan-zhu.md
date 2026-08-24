@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待 12306 回应高铁无座票与二等座同价，称属于同一席别、同一等级？这种安排合理吗？
+# 抽象新闻：8月人类迷惑行为大赏（上）
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：155 万热度 · 分类：问答 · 更新：2026-08-24T19:00:30+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：1588487 · 分类：搞笑 · 更新：2026-08-24T19:38:37+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待 12306 回应高铁无座票与二等座同价，称属于同一席别、同一等级？这种安排合理吗？”位列第 9 位，公开热度指标为 155 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“抽象新闻：8月人类迷惑行为大赏（上）”位列第 9 位，公开热度指标为 1588487，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月24日，“无座票为何和二等座同价”话题登上热搜，不少网友反映，无座票与二等座票价相同，但无座票不提供固定座位，定价合理性存疑。对此，铁路12306客服对记者表示，无座票的全称为“无固定座位票”，与二等座属于同一席别、同一等级，因此价格一致，目前无法单独降低无座票票价。高铁座位上设有指示灯，绿色和黄色代表该座位暂无人乘坐或尚未售出，无座乘客可临时休息，但持票乘客上车后需要让座。 针对票价差异化的建议，客服称已记录并将反馈。此外，客服说明，并非所有高铁二等座都发售无座票，仅在部分线路和运营高峰期，为保障旅客出行需求，会适量发售少量无座票，数量通常不大。
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [原创民俗AI短片《槐灯》](ye-gong-hao-long.md)
-- [北京大学原副校长任羽中被判8年](lan-yu-chong-shu.md)
-- [广西洪水](zi-xiang-mao-dun.md)
-- [中埃军演歼16该如何打赢“阵风”](bei-gong-she-ying.md)
+- [印度洋发生沉船 多名中国船员失联](ye-gong-hao-long.md)
+- [陈武同志因病逝世](lan-yu-chong-shu.md)
+- [一家族5人先后确诊尿毒症](zi-xiang-mao-dun.md)
+- [7 月财政收入增长 11.7%、个税同比大涨 25.9%，个税「逆势高增」的原因是什么？](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [公务员碾死醉汉被认定过失致死，当事人因影响职业生涯再申诉，还可能有怎样的认定？法律上如何分析此事？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [如何评价Team Spirit获得TI15冠军？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [如何看待「最近是全体教师最脆弱的时候」？开学前大家都干了啥，心情怎么样？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [罗建彬被查](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [向太不满易立竞采访向佐](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [天工机器人「娇羞捂脸跑」出圈，这一跑姿为何能夺冠？背后做了哪些技术优化？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [本次 15 分钟实机演示后，你预估《黑神话：钟馗》的销量是多少？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [原创民俗AI短片《槐灯》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [韩国：朝鲜仍准备向俄增兵](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [26/27赛季英超第一轮，曼城主场2-1逆转战胜伯恩茅斯，如何评价本场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么古人相信水银、明矾、硫磺等物质可以炼出长生不老药？](http://www.daogukj.com/9193901)
-- [歼轰7飞机总设计师陈一坚逝世](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [恐怖版新僵尸：诡异清扫者](http://www.daogukj.com/9193901)
+- [白帆来到殷玉珍小院赞叹是奇迹](http://www.movie.hkepx.cn/xiju/8468269.htm)
 - [全国累计收购小麦超9000万吨](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [【战双帕弥什】「于频率中相汇」全球线上音乐会回顾](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [小猫叼蛇回家 吓得主人弹射跳起](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [【不是规则怪谈】前考古队员给即将要去考古的同学一点经验](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [如何评价Team Spirit获得TI15冠军？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [家长抱娃突然失手致孩子仰头摔下](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [时代少年团四大平台综艺出镜期数](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [北京大学原副校长任羽中被判8年](http://www.daogukj.com/1877942)
-- [放弃一切，只为等你](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [店主帮老人遭索赔1.9万元协议书曝光](http://www.daogukj.com/nuqwxjlx/)
-- [罗建彬被查](http://www.daogukj.com/4054231)
-- [横店游客花三百玩真剧本杀](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [为什么安踏前CEO徐阳在飞机上发朋友圈称因家人留学原因离职，将陪家人迁居美国洛杉矶？](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [有没有一种可能，驾驶飞机的真实难度，其实并不比驾驶汽车难很多，实际上还可能更简单？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [搞笑疯人院：满级病友竟是大佬！大家都有病的时候，楚闻野张口闭口就喊桑九舅舅，桑九也觉得楚闻野是个好孩子，就是脑子不太好。](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [超市散装零食何以失守](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [俄媒：俄首次接收朝鲜重型弹道导弹](http://www.daogukj.com/ygpoeeya/)
-- [12306回应无座票二等座同价](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [“被蚊子咬可能得艾滋”不实](http://www.daogukj.com/9246627)
-- [小徐第9次六级考了339分](http://www.daogukj.com/2490072)
-- [一位A9返贫的大哥给的五点忠告](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [全国政协副主席陈武逝世](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [东北的孩子打小就爱这一口](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [王老菊教你淘金（上）](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [向太不满易立竞采访向佐](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [放弃一切，只为等你](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [【Spirit】我们早已习惯作为反派登场，嘘声再大一点根本听不见！](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [时代少年团成团七周年曲目列表](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [本次 15 分钟实机演示后，你预估《黑神话：钟馗》的销量是多少？](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [「小白」小米玄戒O3芯片实测解析：太豪了！](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [向太说会为了郭碧婷放弃向佐](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [陈武同志因病逝世](http://www.daogukj.com/1877942)
+- [蔡崇信吴泳铭1.2亿增持阿里股票](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [越来越宽的新能源车被停车难劝退，我们是否需要一批车宽 1.7 米级的家用电车？](http://www.daogukj.com/nuqwxjlx/)
+- [韩国：朝鲜仍准备向俄增兵](http://www.daogukj.com/4054231)
+- [郑莉任贵阳市委书记](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [325](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [全网疯传深圳某炸鸡店“窒息45秒”事件，暴露年轻人的悲哀困境](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [小米玄戒O3芯片前瞻上手：外星科技！](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [家长抱娃突然失手致孩子仰头摔下](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [如何看待「最近是全体教师最脆弱的时候」？开学前大家都干了啥，心情怎么样？](http://www.daogukj.com/ygpoeeya/)
+- [央视曝光隔空猥亵](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [一位A9返贫的大哥给的五点忠告](http://www.daogukj.com/9246627)
+- [今年三伏为1961年以来第五热](http://www.daogukj.com/2490072)
+- [发苦丝瓜可以降火？不要信](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [印度学者：印度人被看不起理所应当](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [雷军曝光玄戒O3隐藏彩蛋](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [“被蚊子咬可能得艾滋”不实](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [26/27赛季英超第一轮，曼城主场2-1逆转战胜伯恩茅斯，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/6846982.htm)
 - [僵 尸 进 村](http://www.movie.hkepx.cn/xiju/3845334.htm)
 - [小米新一代玄戒芯片技术发布会举行，有哪些看点值得关注？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [香港葵涌村发生双尸案](http://www.daogukj.com/8715491)
-- [学生办事流程多，魏老师替孩子把话说](http://www.daogukj.com/4788107)
-- [本次 15 分钟实机演示后，你预估《黑神话：钟馗》的销量是多少？](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [12306回应无座票二等座同价](http://www.daogukj.com/8715491)
+- [搞笑疯人院：满级病友竟是大佬！大家都有病的时候，楚闻野张口闭口就喊桑九舅舅，桑九也觉得楚闻野是个好孩子，就是脑子不太好。](http://www.daogukj.com/4788107)
+- [索尼发邮件重申「数字游戏不属于玩家」，账号封禁就全清零，你怎么看待这波操作？](http://www.movie.hkepx.cn/movie/0622898.htm)
 - [陈武同志逝世](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [超强台风「沙德尔」已睁眼，可能登陆东南沿海，影响路径走向的因素是什么？有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [警员执法遇F-18战机坠落，6700万战损，飞行员报警求助！](http://www.daogukj.com/3872248)
-- [王一博告了新湃传媒](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [广西洪水](http://www.daogukj.com/sguhnydl/)
-- [向太谈被向佐言论连累遭网暴](http://www.daogukj.com/6123602)
-- [中埃军演歼16该如何打赢“阵风”](http://www.daogukj.com/7243934)
-- [TUIDE 'SUN KISS' Official MV](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [向太说和周星驰做不回好朋友](http://www.daogukj.com/fgkxwaik/)
-- [「小白」小米玄戒O3芯片实测解析：太豪了！](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [全市场近4000股飘绿](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [室友查了我的六级成绩](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [今年三伏为1961年以来第五热](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [初中生4个账号养“恋人”](http://www.daogukj.com/4800229)
-- [梁洁 刺棠女二](http://www.daogukj.com/1329201)
-- [发苦丝瓜可以降火？不要信](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [绿茶先启半步颠称正停业清洁](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [如何看待「最近是全体教师最脆弱的时候」？开学前大家都干了啥，心情怎么样？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [超市散装零食何以失守](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [广西宁明江河水位仍在上涨](http://www.daogukj.com/3872248)
+- [穆里尼奥向皇马全队提前透露首发，以此测试更衣室保密性，如何评价这种做法？](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [一家族5人先后确诊尿毒症](http://www.daogukj.com/sguhnydl/)
+- [【不是规则怪谈】前考古队员给即将要去考古的同学一点经验](http://www.daogukj.com/6123602)
+- [7 月财政收入增长 11.7%、个税同比大涨 25.9%，个税「逆势高增」的原因是什么？](http://www.daogukj.com/7243934)
+- [罗建彬被查](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [大V：特朗普想打经济战发现没人跟风](http://www.daogukj.com/fgkxwaik/)
+- [有单位违规发放工资津贴突击花钱](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [公务员碾死醉汉被认定过失致死，当事人因影响职业生涯再申诉，还可能有怎样的认定？法律上如何分析此事？](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [司机打瞌睡被后座乘客一巴掌打醒](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [为什么安踏前CEO徐阳在飞机上发朋友圈称因家人留学原因离职，将陪家人迁居美国洛杉矶？](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [北京大学原副校长任羽中被判8年](http://www.daogukj.com/4800229)
+- [向太说和周星驰做不回好朋友](http://www.daogukj.com/1329201)
+- [「泔水喂猪」禁令上升至法典，禁止用未经无害化处理的厨房垃圾直接喂猪，「泔水喂猪」有什么影响？为何禁止？](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [上市公司被曝要求应届生离职与「打螺丝」二选一，是真的吗？公司行为属于变相劝退吗？应届生该如何维权？](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [原创民俗AI短片《槐灯》](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待 12306 回应高铁无座票与二等座同价，称属于同一席别、同一等级？这种安排合理吗？](https://www.zhihu.com/question/1942490264934528525)
+- [抽象新闻：8月人类迷惑行为大赏（上）](https://b23.tv/BV1CW8C66E5r)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0fc2745c6d0c3970efe0 -->
+<!-- content-fingerprint: 96a64a07aa477eb73a09 -->
