@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何评价2026年科隆游戏展「最佳移动游戏」五项提名被国产游戏包揽？谁最有可能最终获奖？
+# “没打HPV疫苗不能入学”是误传
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：121 万热度 · 分类：问答 · 更新：2026-08-25T12:21:02+08:00
+> 来源：今日头条热榜 · 排名：第 12 位 · 热度：10967154 · 分类：辟谣 · 更新：2026-08-25T13:03:00+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价2026年科隆游戏展「最佳移动游戏」五项提名被国产游戏包揽？谁最有可能最终获奖？”位列第 12 位，公开热度指标为 121 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，““没打HPV疫苗不能入学”是误传”位列第 12 位，公开热度指标为 10967154，榜单分类为“辟谣”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026科隆游戏展公布的「Best Mobile Game」提名中，5个提名席位全部来自中国游戏厂商参与开发的作品，分别是《明日方舟：终末地》《原神》《白银之城》《燕云十六声》《绝区零》。这意味着什么？在这五款作品里，你认为谁最有可能拿下该奖？
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `辟谣`
 
 ## 相关热点
 
-- [第四集 | 🐧雷斯：“我变成御姐了？！”🐧](sha-ji-qu-luan.md)
-- [建议这个年龄前开始控糖 很多人晚了](yin-zhen-zhi-ke.md)
-- [女子买到长蘑菇柿子已寄给研究所](ke-zhou-qiu-jian.md)
-- [美或将对华加税7.5%](yan-er-dao-ling.md)
+- [法国团队利用离体死后人脑组织控制机械手弹钢琴，该实验有何科学原理和伦理意义？](sha-ji-qu-luan.md)
+- ["复活吧！我的（ ）"](yin-zhen-zhi-ke.md)
+- [董明珠在格力技校与15岁学生比身高](ke-zhou-qiu-jian.md)
+- [韩剧史上最好的男主交替场面](yan-er-dao-ling.md)
 
 ## 站内推荐
 
 - [我军试射“黑色”导弹测试极限性能](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [字节办公AI产品「豆包工作」正式发布，将TRAE、扣子并入豆包，如何看待这次调整？整合后会更好用吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [太极拳思路的以柔克刚，借力打力都貌似很合理，为什么实战起来这个力就克不动，卸不掉，也借不到呢？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [脑出血急诊去医院为什么几个小时不开始手术，最后我妈去世了，医院有没有责任？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [如何评价原神，绝区零获2026科隆游戏展年度最佳手游提名？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [9月工资发放时间金额或有变化](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [伊朗货币里亚尔汇率跌至历史新低](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [中国空军赴埃及训练有何影响](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [2026 世界机器人大会（WRC）有哪些看点值得关注？具身智能、人形机器人有哪些新进展？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [司机报警有黄气球直冲机场民警看懵](http://www.daogukj.com/3439248)
-- [电动自行车时速限制拟上调为20公里](http://www.movie.hkepx.cn/xiju/5723356.htm)
+- [一辆汽车冲入西湖 景区回应](http://www.daogukj.com/3439248)
+- [《海阔天空》一个人的乐队](http://www.movie.hkepx.cn/xiju/5723356.htm)
 - [央媒评扶老人被索赔：法律不能和稀泥](http://www.daogukj.com/6000433)
-- [伊朗到底收没收到麦加协议邀请](http://www.daogukj.com/7456083)
-- [向太提起施南生鲁豫气得胃疼](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
+- [鞠婧祎腿好长](http://www.daogukj.com/7456083)
+- [余承东：全新三折叠即将登场](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
 - [如何看待大学新生还未入学，高校辅导员已建立家长群这一现象？家校沟通的边界该如何把握？](http://www.movie.hkepx.cn/movie/2238087.htm)
-- [男子求复合遭拒割喉前女友捅数十刀](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
-- [中国女子泰国遭绑：本以为是导游来接](http://www.movie.hkepx.cn/xiju/4841059.htm)
-- [《新数码宝贝 · 全面战争》【8分钟管饱】](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
-- [国管公积金新政发布，首套房最高可贷款 340 万元，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/8193455.htm)
-- [台风沙德尔闭眼](http://www.movie.hkepx.cn/xiju/1574035.htm)
-- [10万级的纯视觉智驾勇闯华强北？](http://www.movie.hkepx.cn/xiju/0717269.htm)
-- [女子买到长蘑菇柿子已寄给研究所](http://www.daogukj.com/9326450)
-- [金晨我不是迪丽热巴](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
-- [扶老人被索赔事件完整监控视频曝光](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
-- [余承东：全新三折叠即将登场](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
-- [中国成功发射一箭七星](http://www.movie.hkepx.cn/xiju/7062133.htm)
-- [成都蛋烘糕奶奶被镜头霸凌](http://www.daogukj.com/amzovuov/)
-- [青春芒果夜全阵容](http://www.daogukj.com/2011735)
-- [美前大使称以缺乏长期生存策略](http://www.movie.hkepx.cn/xiju/2237302.htm)
-- [二婚夫妇意外去世 4个子女争遗产](http://www.movie.hkepx.cn/movie/3232131.htm)
-- [散瞳验光伤害孩子眼睛系谣言](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
-- [为啥地下党发报，不把电台藏在马车或者黄包车上，一边转圈一边发报？](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
-- [如何评价原神，绝区零获2026科隆游戏展年度最佳手游提名？](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
-- [太极拳思路的以柔克刚，借力打力都貌似很合理，为什么实战起来这个力就克不动，卸不掉，也借不到呢？](http://www.movie.hkepx.cn/movie/7476543.htm)
-- [原创民俗AI短片《槐灯》](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
-- [越南为何为对接中国铁路追加30亿美元](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
-- [“扶老人被索赔”事件 完整监控视频](http://www.daogukj.com/7278634)
-- [建议查查张韶涵造型师的灵感库](http://www.daogukj.com/kjritwpu/)
-- [杭州女子电梯遭骚扰反被索赔5000元](http://www.movie.hkepx.cn/movie/7092438.htm)
+- [李佳航回应李金铭娄艺潇邓家佳合体](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
+- [巴西38岁女子扮12岁女童骗收养15年](http://www.movie.hkepx.cn/xiju/4841059.htm)
+- [如何看待诺兰《奥德赛》全球吸金超13.52亿，力压《死侍与金刚狼》登顶影史票房最高 R 级电影？](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
+- [洛杉矶流浪汉在高速桥墩上搭“阁楼”](http://www.movie.hkepx.cn/xiju/8193455.htm)
+- [自动驾驶状态违法由车企担责](http://www.movie.hkepx.cn/xiju/1574035.htm)
+- [字节办公AI产品「豆包工作」正式发布，将TRAE、扣子并入豆包，如何看待这次调整？整合后会更好用吗？](http://www.movie.hkepx.cn/xiju/0717269.htm)
+- [董明珠在格力技校与15岁学生比身高](http://www.daogukj.com/9326450)
+- [银川一中学施行发型令：不合格不让进](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
+- [金晨我不是迪丽热巴](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
+- [这德穆兰技能组真官方外挂吧？来感受一下牢太在航天的统治力！诶？这里怎么有堵墙？](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
+- [原创民俗AI短片《槐灯》](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
+- [护理：一把斩向死亡的温柔刀](http://www.movie.hkepx.cn/xiju/7062133.htm)
+- [散瞳验光伤害孩子眼睛系谣言](http://www.daogukj.com/amzovuov/)
+- [女子穿拖鞋开套牌车砸瓜摊 警方通报](http://www.daogukj.com/2011735)
+- [因上厕所不让路大打出手6人被拘](http://www.movie.hkepx.cn/xiju/2237302.htm)
+- [成都蛋烘糕奶奶被镜头霸凌](http://www.movie.hkepx.cn/movie/3232131.htm)
+- [闭店通知](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
+- [扶老人被索赔事件完整监控视频曝光](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
+- [2026 世界机器人大会（WRC）有哪些看点值得关注？具身智能、人形机器人有哪些新进展？](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
+- [伊朗货币里亚尔汇率跌至历史新低](http://www.movie.hkepx.cn/movie/7476543.htm)
+- [【Spirit】我们早已习惯作为反派登场，嘘声再大一点根本听不见！](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
+- [成都蛋烘糕奶奶儿子已因病去世](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
+- [成都出台十条新政 公积金贷款贴息20%](http://www.daogukj.com/7278634)
+- [伊朗到底收没收到麦加协议邀请](http://www.daogukj.com/kjritwpu/)
+- [“扶老人被索赔”事件 完整监控视频](http://www.movie.hkepx.cn/movie/7092438.htm)
 - [“救援航母”挺进广西宁明灾区](http://www.movie.hkepx.cn/movie/3129013.htm)
-- [扶老人被索赔店主支付的1.9万获返还](http://www.movie.hkepx.cn/xiju/7500457.htm)
-- [电动自行车最高时速提至20公里](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
+- [癌症疫苗来了](http://www.movie.hkepx.cn/xiju/7500457.htm)
+- [多位专家被罚 栽在同一件“小事”上](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
 - [王中王夺冠自战解说](http://www.daogukj.com/pgoxgqgc/)
-- [AI短剧《非妖哉》导演：1集成本1万](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
-- [癌症疫苗来了](http://www.daogukj.com/euynrtzl/)
-- [放弃一切，只为等你](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
-- [亲人遭遇校园霸凌留下创伤，20岁闭门在家不愿接触社会，家属该怎么办？](http://www.movie.hkepx.cn/xiju/8147435.htm)
-- [那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！](http://www.daogukj.com/soikllri/)
-- [车辆冲入西湖 一男一女从水中爬出](http://www.daogukj.com/3156407)
-- [这德穆兰技能组真官方外挂吧？来感受一下牢太在航天的统治力！诶？这里怎么有堵墙？](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
-- [司机打瞌睡被后座乘客一巴掌打醒](http://www.movie.hkepx.cn/xiju/1247424.htm)
-- [TES在联赛年年都能进决赛，为什么一出去就创造各种失败纪录？](http://www.daogukj.com/urlgwtmt/)
-- [脑出血急诊去医院为什么几个小时不开始手术，最后我妈去世了，医院有没有责任？](http://www.movie.hkepx.cn/movie/3044896.htm)
+- [高中生逃离原生家庭过程（下）](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
+- [扶老人被索赔店主支付的1.9万获返还](http://www.daogukj.com/euynrtzl/)
+- [董宇辉等主播走后，东方甄选少发4亿薪酬，新财年净赚超5亿元，怎样解读这一变化？东方甄选转型算成功了吗？](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
+- [越南为何为对接中国铁路追加30亿美元](http://www.movie.hkepx.cn/xiju/8147435.htm)
+- [放弃一切，只为等你](http://www.daogukj.com/soikllri/)
+- [女子买到长蘑菇柿子已寄给研究所](http://www.daogukj.com/3156407)
+- [有什么有趣的中国文化溢出？](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
+- [以色列黑手党头目遭枪杀 被一枪爆头](http://www.movie.hkepx.cn/xiju/1247424.htm)
+- [如何评价《欢迎来龙餐馆》里的托尼王这个角色？](http://www.daogukj.com/urlgwtmt/)
+- [中国空军赴埃及训练有何影响](http://www.movie.hkepx.cn/movie/3044896.htm)
 - [扶老人被索赔店家1.9万获全额返还](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
-- [豆包工作](http://www.movie.hkepx.cn/xiju/3522057.htm)
-- [菲律宾一轮船海上沉没全过程曝光](http://www.daogukj.com/1068378)
-- [第四集 | 🐧雷斯：“我变成御姐了？！”🐧](http://www.movie.hkepx.cn/xiju/2722752.htm)
-- [以色列黑手党头目遭枪杀现场曝光](http://www.movie.hkepx.cn/xiju/6955801.htm)
+- [中国女子曼谷酒店外遭绑跳车自救](http://www.movie.hkepx.cn/xiju/3522057.htm)
+- [官方确认帮扶老人遭索赔店主不担责](http://www.daogukj.com/1068378)
+- [法国团队利用离体死后人脑组织控制机械手弹钢琴，该实验有何科学原理和伦理意义？](http://www.movie.hkepx.cn/xiju/2722752.htm)
+- [网传iPhone 18 Pro Max包装盒流出](http://www.movie.hkepx.cn/xiju/6955801.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价2026年科隆游戏展「最佳移动游戏」五项提名被国产游戏包揽？谁最有可能最终获奖？](https://www.zhihu.com/question/2075382665461641899)
+- [“没打HPV疫苗不能入学”是误传](https://www.toutiao.com/trending/7676673366883057710/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227676673366883057710%22%2C%22hot_board_impr_id%22%3A%22202608251302575F65A39E0EDFE2E542EB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bc1ef69b5f28a43ff075 -->
+<!-- content-fingerprint: 99ea1831578ba97b42d2 -->
