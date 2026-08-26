@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 宋雨琦肿成蜜蜂小狗
+# 西藏泥石流
 
-> 来源：微博热搜 · 排名：第 11 位 · 热度：644529 · 分类：艺人 · 更新：2026-08-26T20:58:06+08:00
+> 来源：微博热搜 · 排名：第 11 位 · 热度：657837 · 分类：突发/灾害 · 更新：2026-08-26T22:00:24+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“宋雨琦肿成蜜蜂小狗”位列第 11 位，公开热度指标为 644529，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“西藏泥石流”位列第 11 位，公开热度指标为 657837，榜单分类为“突发/灾害”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`微博热搜` `实时热搜` `热点资讯` `突发/灾害`
 
 ## 相关热点
 
-- [三部门向西藏调拨3万件中央救灾物资](dong-shi-xiao-pin.md)
-- [亚运会预算连续超标，日本安排大量运动员入住集装箱房，预算都去哪儿了？对运动员会产生哪些影响？](han-dan-xue-bu.md)
-- [打卡！打工！打钱！《异克斯小队》首曝PV](qi-ren-you-tian.md)
-- [西藏吉隆县未来4天有持续性降水天气](chao-san-mu-si.md)
+- [全国政协常委会会议热议民生问题](dong-shi-xiao-pin.md)
+- [《欢迎来龙餐馆》如果徐福死了，这部电影会不会效果更好？](han-dan-xue-bu.md)
+- [非洲淘金，一场黄金背后的生死赌局。](qi-ren-you-tian.md)
+- [“扶老人遭索赔”死者亲属：钱不退](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [西藏吉隆口岸泥石流航拍画面](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [直击西藏泥石流最新情况](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
 - [上海体育局回应刘翔退役安置工作](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [扶老人遭索赔死者家属首发声](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [尼泊尔泥石流 冰川融化](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [吉隆口岸](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [年轻人真的把多运动听进去了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [尼泊尔山洪航拍](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [宇树科技跌麻了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [上海发布台风蓝色预警](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [消防员用澡盆救出洪水中发烧婴儿](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
 - [办事大厅被曝9点没人上班后禁带手机](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [多平台出现「有偿征集河流样本」的帖子，不少网友说可能是间谍行为，是真的吗？遇到这种情况该怎么处理？](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [西藏吉隆县未来4天有持续性降水天气](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [网传 DeepSeek 深度思考模式会偷偷给用户取外号，这是真的吗？为什么会出现这种情况？](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [“扶老人遭索赔”死者亲属：钱不退](http://www.movie.hkepx.cn/movie/9298248.htm)
 - [如何评价粥饼伦天津鸡蛋灌饼店因为房租从13万上涨到20万被迫宣布暂停营业？为什么现在房东矛盾这么大？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [西藏泥石流致重大伤亡 救援力量集结](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [吉隆口岸](http://www.daogukj.com/4734416)
-- [尼泊尔山洪致16死384名游客失联](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [赛力斯中报巨亏，问界 M6 走量预期落空，如何评价华为智选车模式？](http://www.daogukj.com/eujljnlh/)
-- [瓶装水在开封后，多久会变质？](http://www.daogukj.com/3484796)
-- [扶老人遭索赔死者家属首发声](http://www.daogukj.com/6840289)
-- [《白银之城》gamescom 2026参展PV | 真相之债](http://www.daogukj.com/8544186)
-- [我能看到别人头上的数字](http://www.daogukj.com/4262842)
+- [上海13岁女孩靠AI 3天赚了1.8万元](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [宇树科技跌麻了](http://www.daogukj.com/4734416)
+- [国务院对敌敌畏消杀事件挂牌督办](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [亚运会预算连续超标，日本安排大量运动员入住集装箱房，预算都去哪儿了？对运动员会产生哪些影响？](http://www.daogukj.com/eujljnlh/)
+- [我妈把芒果核留给我老公，我指出这样做不对，我错了么？](http://www.daogukj.com/3484796)
+- [年轻人真的把多运动听进去了](http://www.daogukj.com/6840289)
+- [为什么看不到男人四五个人结伴一起去旅行的？](http://www.daogukj.com/8544186)
+- [“得妻如此，夫复何求”【如果可以DJ-变速】【纯爱牛逼の小曲】](http://www.daogukj.com/4262842)
 - [上海体育局回应刘翔退役安置工作](http://www.movie.hkepx.cn/movie/0136106.htm)
 - [“黄金大外环”的“黄金效应”](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [尼泊尔泥石流 冰川融化](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [三部门向西藏调拨3万件中央救灾物资](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [《粉红女郎》“男人婆”张延离婚](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [俄罗斯火灾致中国公民6死9失联](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [尼泊尔山洪航拍](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [全国政协常委会会议热议民生问题](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [女子主动到派出所问自己是不是逃犯](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [“老登股”的春天要来了吗](http://www.movie.hkepx.cn/xiju/5578839.htm)
 - [为什么戴拿奥特曼的人气远远不如迪迦奥特曼？](http://www.movie.hkepx.cn/movie/3741651.htm)
 - [源初之结首曝PV「诸神入刃，斩尽死结」](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [爱情公寓官方换头像](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [贱谍过家家（8）](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [《阴阳师》「一瞬刹那，拾光永恒」前瞻回顾](http://www.daogukj.com/4133568)
-- [经历四世轮回，只为回到你的身边](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [“得妻如此，夫复何求”【如果可以DJ-变速】【纯爱牛逼の小曲】](http://www.daogukj.com/0480016)
-- [《复仇者联盟4》内地重映](http://www.daogukj.com/4561506)
-- [为什么身边的中年男人不是热衷炒股，就是热衷钓鱼？](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [爱情公寓官方账号换头像](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [我能看到别人头上的数字](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [在凤凰古城碰到一位无臂骑手，白天跑外卖，晚上写字谋生，给经历磨难却依旧坚毅的向阳点个赞](http://www.daogukj.com/4133568)
+- [《白银之城》gamescom 2026参展PV | 真相之债](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [高中生逃离原生家庭过程（下）](http://www.daogukj.com/0480016)
+- [吉隆口岸](http://www.daogukj.com/4561506)
+- [瓶装水在开封后，多久会变质？](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
 - [“妇女顶起半边天，战士扛起万重山”【红色高跟鞋DJ-变速】【捐躯赴义の小曲】](http://www.movie.hkepx.cn/xiju/2964390.htm)
 - [白敬亭贾冰王安宇合照](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [西藏泥石流](http://www.daogukj.com/jbdvxipc/)
-- [为什么广东这个古代的边缘地带今天却成了网上的「最懂吃的省份」？](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [山西洪洞农商行原董事长被遣返回国](http://www.daogukj.com/awgjjjvg/)
-- [尼泊尔山洪冲毁村庄](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [非洲淘金，一场黄金背后的生死赌局。](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [谁能坚持到最后？](http://www.daogukj.com/ditzbwwz/)
-- [玲花提词器全蒙文让歌迷直呼“天书”](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [员工要陪老板演戏吗？我真去影视飓风上班了...](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [宁静力挺湖南卫视](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [如何看待仰望 U7 的九天三万公里极限耐力挑战？](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [刘翔向网友求助，称体育局让他「买断」或「当教练上班」，上海体育局回应依规推进，这两种方式有啥利弊？](http://www.daogukj.com/aqmuomii/)
-- [年轻人真的把多运动听进去了](http://www.daogukj.com/phjdnbun/)
-- [尼泊尔北部山洪遇难人数升至18人](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [怎么看 Claude Code 团队回应：「坚持 CLAUDE.md 是因为模型系列不能互换」？](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [赵心童vs霍金斯](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [社保有多厉害可能超乎你的想象](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [尼泊尔北部山洪致近400人失联](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [西藏吉隆未来4天有持续性降水](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [刘翔年保底收入1400万元](http://www.daogukj.com/jbdvxipc/)
+- [员工要陪老板演戏吗？我真去影视飓风上班了...](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [海南大学一女研究生失联 警方介入](http://www.daogukj.com/awgjjjvg/)
+- [牛来模型确认为智谱GLM系列](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [贱谍过家家（8）](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [世界神话大联动！《源初之结》硬核逐帧解析](http://www.daogukj.com/ditzbwwz/)
+- [三部门向西藏调拨3万件中央救灾物资](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [谁能坚持到最后？](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [宋雨琦肿成蜜蜂小狗](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [米哈游《源初之结》会是抽卡养成游戏吗？](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [如何评价在科隆游戏展上米哈游新作《星布谷地》官宣将在2026年冬季公测上线？](http://www.daogukj.com/aqmuomii/)
+- [年轻人不会被电诈的原因](http://www.daogukj.com/phjdnbun/)
+- [打卡！打工！打钱！《异克斯小队》首曝PV](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [统计学有没有很接近纯数前沿的理论？](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [没有厨房的“幽灵生意”这次彻底凉了](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [侯卓成起诉王垲智](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [刘翔如果买断安置费有多少](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [获救船员称万吨货轮倾斜8分钟沉没](http://www.movie.hkepx.cn/movie/0960102.htm)
 - [一杯冰为何卖得比水还贵](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [亚运会预算连续超标，日本安排大量运动员入住集装箱房，预算都去哪儿了？对运动员会产生哪些影响？](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [《欢迎来龙餐馆》如果徐福死了，这部电影会不会效果更好？](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [宋雨琦肿成蜜蜂小狗](https://s.weibo.com/weibo?q=%E5%AE%8B%E9%9B%A8%E7%90%A6%E8%82%BF%E6%88%90%E8%9C%9C%E8%9C%82%E5%B0%8F%E7%8B%97)
+- [西藏泥石流](https://s.weibo.com/weibo?q=%E8%A5%BF%E8%97%8F%E6%B3%A5%E7%9F%B3%E6%B5%81)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8a4e2605bd547dbc9c90 -->
+<!-- content-fingerprint: e2bf5681ae1bf7741036 -->
