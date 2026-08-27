@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 一杯冰为何卖得比水还贵
+# 惠英红回应郭晓婷长得像
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7043905 · 更新：2026-08-27T04:25:12+08:00
+> 来源：微博热搜 · 排名：第 9 位 · 热度：539525 · 分类：电影 · 更新：2026-08-27T08:02:01+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“一杯冰为何卖得比水还贵”位列第 8 位，公开热度指标为 7043905。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“惠英红回应郭晓婷长得像”位列第 9 位，公开热度指标为 539525，榜单分类为“电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：有统计数据显示，当前我国食用冰单一赛道市场规模约600亿元，其中冰杯品类连续两年增速超300%。一块看似不起眼的冰，为何能卖出比同容量的水还高的价格？“吃冰热”又折射出我国食品工业哪些技术进阶与产业链变革？记者深入走访了相关领域的专家与企业，试图解开这杯冰里的“科技密码”。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `电影`
 
 ## 相关热点
 
-- [惠英红回应郭晓婷长得像](yan-er-dao-ling.md)
-- [获救船员称万吨货轮倾斜8分钟沉没](nan-yuan-bei-zhe.md)
-- [网传 DeepSeek 深度思考模式会偷偷给用户取外号，这是真的吗？为什么会出现这种情况？](mai-du-huan-zhu.md)
-- [《动物朋克》最新预告&实机演示 | 国产动作新游登陆科隆展](ye-gong-hao-long.md)
+- [折叠屏iPhone9月10日将亮相](yan-er-dao-ling.md)
+- [网传 DeepSeek 深度思考模式会偷偷给用户取外号，这是真的吗？为什么会出现这种情况？](nan-yuan-bei-zhe.md)
+- [经历四世轮回，只为回到你的身边](mai-du-huan-zhu.md)
+- [30岁女子长期吃外卖出现心衰征兆](ye-gong-hao-long.md)
 
 ## 站内推荐
 
-- [“黄金大外环”的“黄金效应”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [鸭货为什么卖不动了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [网传“8月新冠有变异毒株”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [美中情局局长秘密访问莫斯科谈什么](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [早春晴朗口碑](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [3万件物资支持西藏救灾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [苹果发布会定档](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [英伟达财报](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [英伟达二季度营收962亿美元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [沈腾范丞丞合照帅成AI了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [员工要陪老板演戏吗？我真去影视飓风上班了...](http://www.movie.hkepx.cn/xiju/2843648.htm)
-- [有什么书推荐一下，童年创伤，心理疗愈的书？](http://www.daogukj.com/0895296)
+- [海南大学一女研究生夜晚离校后失联](http://www.movie.hkepx.cn/xiju/2843648.htm)
+- [北方人口中的「硬菜」是什么菜呢？什么标准才达标呢？](http://www.daogukj.com/0895296)
 - [一架美军运输机降落在俄罗斯莫斯科，这一罕见事件引发关注，还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/3970296.htm)
-- [《动物朋克》最新预告&实机演示 | 国产动作新游登陆科隆展](http://www.movie.hkepx.cn/movie/5125967.htm)
-- [安踏前CEO前脚说爱国扭头搬家美国](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
-- [西藏日喀则吉隆口岸发生泥石流，致重大人员伤亡失联，有建筑被掩埋，目前情况如何？](http://www.movie.hkepx.cn/xiju/5735202.htm)
-- [夜市爆火 中国人的赚钱基因有多可怕](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
-- [台湾童星徐杰去世](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
-- [西藏泥石流救援现场](http://www.daogukj.com/1682120)
-- [如何评价粥饼伦天津鸡蛋灌饼店因为房租从13万上涨到20万被迫宣布暂停营业？为什么现在房东矛盾这么大？](http://www.daogukj.com/3781657)
-- [《无限大》定档预告丨27年1月15日全球上线](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
-- [王安宇晒与贾冰白敬亭合照放C位](http://www.movie.hkepx.cn/xiju/8318389.htm)
-- [女子天热出门化妆 假鼻子全是汗泡](http://www.movie.hkepx.cn/xiju/6056931.htm)
-- [500万人口政务App每天仅60人用](http://www.movie.hkepx.cn/xiju/3703541.htm)
-- [金价大涨终于熬出头](http://www.movie.hkepx.cn/xiju/8516838.htm)
-- [卖爆了！国产“宠”物全球抢着下单](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
-- [德芙就「趁男朋友不在跟暧昧对象分享」文案道歉，称由第三方运营团队创作发布，德芙在管理上存在哪些问题？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
-- [吉隆口岸](http://www.movie.hkepx.cn/movie/7128560.htm)
-- [广西崇左居民：第一回见这么大的洪水](http://www.daogukj.com/3515190)
-- [办事大厅被曝9点没人上班后禁带手机](http://www.daogukj.com/0169777)
-- [在凤凰古城碰到一位无臂骑手，白天跑外卖，晚上写字谋生，给经历磨难却依旧坚毅的向阳点个赞](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
-- [单杆轰出128分！赵心童5-2击败霍金斯](http://www.daogukj.com/4071713)
-- [北方人口中的「硬菜」是什么菜呢？什么标准才达标呢？](http://www.daogukj.com/pjoqnyew/)
-- [年轻人不会被电诈的原因](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
-- [西藏吉隆口岸发生泥石流灾害，一侧前往口岸的道路、通信、电力处于中断状态，目前救援存在哪些难点？](http://www.movie.hkepx.cn/movie/5516169.htm)
-- [32岁小伙靠给人抓痒开出两家店](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
-- [王中王夺冠自战解说](http://www.daogukj.com/pgdrxeea/)
-- [“妇女顶起半边天，战士扛起万重山”【红色高跟鞋DJ-变速】【捐躯赴义の小曲】](http://www.daogukj.com/7272013)
-- [未来五年加快打造新兴支柱产业](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
-- [学费被家长充错成话费了](http://www.daogukj.com/3521407)
-- [国务院对敌敌畏消杀事件挂牌督办](http://www.daogukj.com/9982293)
-- [13岁女孩三天靠AI赚1.8万](http://www.movie.hkepx.cn/xiju/3540024.htm)
-- [海南大学一女研究生夜晚离校后失联](http://www.movie.hkepx.cn/movie/9307027.htm)
-- [极限接力！每人仅有十分钟！时间清零强制接棒？！！「天门接力挑战」](http://www.movie.hkepx.cn/movie/7494540.htm)
-- [胖东来许昌新店与老店相隔4公里](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
-- [“黄金大外环”的“黄金效应”](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
-- [鸭货为什么卖不动了](http://www.daogukj.com/4973551)
-- [“老登股”的春天要来了吗](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
-- [源初之结首曝PV「诸神入刃，斩尽死结」](http://www.daogukj.com/zirrjtcq/)
-- [“十五五”时期推动信息通信业全面升级](http://www.daogukj.com/pvjkdvkl/)
-- [【绯红回响】棋子落下时，才发现自己不是棋手【up动画】](http://www.movie.hkepx.cn/movie/8281799.htm)
-- [央视曝光擦边手办乱象](http://www.movie.hkepx.cn/movie/4145451.htm)
-- [“得妻如此，夫复何求”【如果可以DJ-变速】【纯爱牛逼の小曲】](http://www.movie.hkepx.cn/xiju/5480896.htm)
-- [1.03亿恒大债权包14.41万成交](http://www.movie.hkepx.cn/xiju/6192675.htm)
-- [小天才还要逼疯多少家长](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
-- [【绯红回响】邪恶计划丨X病毒蔓延 【UP动画】](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
-- [网传“8月新冠有变异毒株”不实](http://www.movie.hkepx.cn/movie/8224566.htm)
-- [惠英红回应郭晓婷长得像](http://www.daogukj.com/rdjgxawo/)
-- [海南大学失联女研究生最后现身桥下](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
-- [国产单机《湮灭之潮》全新宣传片 | 旧日之纱](http://www.daogukj.com/4280554)
+- [30岁女子长期吃外卖出现心衰征兆](http://www.movie.hkepx.cn/movie/5125967.htm)
+- [壁虎捕食马蜂开启自助餐模式](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
+- [国产单机《湮灭之潮》全新宣传片 | 旧日之纱](http://www.movie.hkepx.cn/xiju/5735202.htm)
+- [刘翔反问上海体育局](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
+- [刘翔再发文：十年了想起来安置我了](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
+- [男频和女频的区别](http://www.daogukj.com/1682120)
+- [“得妻如此，夫复何求”【如果可以DJ-变速】【纯爱牛逼の小曲】](http://www.daogukj.com/3781657)
+- [苹果首款折叠屏手机将亮相](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
+- [老人家属已退还店主被索赔1.9万元](http://www.movie.hkepx.cn/xiju/8318389.htm)
+- [《昭和米国物语》全新预告片将于科隆游戏展首次公开，同时也将现场开放试玩，对此你有何期待？](http://www.movie.hkepx.cn/xiju/6056931.htm)
+- [台湾童星徐杰去世](http://www.movie.hkepx.cn/xiju/3703541.htm)
+- [36岁合肥市民模仿沈腾走红](http://www.movie.hkepx.cn/xiju/8516838.htm)
+- [刘翔回应安置二选一](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
+- [《无限大》定档预告丨27年1月15日全球上线](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
+- [樊振东收获新赛季德甲三连胜](http://www.movie.hkepx.cn/movie/7128560.htm)
+- [马路不是你家 “暴走团”不能霸路了](http://www.daogukj.com/3515190)
+- [「帮扶老人反被索赔」事件，老人家属算敲诈勒索吗？为何法律无责却仍需赔偿？该怎样终结「和稀泥式调解」？](http://www.daogukj.com/0169777)
+- [应急救援包机起飞前往西藏日喀则](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
+- [早春晴朗开播下沉市场口碑](http://www.daogukj.com/4071713)
+- [【本家投稿】東京真中 - ブレインロット feat. 重音テト](http://www.daogukj.com/pjoqnyew/)
+- [英伟达业绩大超预期 Q2营收利润翻倍](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
+- [打卡！打工！打钱！《异克斯小队》首曝PV](http://www.movie.hkepx.cn/movie/5516169.htm)
+- [女子主动到派出所问自己是不是逃犯](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
+- [夜市爆火 中国人的赚钱基因有多可怕](http://www.daogukj.com/pgdrxeea/)
+- [《钱》金钱是什么？](http://www.daogukj.com/7272013)
+- [“十五五”时期推动信息通信业全面升级](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
+- [癌症疫苗预计近50万美元1针](http://www.daogukj.com/3521407)
+- [办事大厅被拍空岗后禁群众带手机进入](http://www.daogukj.com/9982293)
+- [如何看待刘翔社媒继续发声，质疑上海体育局的回应，称「十年了才想起安置，分广告费的时候怎么不依法安置」？](http://www.movie.hkepx.cn/xiju/3540024.htm)
+- [刘翔说没执教经验当教练是毁人前途](http://www.movie.hkepx.cn/movie/9307027.htm)
+- [国务院对敌敌畏消杀事件挂牌督办](http://www.movie.hkepx.cn/movie/7494540.htm)
+- [安踏前CEO前脚说爱国扭头搬家美国](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
+- [3万件物资支持西藏救灾](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
+- [苹果发布会定档](http://www.daogukj.com/4973551)
+- [如何看待美中情局局长速访俄罗斯](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
+- [82岁中国老人在韩国夺得跨栏世界冠军](http://www.daogukj.com/zirrjtcq/)
+- [如何评价在科隆游戏展上网易新作《无限大》官宣将在2027年1月15日全球上线？](http://www.daogukj.com/pvjkdvkl/)
+- [“黄金大外环”的“黄金效应”](http://www.movie.hkepx.cn/movie/8281799.htm)
+- [朋友聚餐总有人乱点菜然后强制AA，我该怎么表达不满又不尴尬？](http://www.movie.hkepx.cn/movie/4145451.htm)
+- [请3休13 “超长假期”马上来了](http://www.movie.hkepx.cn/xiju/5480896.htm)
+- [俄媒曝 30 多个国家表示准备向乌克兰派兵，此举将如何影响俄乌冲突局势？](http://www.movie.hkepx.cn/xiju/6192675.htm)
+- [尼泊尔北部山洪暴发已致157人死亡](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
+- [尼泊尔北部山洪已致157人死亡](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
+- [英伟达财报](http://www.movie.hkepx.cn/movie/8224566.htm)
+- [折叠屏iPhone9月10日将亮相](http://www.daogukj.com/rdjgxawo/)
+- [女子天热出门化妆 假鼻子全是汗泡](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
+- [今日北京 天空送来一幅画](http://www.daogukj.com/4280554)
 
 </details>
 
 ## 原始来源
 
-- [一杯冰为何卖得比水还贵](https://www.baidu.com/s?wd=%E4%B8%80%E6%9D%AF%E5%86%B0%E4%B8%BA%E4%BD%95%E5%8D%96%E5%BE%97%E6%AF%94%E6%B0%B4%E8%BF%98%E8%B4%B5&sa=fyb_news&rsv_dl=fyb_news)
+- [惠英红回应郭晓婷长得像](https://s.weibo.com/weibo?q=%E6%83%A0%E8%8B%B1%E7%BA%A2%E5%9B%9E%E5%BA%94%E9%83%AD%E6%99%93%E5%A9%B7%E9%95%BF%E5%BE%97%E5%83%8F)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: df4331f238efa9f6f500 -->
+<!-- content-fingerprint: c2e4840032ab18729172 -->
