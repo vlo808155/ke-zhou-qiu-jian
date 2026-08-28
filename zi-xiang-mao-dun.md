@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 《凡人修仙传》动漫是否已经被毁了？
+# 如何看待此次Science「光伏鸟类」引起的经济学与生态学的文理大战？
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-08-28T03:59:26+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：120 万热度 · 分类：问答 · 更新：2026-08-28T12:20:39+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“《凡人修仙传》动漫是否已经被毁了？”位列第 10 位，公开热度指标为 59 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待此次Science「光伏鸟类」引起的经济学与生态学的文理大战？”位列第 10 位，公开热度指标为 120 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [国产单机《湮灭之潮》全新宣传片 | 旧日之纱](bei-gong-she-ying.md)
-- [四川泸州近期发生山火系谣言](jing-gong-zhi-niao.md)
-- [90后亿万富翁孙宇晨商业版图](hu-jia-hu-wei.md)
+- [打卡！打工！打钱！《异克斯小队》首曝PV](bei-gong-she-ying.md)
+- [“河南一地彩礼限额8万元”不实](jing-gong-zhi-niao.md)
+- [吉隆口岸执勤人员灾中逆行疏散](hu-jia-hu-wei.md)
 - [四川泸州近期发生山火？不实](yu-mu-hun-zhu.md)
 
 ## 站内推荐
 
-- [结婚8年3女非亲生当事人首次露脸](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [叶建春被查 江西省委：引以为戒](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [尼泊尔山洪死亡人数升至 359 人，有 910 人失联，目前当地情况怎么样？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [佳偶天成回款2.51亿](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [西藏吉隆泥石流](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [人民日报还原扶老人被索赔1.9万经过](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [汕头一酒店房间平时售价280元，国庆期间标价5850元，门店称并非最终价格，这样的涨价幅度合理吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [台风「沙德尔」在浙江省台州玉环市登陆，中心附近最大风力 12 级，目前具体情况如何？你那里天气怎样？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [5G商用七年了，除了手机右上角多5G标识，网速体验和4G没差别，信号甚至更差，我该如何反驳这种观点？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [《女生vs男生》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [柳州地震](http://www.movie.hkepx.cn/movie/6811296.htm)
-- [经历四世轮回，只为回到你的身边](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
-- [散步是“延寿”运动第一名](http://www.movie.hkepx.cn/movie/3422828.htm)
-- [上海武术院 财政拨款](http://www.daogukj.com/ydwohxdl/)
-- [《剑网三》制作人郭炜炜正式离职西山居，为什么他会选择在此时卸任CEO，这将会带来什么影响？](http://www.movie.hkepx.cn/xiju/2720207.htm)
-- [男子出轨女邻居并住其家中](http://www.movie.hkepx.cn/movie/8905156.htm)
-- [汗血宝马满地打滚 外籍记者看呆了](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
-- [小时候开智之前](http://www.movie.hkepx.cn/movie/6751227.htm)
-- [何炅自曝断交的人不超过4个](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
-- [为什么身边的中年男人不是热衷炒股，就是热衷钓鱼？](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
-- [100 多家上市公司将补缴税款总额达 77 亿，如何看待「金税四期」对企业合规成本的影响？](http://www.movie.hkepx.cn/movie/6134002.htm)
-- [叶建春被查 江西省委：引以为戒](http://www.movie.hkepx.cn/xiju/5097281.htm)
-- [中国男篮vs卡塔尔男篮](http://www.movie.hkepx.cn/xiju/1723334.htm)
-- [《动物朋克》最新预告&实机演示 | 国产动作新游登陆科隆展](http://www.daogukj.com/8560862)
-- [“他们也是孩子 却为我们冲锋陷阵”](http://www.movie.hkepx.cn/movie/0534103.htm)
-- [同样老师同样课堂，孩子学习差距巨大，教育真的能抹平天赋差距吗？](http://www.daogukj.com/egppjxgx/)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.daogukj.com/kdnhmkcj/)
-- [22岁女孩睡觉踩空惊醒确诊怪病](http://www.daogukj.com/khgfsqiu/)
-- [“买断”刘翔需要多少钱](http://www.movie.hkepx.cn/xiju/9522986.htm)
-- [《源初之结》是不是宣告米哈游走出舒适区了？](http://www.daogukj.com/sygihuae/)
-- [【本家投稿】東京真中 - ブレインロット feat. 重音テト](http://www.daogukj.com/sucemorm/)
-- [deepseek-harness 的热度这么快过去了吗？](http://www.movie.hkepx.cn/xiju/6593136.htm)
-- [宗馥莉旗下啵啵汽水铺销售遇冷，直播62场销售额不足10万，为什么会遇冷？其自有品牌前景如何？](http://www.daogukj.com/pencausq/)
-- [国防部：要求美方立即停止武装台湾](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
-- [江西省省长叶建春被查](http://www.daogukj.com/2517745)
+- [叶建春被查 家族染指稀土生意](http://www.movie.hkepx.cn/movie/6811296.htm)
+- [西藏泥石流灾害核心区画面曝光](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
+- [毛主席纪念堂9月1日起恢复对外开放](http://www.movie.hkepx.cn/movie/3422828.htm)
+- [国产单机《湮灭之潮》全新宣传片 | 旧日之纱](http://www.daogukj.com/ydwohxdl/)
+- [亚航一客机起落架内惊现尸体](http://www.movie.hkepx.cn/xiju/2720207.htm)
+- [昔日“彩电一哥”将主动退市](http://www.movie.hkepx.cn/movie/8905156.htm)
+- [寿星来切蛋糕啦！！「谁是杀手」？？！](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
+- [大学生卖网课赚0元被索赔1万](http://www.movie.hkepx.cn/movie/6751227.htm)
+- [正开着会 两名企业负责人被当场铐走](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
+- [微信折叠发图可以搭配衣服](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
+- [网友质疑浙江省博物馆将「勾践」错写为「句践」，博物馆回应为尊重文物本名，到底哪种写法才是正确的？](http://www.movie.hkepx.cn/movie/6134002.htm)
+- [汕头一酒店房间平时售价280元，国庆期间标价5850元，门店称并非最终价格，这样的涨价幅度合理吗？](http://www.movie.hkepx.cn/xiju/5097281.htm)
+- [容易焦虑的人需要知道的生存法则](http://www.movie.hkepx.cn/xiju/1723334.htm)
+- [李阳疯狂英语为什么没落了？](http://www.daogukj.com/8560862)
+- [如何评价《英雄无敌3》重制版官宣，由育碧成都和上海工作室主导研发？](http://www.movie.hkepx.cn/movie/0534103.htm)
+- [现在就出发欢迎您来龙餐馆](http://www.daogukj.com/egppjxgx/)
+- [沙德尔在浙江温州再次登陆](http://www.daogukj.com/kdnhmkcj/)
+- [沙德尔在浙江登陆 将波及9省区](http://www.daogukj.com/khgfsqiu/)
+- [男子徒手捞水饺致右手80%皮肤剥脱](http://www.movie.hkepx.cn/xiju/9522986.htm)
+- [王虹选择任教纽约大学而非北大的原因是什么？难道北大不是更好的选择吗？](http://www.daogukj.com/sygihuae/)
+- [华为Pura X View深度体验](http://www.daogukj.com/sucemorm/)
+- [吉隆口岸救援任务暂缓](http://www.movie.hkepx.cn/xiju/6593136.htm)
+- [西藏吉隆泥石流致 3 人遇难 558 人失联，上游堰塞湖出现溢流，目前救援进展如何？](http://www.daogukj.com/pencausq/)
+- [尼泊尔山洪已致469人死亡](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
+- [“国民彩电大王”康佳拟主动退市](http://www.daogukj.com/2517745)
 - [四川泸州近期发生山火？不实](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
-- [英伟达同意以 129 亿美元收购 Hugging Face，如何看待这一举措？](http://www.movie.hkepx.cn/xiju/5387412.htm)
-- [花少2被称第五大名著](http://www.movie.hkepx.cn/movie/2763004.htm)
-- [世界伊始——《伊莫》全球上线定档：PC端9月16日 移动端9月23日！](http://www.movie.hkepx.cn/xiju/8265001.htm)
-- [星际外卖员：你只迟到了3秒，也被扇了一巴掌【AI全民制作人】](http://www.daogukj.com/pbivxwuy/)
-- [为什么有人说逻辑就是拓扑？](http://www.daogukj.com/msnbkunl/)
-- [“得妻如此，夫复何求”【如果可以DJ-变速】【纯爱牛逼の小曲】](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
-- [国产单机《湮灭之潮》全新宣传片 | 旧日之纱](http://www.movie.hkepx.cn/movie/3294285.htm)
-- [孙宇晨曾拍下巴菲特的午餐](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
-- [人民日报评企业批量劝退应届生](http://www.daogukj.com/7751528)
-- [翼龙无人机进入西藏吉隆勘察](http://www.movie.hkepx.cn/xiju/5949359.htm)
-- [赵心童登顶世界第一](http://www.movie.hkepx.cn/movie/9383605.htm)
-- [妻旅第2季四对夫妻两对离婚](http://www.daogukj.com/0705031)
-- [男子3万买“良方”牵出9000万大案](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
-- [郑钦文vs普里丹金娜](http://www.daogukj.com/iaxbxgkd/)
-- [中方：尼泊尔一侧失联中国公民近百人](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
-- [接下来一万期都是这家剁椒面了](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
-- [中芯国际上半年归母净利润44.67亿元](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
-- [全力搜寻吉隆泥石流失联人员](http://www.movie.hkepx.cn/xiju/9594303.htm)
-- [当你突然发现父母是亿万富翁](http://www.daogukj.com/3727264)
-- [新修版黄药师只爱梅超风，不爱冯蘅母女你们是怎么理解的？](http://www.movie.hkepx.cn/movie/8918029.htm)
-- [【苏新皓｜4K直拍】Abracadabra 直拍｜重·二周年演唱会](http://www.daogukj.com/5225618)
-- [9岁男孩小区内遭垃圾车碾轧身亡](http://www.daogukj.com/7483927)
-- [省长叶建春任上被查 江西省委表态](http://www.daogukj.com/hmowpwmp/)
-- [90后亿万富翁孙宇晨商业版图](http://www.movie.hkepx.cn/movie/8474409.htm)
+- [我国机械工业出口成外贸“压舱石”](http://www.movie.hkepx.cn/xiju/5387412.htm)
+- [数到三](http://www.movie.hkepx.cn/movie/2763004.htm)
+- [超声波菜刀？长脖子的手机？开箱市面上最科幻的离谱产品](http://www.movie.hkepx.cn/xiju/8265001.htm)
+- [难过](http://www.daogukj.com/pbivxwuy/)
+- [学生成绩低 教师合影背后大屏写耻辱](http://www.daogukj.com/msnbkunl/)
+- [樊振东将对阵去年冠军](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
+- [打卡！打工！打钱！《异克斯小队》首曝PV](http://www.movie.hkepx.cn/movie/3294285.htm)
+- [币圈富豪孙宇晨手撕景甜，索赔3千万彩礼，娱乐圈+金融圈惊天巨瓜！](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
+- [小天才电话手表近年多次曝出负面舆情](http://www.daogukj.com/7751528)
+- [杭州电梯猥亵案反转：法律给了男邻居清白，但网络舆论的私刑已经执行完了，别让真相的迟到 成为常态](http://www.movie.hkepx.cn/xiju/5949359.htm)
+- [西藏吉隆口岸上游堰塞湖出现溢流](http://www.movie.hkepx.cn/movie/9383605.htm)
+- [手机卖不动 价格却涨了](http://www.daogukj.com/0705031)
+- [雷波县教师被羞辱](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
+- [教体局回应将低分班级教师称为耻辱](http://www.daogukj.com/iaxbxgkd/)
+- [大 周 礼 时 代(26)](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
+- [中方：尼泊尔一侧失联中国公民近百人](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
+- [兔子警官回应辅警身份争议](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
+- [消防救援力量向受灾核心区挺进](http://www.movie.hkepx.cn/xiju/9594303.htm)
+- [沙德尔在浙江台州登陆](http://www.daogukj.com/3727264)
+- [9月起这类电动车不得继续上路行驶](http://www.movie.hkepx.cn/movie/8918029.htm)
+- [《背心尊者》](http://www.daogukj.com/5225618)
+- [孙宇晨起诉景甜返还3千万彩礼，能要回多少？](http://www.daogukj.com/7483927)
+- [谁干掉了旅行社](http://www.daogukj.com/hmowpwmp/)
+- [吉隆口岸执勤人员灾中逆行疏散](http://www.movie.hkepx.cn/movie/8474409.htm)
 
 </details>
 
 ## 原始来源
 
-- [《凡人修仙传》动漫是否已经被毁了？](https://www.zhihu.com/question/2074995204373878021)
+- [如何看待此次Science「光伏鸟类」引起的经济学与生态学的文理大战？](https://www.zhihu.com/question/2075638949830313444)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 87ea2779864ced3caadf -->
+<!-- content-fingerprint: cc1eaee0a2cd7f743841 -->
