@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 打卡！打工！打钱！《异克斯小队》首曝PV
+# 为什么干肠走不出东北，红肠却能火遍全国？
 
-> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：7688581 · 分类：日常 · 更新：2026-08-28T12:20:39+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：123 万热度 · 分类：问答 · 更新：2026-08-29T00:46:32+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“打卡！打工！打钱！《异克斯小队》首曝PV”位列第 10 位，公开热度指标为 7688581，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么干肠走不出东北，红肠却能火遍全国？”位列第 10 位，公开热度指标为 123 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：别人不敢接的活，你来接！ 《异克斯小队》是由 Behaviour Interactive 研发的第三人称 PvE 合作射击新游。 在这里，你将和两个靠谱的工友组成三人小队，用工业工具改装成的武器、搭配疯狂的科学装备，一边扫清肆虐的外星异种，一边维持天穹星设施的正常运转。 记得互相照应、算清开销，一起活着熬到收工，安全撤离。 别忘了，你们是闻名宇宙的专业团队，也是每天最后撤离现场的劳模——别人挣不到的钱，只有你们能拿下。 记住口号：打卡！打工！打钱！
+来源公开摘要显示：最近在想一个问题：东北的红肠（哈肉联、秋林里道斯、商委红肠）在全国超市都能买到，网购也能发到全国各地，算是成功走出东北了。 但干肠呢？就是那种细细的、硬硬的、风干了的、切片直接吃或者蒸一下吃的干肠。我在哈尔滨从小吃到大，觉得比红肠更有嚼劲、更香。可一出东北，几乎没人知道这东西。 我之前去青岛，买了张高铁票就走了，到那边看亲戚，也带了干肠过去。他们一开始吃觉得这东西不错，那个香味挺独特的，比腊肠清淡一些，没那么腻。但吃时间久了，也觉得没啥意思了，就是尝个鲜可以，不会主动想着再去买。 同样是哈尔滨出产的肉类加工品，商委红肠门口天天排队，外地人也托人代购。为什
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [“河南一地彩礼限额8万元”不实](jing-gong-zhi-niao.md)
-- [吉隆口岸执勤人员灾中逆行疏散](hu-jia-hu-wei.md)
-- [四川泸州近期发生山火？不实](yu-mu-hun-zhu.md)
-- [尼泊尔山洪死亡人数升至 469 人，有 910 人失联，目前当地情况怎么样？](dong-shi-xiao-pin.md)
+- [吃瓜必看！一个视频带你全面复盘景甜、孙宇晨炸裂大瓜！娱乐圈还是太乱了](jing-gong-zhi-niao.md)
+- [“青铜峡拦河大坝泄洪”不实](hu-jia-hu-wei.md)
+- [剧组夫妻](yu-mu-hun-zhu.md)
+- [小米被曝更新售后政策，二手设备直接失去官方保修，怎么看待这件事？](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [西藏吉隆泥石流致 3 人遇难 558 人失联，上游堰塞湖出现溢流，目前救援进展如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [土木终于迎来第二春！我下跪道歉！！！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [小时候开智之前](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [寿星来切蛋糕啦！！「谁是杀手」？？！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [男子徒手捞水饺致右手80%皮肤剥脱](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [「地方附加税法」征求意见稿出台，实行 11%-13% 幅度税率，这一新税种对经济意味着什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [用了5年的合法固定车位，被邻楼老太强行霸占，放完杂物直接砌水泥墩，物业管不了我该怎么办？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [一场不按计划发生的旅行【出发吧少年1】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [吉隆泥石流曾逆流而上又回流](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [中国女排晋级亚锦赛半决赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [小天才电话手表近年多次曝出负面舆情](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [毛主席纪念堂9月1日起恢复对外开放](http://www.daogukj.com/0517179)
-- [国产公安剧 终于对准这帮人](http://www.daogukj.com/yzfviyov/)
-- [两兄妹被蜂群蜇亡 父亲最新发声](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [Grand Theft Auto VI：分量十足的一瞥](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [“国民彩电大王”康佳拟主动退市](http://www.daogukj.com/1191355)
-- [大人在3车厢8岁孩子被分到7车厢](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [王虹选择任教纽约大学而非北大的原因是什么？难道北大不是更好的选择吗？](http://www.daogukj.com/2850206)
-- [吉隆口岸执勤人员灾中逆行疏散](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [小时候开智之前](http://www.daogukj.com/5364901)
-- [樊振东进4强需击败所有对手](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
-- [“河南一地彩礼限额8万元”不实](http://www.daogukj.com/nisjsldl/)
-- [现在就出发欢迎您来龙餐馆](http://www.daogukj.com/xvspcmfq/)
-- [沙德尔在浙江登陆 将波及9省区](http://www.daogukj.com/4116400)
-- [樊振东将对阵去年冠军](http://www.daogukj.com/nncunhqi/)
-- [如何看待此次Science「光伏鸟类」引起的经济学与生态学的文理大战？](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [男子徒手捞水饺致右手80%皮肤剥脱](http://www.daogukj.com/svuwbdap/)
-- [苹果将为西藏捐款](http://www.daogukj.com/qvipjsxc/)
-- [台风「沙德尔」在浙江省台州玉环市登陆，中心附近最大风力 12 级，目前具体情况如何？你那里天气怎样？](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
-- [西藏吉隆口岸上游堰塞湖出现溢流](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [如何评价《英雄无敌3》重制版官宣，由育碧成都和上海工作室主导研发？](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [怪兽中 出了一个...不对！是一群奥特曼的卧底！【AI全民制作人】](http://www.daogukj.com/wvyvpuql/)
-- [如何看待中国博士人数已经超过驴的存栏量？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
-- [尼泊尔山洪已致469人死亡](http://www.daogukj.com/yktxglwn/)
-- [警方通报成都蛋烘糕奶奶被镜头霸凌，对两博主进行批评教育，账号进行依法处置，怎样看待这一结果？](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [容易焦虑的人需要知道的生存法则](http://www.daogukj.com/2377613)
-- [【独家】时光代理人 第三季 PartOne 第4集 JAE【8月国创】](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [网友质疑浙江省博物馆将「勾践」错写为「句践」，博物馆回应为尊重文物本名，到底哪种写法才是正确的？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [亚航一客机起落架内惊现尸体](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [人民日报还原扶老人被索赔1.9万经过](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [《背心尊者》](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [员工替领导打卡 39 次，被公司以违纪开除，法院判定解雇合法，如何看待该判决？领导要求代打卡该怎么办？](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [土木终于迎来第二春！我下跪道歉！！！](http://www.daogukj.com/qkjpzqjb/)
-- [大 周 礼 时 代(26)](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [《动物朋克》最新预告&实机演示 | 国产动作新游登陆科隆展](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [演唱会上的“衣不遮体”该治了](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
-- [吉隆口岸救援任务暂缓](http://www.daogukj.com/opgycgjr/)
-- [如何看待林肯号计划停靠泰国?](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [西藏吉隆泥石流致 3 人遇难 558 人失联，上游堰塞湖出现溢流，目前救援进展如何？](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [35cm马蜂窝“安家”四楼窗外](http://www.daogukj.com/3894638)
-- [手机卖不动 价格却涨了](http://www.daogukj.com/ihugvxjr/)
-- [西藏泥石流灾害核心区画面曝光](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [黎巴嫩93-74大胜韩国](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [去年20亿彩票奖金没人领](http://www.daogukj.com/owscegnp/)
-- [46岁的董洁像吃防腐剂了](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [国产单机《湮灭之潮》全新宣传片 | 旧日之纱](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [微信折叠发图可以搭配衣服](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [洛阳准备了牡丹钻石送赛考斯和殷玉珍](http://www.daogukj.com/9324764)
-- [广西柳州深夜发生3.8级地震](http://www.daogukj.com/awlcbyru/)
-- [四川泸州近期发生山火？不实](http://www.daogukj.com/5750670)
+- [100万房贷月供可减少635元](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [吴晓波：大公积金时代或正在到来](http://www.daogukj.com/0517179)
+- [《绝区零》3.2版本PV | 她与她的隐秘往事](http://www.daogukj.com/yzfviyov/)
+- [电梯亲密视频董事长近半股份转配偶](http://www.movie.hkepx.cn/xiju/0529283.htm)
+- [扶老人被索赔店主捐出12万捐助款](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [专家：吉隆救援人员需警惕冰湖溃决](http://www.daogukj.com/1191355)
+- [青簪行](http://www.movie.hkepx.cn/xiju/7511993.htm)
+- [老年人越来越多，为什么银发经济不好做？](http://www.daogukj.com/2850206)
+- [“青铜峡拦河大坝泄洪”不实](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
+- [一场不按计划发生的旅行【出发吧少年1】](http://www.daogukj.com/5364901)
+- [房贷](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [吃瓜必看！一个视频带你全面复盘景甜、孙宇晨炸裂大瓜！娱乐圈还是太乱了](http://www.daogukj.com/nisjsldl/)
+- [吉隆堰塞湖附近树林被气浪吹光](http://www.daogukj.com/xvspcmfq/)
+- [韩国新生儿数创纪录 发生了什么](http://www.daogukj.com/4116400)
+- [中国第五座超一线城市会是谁](http://www.daogukj.com/nncunhqi/)
+- [蒋超良贪7.46亿被判死缓](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [中国女排晋级亚锦赛半决赛](http://www.daogukj.com/svuwbdap/)
+- [潘玮柏狂瘦8公斤](http://www.daogukj.com/qvipjsxc/)
+- [5G商用七年了，除了手机右上角多5G标识，网速体验和4G没差别，信号甚至更差，我该如何反驳这种观点？](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
+- [尼泊尔山洪已致579人遇难1924人失联](http://www.movie.hkepx.cn/movie/2146522.htm)
+- [现在大家对月饼都不怎么感兴趣了，为什么？](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [搬空系列迎来了它最大一票](http://www.daogukj.com/wvyvpuql/)
+- [如何评价育碧在 Steam 上架《英雄无敌 3》却忘记发游戏文件，玩家仅下载到 23KB 占位符？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [尼泊尔山洪已致579死1924失联](http://www.daogukj.com/yktxglwn/)
+- [【招笑版】新植物2:朝阳葵](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [青簪行天价版权](http://www.daogukj.com/2377613)
+- [币圈富豪孙宇晨手撕景甜，索赔3千万彩礼，娱乐圈+金融圈惊天巨瓜！](http://www.movie.hkepx.cn/movie/4178444.htm)
+- [西藏吉隆泥石流致 5 人遇难 558 人失联，上游堰塞湖出现溢流，目前救援进展如何？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [苹果折叠机溢价](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [官方：存量房贷还款困难可协商调整](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [耗时一年，救赎相信光的小女孩，完整后续来了！](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [亲戚来家里做客全国统一反应](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [用了5年的合法固定车位，被邻楼老太强行霸占，放完杂物直接砌水泥墩，物业管不了我该怎么办？](http://www.daogukj.com/qkjpzqjb/)
+- [30岁双985硕士重新高考](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [21岁大三学生3年考了100个证](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [美术展里的假人模型，为何变成了真人尸体...？](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [比尔·盖茨发长文严厉警告人类注意AI](http://www.daogukj.com/opgycgjr/)
+- [Grand Theft Auto VI：分量十足的一瞥](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [「地方附加税法」征求意见稿出台，实行 11%-13% 幅度税率，这一新税种对经济意味着什么？](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [LPL2026赛季第三赛段骑士之路TT 0:3 iG，如何评价这场比赛？](http://www.daogukj.com/3894638)
+- [10万买奥迪A6 20万买玛莎拉蒂](http://www.daogukj.com/ihugvxjr/)
+- [“兵王”父亲送儿子到国防科大报到](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [脑梗来临前的警报 很多人当成没睡好](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [原来男生的喜欢真的很明显](http://www.daogukj.com/owscegnp/)
+- [出生率回落 中国新生男孩仍比女孩多](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [这盘棋已经赢不了，只能把对面打死了！](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [蒋奇明檀健次金鹿奖影帝](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [中国新能源车出现「太长、太宽、太重」趋势，是何原因，发展合理吗？](http://www.daogukj.com/9324764)
+- [近600万法拍别墅收房一片废墟](http://www.daogukj.com/awlcbyru/)
+- [剧组夫妻](http://www.daogukj.com/5750670)
 
 </details>
 
 ## 原始来源
 
-- [打卡！打工！打钱！《异克斯小队》首曝PV](https://b23.tv/BV1SuhV6aE77)
+- [为什么干肠走不出东北，红肠却能火遍全国？](https://www.zhihu.com/question/2074602307673764255)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1e23886ffa117cdf561c -->
+<!-- content-fingerprint: 7486ba63bee38b019097 -->
