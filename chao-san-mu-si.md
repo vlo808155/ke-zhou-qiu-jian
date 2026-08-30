@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 王一博征服西欧最高峰
+# “世界最年轻国王”突然离世
 
-> 来源：微博热搜 · 排名：第 12 位 · 热度：264126 · 分类：艺人 · 更新：2026-08-30T08:22:41+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6756903 · 更新：2026-08-30T13:38:58+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“王一博征服西欧最高峰”位列第 12 位，公开热度指标为 264126，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““世界最年轻国王”突然离世”位列第 11 位，公开热度指标为 6756903。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：8月28日，乌干达政府官方社交媒体账号发文称，乌干达境内托罗王国国王奥约于当地时间27日去世，时年34岁。此前，奥约曾被称为“全球最年轻的国王”。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [孙千腰以下全是腿](dui-niu-tan-qin.md)
-- [六岁男童旅游被烟花炸伤右眼几近失明，半年找不到放烟花的人，妈妈称「连告谁都不清楚」，到底谁该对此负责？](mang-ren-mo-xiang.md)
-- [《小杨有约29#》：陈泽](yuan-mu-qiu-yu.md)
-- [樊振东无缘德国杯8强](sha-ji-qu-luan.md)
+- [15岁少年因大面积文身无法入学](dui-niu-tan-qin.md)
+- [男子便利店碰到女子包被指摸臀](mang-ren-mo-xiang.md)
+- [樊振东 2 比 3 惜败户上隼辅，其所在球队 1-3 不敌对手，无缘德国杯 8 强，如何评价他的表现？](yuan-mu-qiu-yu.md)
+- [跑了1200公里，我去给刘关张三兄弟上坟！](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
-- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [受唐嫣资助的女孩被迫弃学](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [尼日尔军方称逮捕多名企图兵变的士兵](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [尼泊尔山洪 民众误判](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [14家央国企将开放超60亿条高价值数据](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [去了一趟西班牙2.0（荒岛四兄弟篇）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [一个人，耗时18个月，2万元成本，手搓94分钟以刘慈欣小说《山》为故事原型的AI仿真人科幻电影](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [厦航乘客遭邻座扇耳光 警方介入](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [未来很难有投资1亿+的大片了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [刚入警一年的女孩在吉隆口岸失联](http://www.daogukj.com/4141941)
-- [挑战共享单车100km去台湾](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [受唐嫣资助的女孩被迫弃学](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [孙千腰以下全是腿](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [当兵被班长往死里整，家里不愿帮你走动，你是硬留还是回家？](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [耗时一年，救赎相信光的小女孩，完整后续来了！](http://www.daogukj.com/7265089)
-- [小说男女主照进现实了](http://www.daogukj.com/3085948)
-- [医生回应女孩游泳后全身长20多个疣](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [六岁男童旅游被烟花炸伤右眼几近失明，半年找不到放烟花的人，妈妈称「连告谁都不清楚」，到底谁该对此负责？](http://www.daogukj.com/jtbnzsng/)
-- [立志成为恶兽第一集](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [樊振东无缘德国杯8强](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [常冰玉10-7击败世界第一赵心童夺冠](http://www.daogukj.com/5882217)
-- [邓紫棋与王嘉尔同框](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [常冰玉战胜赵心童首夺排名赛冠军](http://www.daogukj.com/0190432)
-- [金价暴跌之前有人直接清仓](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.daogukj.com/nzmqevzx/)
-- [《小杨有约29#》：陈泽](http://www.daogukj.com/qnzjxpsz/)
-- [12306回应乘客称二等座变无座](http://www.daogukj.com/7347029)
-- [户上隼辅回应3比2樊振东](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [被井柏然吻技演技迷住了](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [吉隆口岸沿途挂满衣物碎片](http://www.movie.hkepx.cn/xiju/8115054.htm)
-- [吉隆口岸小邬警官确认平安](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [您叫的骑手正忙 请稍后再拨](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [网友建议取消ETC 官方回应](http://www.daogukj.com/2641155)
+- [这三天请假难度堪比美国签证](http://www.daogukj.com/4141941)
+- [2026年世界杯葡萄牙队为什么始终让c罗担任首发中锋?教练看不出他状态水平下滑，应该换人吗?](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [去了一趟西班牙2.0（荒岛四兄弟篇）](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [15岁少年因大面积文身无法入学](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [旅客携带81支人血粪便样本入境被查](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [百万粉丝网红「松哥打虎」涉黑被抓，以其为首的涉黑恶犯罪组织被打掉，哪些信息值得关注？](http://www.daogukj.com/7265089)
+- [吉隆泥石流救灾发现新堰塞体](http://www.daogukj.com/3085948)
+- [男子被冤摸女子臀部妻子气愤](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [男子便利店碰到女子包被指摸臀](http://www.daogukj.com/jtbnzsng/)
+- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [跑了1200公里，我去给刘关张三兄弟上坟！](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [【独家】牧神记 第98集 杀新皇](http://www.daogukj.com/5882217)
+- [樊振东赛后情绪低落](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [国家动博馆强烈谴责父亲带娃玩标本](http://www.daogukj.com/0190432)
+- [16岁少女车祸离世 手机被人捡走刷机](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [如何看待工信部通报一致性检测典型案例，比亚迪一款插混车型因油耗过高上榜？](http://www.daogukj.com/nzmqevzx/)
+- [樊振东 2 比 3 惜败户上隼辅，其所在球队 1-3 不敌对手，无缘德国杯 8 强，如何评价他的表现？](http://www.daogukj.com/qnzjxpsz/)
+- [宝马5系 不到27万了](http://www.daogukj.com/7347029)
+- [小沈阳女儿新歌《WHY》MV上线](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [“来中国之前 我不知道什么叫和平”](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [青春芒果夜节目单](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [尼泊尔山洪已致675遇难2498失联](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
+- [如何看待孩子因为我没有给零花钱，为了一口零食放低姿态向同学乞讨，甚至喊同学做爸爸，孩子没骨气该不该打？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [世界破破烂烂，总有人缝缝补补](http://www.daogukj.com/2641155)
 - [一家三口候补车票，8 岁小孩被分到不同车厢致无奈退票，怎样能避免这种情况？购票机制还有哪些优化空间？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [官方通报博主称拔钉被以扬尘叫停](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，小邬警官确认平安，目前救援面临哪些难点？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [新能源汽车为什么难以实现修车自由](http://www.daogukj.com/3850819)
-- [AI赋能新电商发展](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [国家卫健委宣布白血病已非「不治之症」，多数患者可治愈，这一突破是如何实现的？背后有哪些医学原理？](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [《爱情公寓》官方六年首次换头像，主演频繁合体，引发「回归季」猜测，可能性有多大？](http://www.daogukj.com/9307696)
-- [全世界最爱开学之人](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [尼泊尔山洪已致675死2498失联](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [老叟戏顽童 白俄戏欧盟](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [奔驰、宝马发布短片讽刺速成车，对此你怎么看？](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [吉隆救援队驾冲锋舟穿S弯急流探路](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [黄景瑜疯狂拥抱宋亚东](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [和田由纪子赛后飙泪 疑似炮轰主帅](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [硬科技开始拯救商场了](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [百万粉丝网红「松哥打虎」涉黑被抓，以其为首的涉黑恶犯罪组织被打掉，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [比包贝尔回应先来的是他新剧](http://www.daogukj.com/6360237)
-- [中国足协辟谣不与安东尼奥续约](http://www.daogukj.com/7781714)
-- [14家央国企将开放超60亿条高价值数据](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [白岩松谈企业违规解约107名应届生](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [多地立法严控学生带手机入校](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [DQ冰激凌机器人员工比人慢4分钟](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [这5种常见蔬菜是抗炎高手](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [和小鬼，去新疆的沙漠里学唱跳！](http://www.movie.hkepx.cn/xiju/7034358.htm)
-- [吉隆泥石流为何救援难度极大](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [现在买入....一定爆赚！2026年10月新番导视！【泛式】](http://www.daogukj.com/nlksxqaw/)
+- [厄瓜多尔宣布全国进入红色警戒状态](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [全国中小学新教材将全部替换完成，对学生和教师带来哪些具体改变？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [国家动物博物馆强烈谴责](http://www.daogukj.com/3850819)
+- [西藏吉隆泥石流新闻发布会](http://www.movie.hkepx.cn/xiju/8710542.htm)
+- [吉隆口岸小邬警官确认平安](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [吉隆口岸27处建筑被夷为平地](http://www.daogukj.com/9307696)
+- [涉教师耻辱合影县是国家重点帮扶县，教师每天实时监测辍学人数，这项工作反映了当地教育面临哪些深层挑战？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [余承东：新三折叠业界最薄尺寸最大](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [如何评价腾讯刚刚发布的Hy4 preview？](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [罗家英称自己仅剩8年寿命](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [有钱的家庭该如何富养孩子](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [西藏泥石流已致16人遇难546人失联](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [金价暴跌之前有人直接清仓](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [吃自助餐的九大神队友！你属于哪一种？](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [谢婷婷为46岁谢霆锋庆生](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [七旬老人花5万做医美后精神抑郁](http://www.daogukj.com/6360237)
+- [尼泊尔泥石流冰川源头曝光？不实](http://www.daogukj.com/7781714)
+- [未来很难有投资1亿+的大片了](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [华为新三折叠](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [立瓶子挑战，相亲相爱~](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [初中孩子更需要父母接送上下学](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [常冰玉10-7击败世界第一赵心童夺冠](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [如何评价黄霄雲二巡演唱会《宇宙无敌号2.0》杭州首站？](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [金牌幼师嫁给了二级厨师](http://www.movie.hkepx.cn/xiju/0218818.htm)
+- [网传 PL-17 导弹 J-20 弹仓无法容纳，是真的吗？若属实，这是设计局限还是战略考量？](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [王一博征服西欧最高峰](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%BE%81%E6%9C%8D%E8%A5%BF%E6%AC%A7%E6%9C%80%E9%AB%98%E5%B3%B0)
+- [“世界最年轻国王”突然离世](https://www.baidu.com/s?wd=%E2%80%9C%E4%B8%96%E7%95%8C%E6%9C%80%E5%B9%B4%E8%BD%BB%E5%9B%BD%E7%8E%8B%E2%80%9D%E7%AA%81%E7%84%B6%E7%A6%BB%E4%B8%96&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7830578323bb3efe0358 -->
+<!-- content-fingerprint: 73431d9e352a9aa6523a -->

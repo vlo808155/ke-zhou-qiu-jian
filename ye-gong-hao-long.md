@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 尼日尔军方称逮捕多名企图兵变的士兵
+# 一个人，耗时18个月，2万元成本，手搓94分钟以刘慈欣小说《山》为故事原型的AI仿真人科幻电影
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6952811 · 更新：2026-08-30T08:22:41+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：295022 · 分类：影视剪辑 · 更新：2026-08-30T13:38:58+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“尼日尔军方称逮捕多名企图兵变的士兵”位列第 9 位，公开热度指标为 6952811。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“一个人，耗时18个月，2万元成本，手搓94分钟以刘慈欣小说《山》为故事原型的AI仿真人科幻电影”位列第 9 位，公开热度指标为 295022，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间8月29日，尼日尔国防部表示，该国国防与安全部队已成功挫败当天发生在首都尼亚美的兵变企图，多名参与叛乱的士兵被现场逮捕。
+来源公开摘要显示：从2025年2月开始启动创作，完全用业余时间制作，共耗时18个月。这个故事的原著是刘慈欣的短篇科幻《山》，是除《三体》之外我最喜欢的一部科幻小说作品，感谢AI，可以让我把它影视化。这18个月还经历了数轮AI视频技术的大升级，影片里现在还残留少部分上上上上个时代AI技术残留，实在改不过来了，整体不影响食用。这部电影的灵魂属于刘慈欣，如果喜欢，别忘三连ღ( ´･ᴗ･` )比心
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
 
 ## 相关热点
 
-- [尼泊尔山洪已致675死2498失联](lan-yu-chong-shu.md)
-- [吉隆救援队驾冲锋舟穿S弯急流探路](zi-xiang-mao-dun.md)
-- [如何看待辽宁中考小三门（生物学、地理、历史）不纳入总分，会带来哪些影响？](bei-gong-she-ying.md)
-- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](jing-gong-zhi-niao.md)
+- [余承东：新三折叠业界最薄尺寸最大](lan-yu-chong-shu.md)
+- [有钱的家庭该如何富养孩子](zi-xiang-mao-dun.md)
+- [医疗保障法 2027 年 1 月 1 日起施行，将给我们的生活带来哪些改变？](bei-gong-she-ying.md)
+- [《龙族：卡塞尔之门》x《新世纪福音战士》全新联动 | 世界余响](jing-gong-zhi-niao.md)
 
 ## 站内推荐
 
-- [请在5分钟内捡走你的开学道具... 笔记本电脑推荐2026](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [硬科技开始拯救商场了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [王一博征服西欧最高峰](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [官方通报博主称拔钉被以扬尘叫停](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [比包贝尔回应先来的是他新剧](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [《异环》角色实机战斗丨灵可](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [吃自助餐的九大神队友！你属于哪一种？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [“世界最年轻国王”突然离世](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [厄瓜多尔宣布全国进入红色警戒状态](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [七旬老人花5万做医美后精神抑郁](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [长大后先对什么祛魅了](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
-- [奔驰、宝马发布短片讽刺速成车，对此你怎么看？](http://www.daogukj.com/biwoqqwj/)
-- [官方通报博主称拔钉被以扬尘叫停](http://www.movie.hkepx.cn/xiju/2248691.htm)
-- [黄景瑜疯狂拥抱宋亚东](http://www.daogukj.com/0541941)
-- [《小杨有约29#》：陈泽](http://www.movie.hkepx.cn/xiju/2330971.htm)
-- [DQ冰激凌机器人员工比人慢4分钟](http://www.movie.hkepx.cn/movie/1952908.htm)
-- [樊振东 2 比 3 惜败户上隼辅，其所在球队 1-3 不敌对手，无缘德国杯 8 强，如何评价他的表现？](http://www.movie.hkepx.cn/xiju/7386608.htm)
-- [母亲扛50斤行李送女儿上学](http://www.daogukj.com/cwfgitul/)
-- [中国汽车何以全球圈粉](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
-- [尼泊尔一重灾区3天仅挖通道路50米](http://www.daogukj.com/3149137)
-- [吉隆口岸沿途挂满衣物碎片](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
-- [樊振东2比3户上隼辅](http://www.movie.hkepx.cn/movie/1545092.htm)
-- [尼泊尔山洪遇难人数升至 669 人、2426 人失联，目前当地情况如何？](http://www.movie.hkepx.cn/xiju/3608340.htm)
-- [和田由纪子赛后飙泪 疑似炮轰主帅](http://www.daogukj.com/7262388)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
-- [世界破破烂烂，总有人缝缝补补](http://www.daogukj.com/8314202)
-- [刚入警一年的女孩在吉隆口岸失联](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
-- [邓紫棋与王嘉尔同框](http://www.movie.hkepx.cn/xiju/5194753.htm)
-- [不奇怪吗？工业革命两百年来，只有十分之一国家完成工业化，其余永远完不成工业化，为什么？](http://www.movie.hkepx.cn/movie/0714674.htm)
-- [《爱情公寓》羽墨的角色为什么被放弃了？而悠悠却被保留下来？](http://www.movie.hkepx.cn/movie/7940067.htm)
-- [AI赋能新电商发展](http://www.movie.hkepx.cn/movie/6237029.htm)
-- [新能源汽车为什么难以实现修车自由](http://www.movie.hkepx.cn/movie/1586252.htm)
-- [《爱情公寓》官方六年首次换头像，主演频繁合体，引发「回归季」猜测，可能性有多大？](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
-- [王一博征服西欧最高峰](http://www.daogukj.com/0480738)
-- [涉教师耻辱合影县是国家重点帮扶县，教师每天实时监测辍学人数，这项工作反映了当地教育面临哪些深层挑战？](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
-- [如何评价黄霄雲二巡演唱会《宇宙无敌号2.0》杭州首站？](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
-- [火柴人 VS 我的世界 第四十集 苦力怕部族（Creeper Clan）](http://www.movie.hkepx.cn/movie/6914548.htm)
-- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
-- [孙千腰以下全是腿](http://www.daogukj.com/8595353)
-- [吉隆泥石流为何救援难度极大](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
-- [《下一个是谁》恐怖特辑——无限循环的寺庙](http://www.daogukj.com/gozdpjud/)
-- [吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，小邬警官确认平安，目前救援面临哪些难点？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
-- [国家卫健委宣布白血病已非「不治之症」，多数患者可治愈，这一突破是如何实现的？背后有哪些医学原理？](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
-- [博主街头清理地钉被劝阻 当地通报](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
-- [开学补作业现状](http://www.movie.hkepx.cn/movie/4558388.htm)
-- [小说男女主照进现实了](http://www.movie.hkepx.cn/movie/4205366.htm)
-- [15岁少年手臂大面积文身无法入学](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
-- [硬科技开始拯救商场了](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
-- [旅客携带81支人血粪便样本入境被查](http://www.daogukj.com/8939549)
-- [您叫的骑手正忙 请稍后再拨](http://www.daogukj.com/ixxuunfh/)
-- [14家央国企将开放超60亿条高价值数据](http://www.daogukj.com/2398854)
-- [尼泊尔山洪已致675死2498失联](http://www.movie.hkepx.cn/movie/0490118.htm)
-- [剧里看到朴允浩整容成柳俊烈](http://www.daogukj.com/utabxjrg/)
-- [老叟戏顽童 白俄戏欧盟](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
-- [全世界最爱开学之人](http://www.daogukj.com/uqvpybnb/)
-- [如何看待辽宁中考小三门（生物学、地理、历史）不纳入总分，会带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
-- [辛贝特曾将以总理长子从美国救回](http://www.movie.hkepx.cn/xiju/5297963.htm)
-- [吉隆口岸大楼只剩钢筋骨架](http://www.daogukj.com/4768730)
-- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
-- [耗时一年，救赎相信光的小女孩，完整后续来了！](http://www.daogukj.com/6807039)
+- [白岩松评临汾公益广告人物形象异常](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
+- [罗家英称自己仅剩8年寿命](http://www.daogukj.com/biwoqqwj/)
+- [厄瓜多尔宣布全国进入红色警戒状态](http://www.movie.hkepx.cn/xiju/2248691.htm)
+- [西藏泥石流已致16人遇难546人失联](http://www.daogukj.com/0541941)
+- [樊振东 2 比 3 惜败户上隼辅，其所在球队 1-3 不敌对手，无缘德国杯 8 强，如何评价他的表现？](http://www.movie.hkepx.cn/xiju/2330971.htm)
+- [初中孩子更需要父母接送上下学](http://www.movie.hkepx.cn/movie/1952908.htm)
+- [西藏泥石流已致16死546失联，泥石流灾害系因尼泊尔一条冰川断裂发生冰岩崩，还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7386608.htm)
+- [方桃子登COSMO封面引争议](http://www.daogukj.com/cwfgitul/)
+- [各方力量持续奋战西藏吉隆救灾一线](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
+- [鬼鬼女儿都这么大了](http://www.daogukj.com/3149137)
+- [青春芒果夜节目单](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
+- [多地立法严控学生带手机入校](http://www.movie.hkepx.cn/movie/1545092.htm)
+- [孙千腰以下全是腿](http://www.movie.hkepx.cn/xiju/3608340.htm)
+- [金价暴跌之前有人直接清仓](http://www.daogukj.com/7262388)
+- [如何看待工信部通报一致性检测典型案例，比亚迪一款插混车型因油耗过高上榜？](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
+- [如何看待辽宁中考小三门（生物学、地理、历史）不纳入总分，会带来哪些影响？](http://www.daogukj.com/8314202)
+- [这三天请假难度堪比美国签证](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
+- [樊振东赛后情绪低落](http://www.movie.hkepx.cn/xiju/5194753.htm)
+- [国防科大学长霸气迎新场面硬核](http://www.movie.hkepx.cn/movie/0714674.htm)
+- [吉隆口岸大楼只剩钢筋骨架](http://www.movie.hkepx.cn/movie/7940067.htm)
+- [西藏吉隆泥石流新闻发布会](http://www.movie.hkepx.cn/movie/6237029.htm)
+- [国家动物博物馆强烈谴责](http://www.movie.hkepx.cn/movie/1586252.htm)
+- [吉隆口岸27处建筑被夷为平地](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
+- [“世界最年轻国王”突然离世](http://www.daogukj.com/0480738)
+- [女孩游泳减肥身上冒出20多个疣](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
+- [南京三胞胎同时考上名校](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
+- [阿尔瓦雷斯传出身患抑郁，一周绝食，多次缺席训练，坚定想要转会巴塞罗那，你如何评价这一系列操作？](http://www.movie.hkepx.cn/movie/6914548.htm)
+- [《龙族：卡塞尔之门》x《新世纪福音战士》全新联动 | 世界余响](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
+- [15岁少年因大面积文身无法入学](http://www.daogukj.com/8595353)
+- [金牌幼师嫁给了二级厨师](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
+- [客观评价《凡人修仙传》第 189 集，是否封神？](http://www.daogukj.com/gozdpjud/)
+- [全国中小学新教材将全部替换完成，对学生和教师带来哪些具体改变？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
+- [吉隆口岸小邬警官确认平安](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
+- [《小杨有约29#》：陈泽](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
+- [立志成为恶兽第一集](http://www.movie.hkepx.cn/movie/4558388.htm)
+- [吉隆泥石流救灾发现新堰塞体](http://www.movie.hkepx.cn/movie/4205366.htm)
+- [您叫的骑手正忙 请稍后再拨](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
+- [吃自助餐的九大神队友！你属于哪一种？](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
+- [冉莹颖爸爸再婚三次为生儿子](http://www.daogukj.com/8939549)
+- [如何看待孩子因为我没有给零花钱，为了一口零食放低姿态向同学乞讨，甚至喊同学做爸爸，孩子没骨气该不该打？](http://www.daogukj.com/ixxuunfh/)
+- [未来很难有投资1亿+的大片了](http://www.daogukj.com/2398854)
+- [余承东：新三折叠业界最薄尺寸最大](http://www.movie.hkepx.cn/movie/0490118.htm)
+- [西藏吉隆泥石流灾害救援为啥这么难](http://www.daogukj.com/utabxjrg/)
+- [如何评价腾讯刚刚发布的Hy4 preview？](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
+- [涉教师耻辱合影县是国家重点帮扶县，教师每天实时监测辍学人数，这项工作反映了当地教育面临哪些深层挑战？](http://www.daogukj.com/uqvpybnb/)
+- [医疗保障法 2027 年 1 月 1 日起施行，将给我们的生活带来哪些改变？](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
+- [吴敬平回应樊振东输户上隼辅](http://www.movie.hkepx.cn/xiju/5297963.htm)
+- [西藏泥石流致16人遇难546人失联](http://www.daogukj.com/4768730)
+- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
+- [百万粉丝网红「松哥打虎」涉黑被抓，以其为首的涉黑恶犯罪组织被打掉，哪些信息值得关注？](http://www.daogukj.com/6807039)
 
 </details>
 
 ## 原始来源
 
-- [尼日尔军方称逮捕多名企图兵变的士兵](https://www.baidu.com/s?wd=%E5%B0%BC%E6%97%A5%E5%B0%94%E5%86%9B%E6%96%B9%E7%A7%B0%E9%80%AE%E6%8D%95%E5%A4%9A%E5%90%8D%E4%BC%81%E5%9B%BE%E5%85%B5%E5%8F%98%E7%9A%84%E5%A3%AB%E5%85%B5&sa=fyb_news&rsv_dl=fyb_news)
+- [一个人，耗时18个月，2万元成本，手搓94分钟以刘慈欣小说《山》为故事原型的AI仿真人科幻电影](https://b23.tv/BV1o74y6XEcM)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6c40a60d60108cf49d76 -->
+<!-- content-fingerprint: 0178df88c36736b7f84b -->
