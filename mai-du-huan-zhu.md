@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 中国女排无缘亚锦赛冠军，赛后很多网友呼吁召回朱婷，为什么中国女排不召回朱婷？一个朱婷能解决所有问题吗？
+# 《重案六组：消失的警号》开播
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：118 万热度 · 分类：问答 · 更新：2026-08-31T19:44:59+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6953384 · 更新：2026-09-01T02:11:17+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“中国女排无缘亚锦赛冠军，赛后很多网友呼吁召回朱婷，为什么中国女排不召回朱婷？一个朱婷能解决所有问题吗？”位列第 9 位，公开热度指标为 118 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“《重案六组：消失的警号》开播”位列第 9 位，公开热度指标为 6953384。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：[图片]
+来源公开摘要显示：8月31日19:30，《重案六组：消失的警号》登陆北京卫视品质剧场，张一山、李玉洁、郭晓东领衔主演。该剧讲述老版故事前十年，九十年代末重案六组成立前夕，青年曾克强、季洁等刑警从磨合走向默契的成长故事。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [我有不能输的理由](ye-gong-hao-long.md)
-- [9月机票价格跳水](lan-yu-chong-shu.md)
-- [爱在无尽夏不让拍路透了](zi-xiang-mao-dun.md)
-- [华为上半年营收4678亿元](bei-gong-she-ying.md)
+- [早春晴朗25.6](ye-gong-hao-long.md)
+- [武器里面有哪些违反直觉的设计？](lan-yu-chong-shu.md)
+- [100年被翻拍3次，这就是经典的魅力！战争给世界带来了什么？](zi-xiang-mao-dun.md)
+- [“外卖员向饮料里加百草枯”系谣言](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [年薪60+万，一手提拔我的领导跟公司大老板有分歧，要我辞职跟他去创业，我该怎么办？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [内存暴涨的当下，2026 年开学装机是 16GB 凑合用还是咬牙上 32GB？现在买是不是高位接盘？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [全程高能！队友接连失踪？活着并逃离这里！！！「逃离疯人院」](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [单依纯演唱会造型被吐槽像窗帘](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [无畏首播明天见](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [中小学开学选班主任真的「堪比泰国征兵现场」吗？为什么年轻人不爱当班主任了？班主任的一天都要干啥？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [李炮儿在李炮儿模仿大赛中获得了第二名](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [包贝尔因出轨风波新剧被除名](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [王俊杰替补拿下11分5篮板1抢断](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [在家吃火锅，怎样才能做出比店里还好吃的味道？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [多所高校发布本科毕业论文抽检通知，将对问题论文指导教师追责，此举将如何影响高校教师的论文指导方式？](http://www.daogukj.com/9193901)
-- [“子涵梓萱”的时代已经过去](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [9图读懂上合组织峰会](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [罢黜百官](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [罗永浩再怒斥电视机厂商](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [猫狗超燃大乱斗！](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [内存暴涨的当下，2026 年开学装机是 16GB 凑合用还是咬牙上 32GB？现在买是不是高位接盘？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [官方回应“取消ETC”读懂车主真诉求](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [马嘉祺鸡蛋歌叫冰箱没有鸡蛋](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [9月机票价格跳水](http://www.daogukj.com/1877942)
-- [100年被翻拍3次，这就是经典的魅力！战争给世界带来了什么？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [你在等iPhone18还是折叠](http://www.daogukj.com/nuqwxjlx/)
-- [单依纯演唱会造型被吐槽像窗帘](http://www.daogukj.com/4054231)
-- [网友随手点看外卖后厨监控惊呆了](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [阿里巴巴 2027 财年第一季度营收 2689.5 亿元，阿里云外部商业化收入增长 45%，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [只花 200 块，如何在二手平台凑一套装备体面开学？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [多岗位笔试出现高分断层 白城通报](http://www.daogukj.com/9193901)
+- [中国女排无缘亚锦赛冠军，赛后很多网友呼吁召回朱婷，为什么中国女排不召回朱婷？一个朱婷能解决所有问题吗？](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [20项措施推动消费扩容升级](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [子涵梓萱的时代已成过去式](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [老人2天被拔除21颗牙？区卫健委回应](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [郑钦文美网首轮](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [李炮儿在李炮儿模仿大赛中获得了第二名](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [带精神小妹买衣服，并回复评论区的一些评论](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [为什么这个世界上存在有电影院，但没有游戏院的说法呢？](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [武器里面有哪些违反直觉的设计？](http://www.daogukj.com/1877942)
+- [出生人口连锁反应](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [美军袭击伊朗拉腊克岛，这是美军一个月来首次对伊采取军事行动，伊方誓言报复，本次冲突会升级吗？](http://www.daogukj.com/nuqwxjlx/)
+- [王俊杰替补拿下11分5篮板1抢断](http://www.daogukj.com/4054231)
+- [“香港大药房”不卖药也不在香港](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [王俊杰怒夸杨瀚森：NBA超级高水平](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [两小时演唱会休息了80分钟](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
 - [穿越原始社会必备技能之制作——石臼](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [王鸥还有7部待播作品](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [尼泊尔泥石流灾害已致 903 人遇难，4247 人失联，目前当地救援情况如何？](http://www.daogukj.com/ygpoeeya/)
-- [吉隆口岸唯一能看到的建筑](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [演员王鸥：我目前独自养育一个孩子](http://www.daogukj.com/9246627)
-- [在拼多多找到了适合军训的防晒](http://www.daogukj.com/2490072)
-- [网红水果店两块榴莲370元](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [田启文曝周星驰主动请老友吃饭](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [纽北老炮，让我重新理解了操控](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [特别的一课](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [无畏首播明天见](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [吃饭一定要去端菜，自己爱吃的菜全放跟前！](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [战友 我们等你们回来签收快递](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [日本男星回应电车内性侵高中女生](http://www.daogukj.com/ygpoeeya/)
+- [好直观的降本增效](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [沈阳高端海鲜自助，53°飞天茅台，澳洲龙虾，帝王蟹，澳洲黑金鲍不限量！还有两个皇帝蟹？！](http://www.daogukj.com/9246627)
+- [悟透了什么道理之后让你的人生越来越顺了？](http://www.daogukj.com/2490072)
+- [这也能装？给车内塞一套工作站！小米澎程N90 Max用车体验！](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [为什么建议35岁就开始控糖](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [早春晴朗](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [演员王鸥发文称正独自养育一个孩子，对此你有哪些祝福？](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [在家吃火锅，怎样才能做出比店里还好吃的味道？](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [弄了口大钢牙](http://www.movie.hkepx.cn/xiju/3845334.htm)
 - [新版《国防动员法》2026 年 10 月 1 日实施，哪些信息值得关注？会带来什么影响？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [装腔启示录](http://www.daogukj.com/8715491)
-- [手表≠缩小手机！实测 3 款鸿蒙穿戴应用，拆解语音记录、抬腕跟练背后的开发逻辑](http://www.daogukj.com/4788107)
-- [我国古代人头上为何一定要戴个东西？](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [餐饮店用来「过油」的油，炸了那么多不同种类的食物，再用来炒菜难道不会串味吗?](http://www.daogukj.com/8715491)
+- [三年之期已到，恭迎世一上归位！【第6集】](http://www.daogukj.com/4788107)
+- [索要36万“带孙费” 她把儿子告了](http://www.movie.hkepx.cn/movie/0622898.htm)
 - [尼泊尔一侧失联中国公民近百人](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [老师有必要自掏腰包给学生准备物质奖励吗？什么样的激励方式是最有效的？](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [大家好这是我第一条吃播视频 不好意思有点寒酸](http://www.daogukj.com/3872248)
-- [王鸥 我目前独自养育一个孩子](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [爱在无尽夏不让拍路透了](http://www.daogukj.com/sguhnydl/)
-- [美军袭击伊朗拉腊克岛，这是美军一个月来首次对伊采取军事行动，伊方誓言报复，本次冲突会升级吗？](http://www.daogukj.com/6123602)
-- [华为上半年营收4678亿元](http://www.daogukj.com/7243934)
-- [如果让专业厨师推荐私藏小店他们会怎么推荐？](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [尼泊尔泥石流已致903遇难4247失联](http://www.daogukj.com/fgkxwaik/)
-- [多家医院通知解聘](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [伊朗总统：面对侵略不会坐视不理](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [九成美考研上岸了](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [边检民警进吉隆口岸搜救 女友也被埋](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [张伟丽入选UFC名人堂](http://www.daogukj.com/4800229)
-- [两小时演唱会休息了80分钟](http://www.daogukj.com/1329201)
-- [为什么在OpenAI之后，美国的创业公司只有Anthropic拿出了一线的大模型？](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [抢通生命通道最后一公里](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [全程高能！队友接连失踪？活着并逃离这里！！！「逃离疯人院」](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [演员王鸥：我目前独自养育一个孩子](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [中国影坛最担心的事来了](http://www.daogukj.com/3872248)
+- [他，凭什么成为中华民国的国父？【历史调研室105】](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [100年被翻拍3次，这就是经典的魅力！战争给世界带来了什么？](http://www.daogukj.com/sguhnydl/)
+- [【我在现代当幽差】EP02 神仙？妖怪？谢谢【UP动画】](http://www.daogukj.com/6123602)
+- [“外卖员向饮料里加百草枯”系谣言](http://www.daogukj.com/7243934)
+- [吉隆口岸唯一能看到的建筑](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [玄幻小说中的那些号称“全知全能”的 BOSS 为什么不在早期就消灭掉主角?](http://www.daogukj.com/fgkxwaik/)
+- [日本男星电车内性侵女高中生被捕](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [尼泊尔泥石流灾害已致951人遇难](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [“佯作畏生惧死，身担太行脊梁”【赤伶DJ-变速】【少年脊梁の小曲】](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [特朗普在加拿大的实名认证地标要没了](http://www.daogukj.com/4800229)
+- [女子工作6年多被迫离职，最后半个月工资仅55元，被踢出845个工作群，维权历经近一年，为什么这么难？](http://www.daogukj.com/1329201)
+- [于东来发文力挺韩红](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [在足球或篮球等项目中，有没有球员在俱乐部只是蓝领角色，但在国家队却是绝对核心的案例？](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [包贝尔因出轨风波新剧被除名](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [中国女排无缘亚锦赛冠军，赛后很多网友呼吁召回朱婷，为什么中国女排不召回朱婷？一个朱婷能解决所有问题吗？](https://www.zhihu.com/question/2077683343475176196)
+- [《重案六组：消失的警号》开播](https://www.baidu.com/s?wd=%E3%80%8A%E9%87%8D%E6%A1%88%E5%85%AD%E7%BB%84%EF%BC%9A%E6%B6%88%E5%A4%B1%E7%9A%84%E8%AD%A6%E5%8F%B7%E3%80%8B%E5%BC%80%E6%92%AD&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 03d537ccdfa01ea642b8 -->
+<!-- content-fingerprint: dcf64521b23b13ad7f9a -->
