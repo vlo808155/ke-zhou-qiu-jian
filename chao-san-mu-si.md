@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 包贝尔因出轨风波新剧被除名
+# 带精神小妹买衣服，并回复评论区的一些评论
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6751874 · 更新：2026-09-01T09:42:37+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：600752 · 分类：日常 · 更新：2026-09-01T14:47:43+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“包贝尔因出轨风波新剧被除名”位列第 11 位，公开热度指标为 6751874。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“带精神小妹买衣服，并回复评论区的一些评论”位列第 11 位，公开热度指标为 600752，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月31日，包贝尔因出轨风波新剧《囧徒之预演告别》被除名，海报署名紧急换成苏训辉，其妻包文婧仍在特别出演名单中。资方昨日定档今日赶紧播，生怕剧集受牵连。
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [高梓淇恋情](dui-niu-tan-qin.md)
-- [中国男篮两连胜暂列小组第三](mang-ren-mo-xiang.md)
-- [济南一小区选择不要物业公司，居民自己管自己，一户一天一块钱，怎样看待这种方式？有哪些利弊？](yuan-mu-qiu-yu.md)
-- [南方开学 vs 北方开学](sha-ji-qu-luan.md)
+- [失踪几十年遗体在冰川出现 麻烦大了](dui-niu-tan-qin.md)
+- [黄磊回应不再参加向往的生活](mang-ren-mo-xiang.md)
+- [于东来痛批明星扎堆直播带货](yuan-mu-qiu-yu.md)
+- [吉隆口岸未来应该如何重建以应对可能的地质风险？](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
-- [当我假扮成神秘大佬，去发布会… 结果！！！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [为什么说，现在是星铁最适合回坑的版本](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [江苏省委：坚决拥护党中央决定](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [当你没有价值的时候别人还会在乎你吗？在别人眼里的价值是什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [当广告挡住关键时刻，可能就是生死之间](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [鸿蒙这些底层套件，才是穿戴App的“开挂”密码](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [南方开学 vs 北方开学](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [乡村大集，乡村打铁，感受不一样的打击乐](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [当你穿进老钱班34](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [库克正式卸任苹果CEO](http://www.daogukj.com/4141941)
-- [子宫状态好的人经期有5个特点](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [高梓淇恋情](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [暑期结束 中国游客都去哪玩了](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [尼泊尔泥石流灾害已致 974 人遇难，4247 人失联，目前当地救援情况如何？](http://www.daogukj.com/7265089)
-- [韩警方公开杀害中国女生嫌犯正面照](http://www.daogukj.com/3085948)
-- [“外卖员向饮料里加百草枯”系谣言](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [中国男篮两连胜暂列小组第三](http://www.daogukj.com/jtbnzsng/)
-- [三年之期已到，恭迎世一上归位！【第6集】](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [南方开学 vs 北方开学](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [李炮儿在李炮儿模仿大赛中获得了第二名](http://www.daogukj.com/5882217)
-- [【我在现代当幽差】EP02 神仙？妖怪？谢谢【UP动画】](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [华为小米荣耀多款手机集体调价](http://www.daogukj.com/0190432)
-- [一家16口包中巴送新生上大学](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [《釜山行》2.0？当丧尸学会进化，比人类还团结，我们还能有胜算吗？延尚昊导演科幻惊悚片《群体》](http://www.daogukj.com/nzmqevzx/)
-- [济南一小区选择不要物业公司，居民自己管自己，一户一天一块钱，怎样看待这种方式？有哪些利弊？](http://www.daogukj.com/qnzjxpsz/)
-- [为何不炸开一条泄流通道](http://www.daogukj.com/7347029)
-- [胡军给陈丽君当助理处得像父女](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [横店竖屏短剧火爆海外](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [尼泊尔泥石流974人遇难](http://www.movie.hkepx.cn/xiju/8115054.htm)
-- [多款手机正式涨价](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [国内首部 AIGC 长剧《后西游记》开播，登陆湖南卫视黄金档，好看吗？会对影视行业有怎样的影响？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [王之告别！梅西退出阿根廷国家队！20年的国家队生涯划上句号！](http://www.daogukj.com/2641155)
-- [如何看待现在县城的中学逐渐衰弱？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [恩佐长文](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [内存涨价](http://www.daogukj.com/4141941)
+- [医学生/医生如何在30/35岁前实现年薪100/150万？](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [鸿蒙这些底层套件，才是穿戴App的“开挂”密码](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [失踪几十年遗体在冰川出现 麻烦大了](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [离职员工改价8元买走100克金条被判刑](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [吉隆口岸国门所在地仅剩地基](http://www.daogukj.com/7265089)
+- [男子花千万33年走遍全球233个国家](http://www.daogukj.com/3085948)
+- [车越重越安全系谣言](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [黄磊回应不再参加向往的生活](http://www.daogukj.com/jtbnzsng/)
+- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [吉隆口岸未来应该如何重建以应对可能的地质风险？](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [第一期（上）：败走华容道 关羽义释曹操【时差五小时3】](http://www.daogukj.com/5882217)
+- [医生称开学前已接诊大量老年病孩子](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [杨瀚森倒地后被自家球迷拿球砸](http://www.daogukj.com/0190432)
+- [这是个辅助万豪！？](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [吉隆救援为何不直接炸出泄流通道](http://www.daogukj.com/nzmqevzx/)
+- [于东来痛批明星扎堆直播带货](http://www.daogukj.com/qnzjxpsz/)
+- [一个年级90个班？多地初中现超大校额](http://www.daogukj.com/7347029)
+- [横漂短剧女演员：不让家人看AI短剧](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [淘宝五金冠女装老店突然闭店](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [深圳校服真香](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [抖音推荐 难看](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
+- [官方通报女子被踢出 845 个群被迫离职，用人单位已履行判决，事件中暴露的问题该如何有效解决？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [特斯拉在港澳推出更平价版 Model3，最低售价不足18万元，这个价格竞争力如何？会有人愿意买单吗？](http://www.daogukj.com/2641155)
+- [华为、小米、荣耀等手机品牌正式涨价，涨幅均超 200 元，最高涨千元，将对用户及手机市场带来哪些影响？](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [广安.第二顿 厨子探店¥33](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
 - [如何评价凡人修仙传189集争议巨大，对比177集还愿意改片，这次官方零公开回应，不修改成片，冷处理？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [孙千飞机上收到空姐的信](http://www.daogukj.com/3850819)
-- [20项措施推动消费扩容升级](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [有些昆虫翅膀比身体短那么多为什么也能飞？](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [喜马拉雅冰川消融加速65%](http://www.daogukj.com/9307696)
-- [《倚天屠龙记》结尾，金庸为什么给杨逍一句“年老德薄”的评语？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [百度完成双重主要上市](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [三国杀里八卦阵和仁王盾哪个比较实用一点?](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [演员王鸥发文称正独自养育一个孩子，对此你有哪些祝福？](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [敖瑞鹏和孙千领奖像是在走T台](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [郑钦文终结柳托娃9连胜 对手被打哭](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [尼泊尔一侧失联中国公民近百人](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [带精神小妹买衣服，并回复评论区的一些评论](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [选举不如预期辞去党主席？郑丽文回应](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [当 AI 成为我们的「学习搭子」，学习是变得更容易，还是更困难？](http://www.daogukj.com/6360237)
-- [上汽大众ID. ERA 9X山城实战，Momenta R7世界模型能扛得住吗？](http://www.daogukj.com/7781714)
-- [当你没有价值的时候别人还会在乎你吗？在别人眼里的价值是什么？](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [栾念 该死的好看](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [漂亮的恶意01|误入充满恶意的顶级财阀校园，川渝转学生表示，她真的只想好好学习！](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [郑钦文终结柳托娃9连胜](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [女子工作6年多被迫离职，最后半个月工资仅55元，被踢出845个工作群，维权历经近一年，为什么这么难？](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [AI小鸭机器人24小时售260万美元](http://www.movie.hkepx.cn/xiju/7034358.htm)
-- [美国炸鸡巨头中国首店开业](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.daogukj.com/nlksxqaw/)
+- [“出现大量1折票” 机票价格降了](http://www.daogukj.com/3850819)
+- [救援核心区已有基本通信保障](http://www.movie.hkepx.cn/xiju/8710542.htm)
+- [月经3天和月经7天哪一个更健康](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [孙怡女儿都这么大了](http://www.daogukj.com/9307696)
+- [一场没有刀郎的演唱会为何让人动容](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [尼泊尔泥石流灾害遇难者已逾千人](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [为什么教堂没有功德箱？那教堂的收入从哪里来？](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [女主播男网友性行为后各自报警](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [尚之桃吻栾念的背](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [网红曹奶奶离世](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [女子被踢845个群被迫离职 当地通报](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [和龙龙录一次猜英雄。太好玩了](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [深圳校服 去商场自己买](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [吃饭一定要去端菜，自己爱吃的菜全放跟前！](http://www.daogukj.com/6360237)
+- [漂亮的恶意01|误入充满恶意的顶级财阀校园，川渝转学生表示，她真的只想好好学习！](http://www.daogukj.com/7781714)
+- [当你穿进老钱班34](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [抖音 误入中老年频道](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [李炮儿在李炮儿模仿大赛中获得了第二名](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [披荆斩棘二公小考](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [美航母抵达前 泰国警方大力扫黄](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [尼泊尔一侧失联中国公民近百人](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [井柏然的吻戏是弯腰往上亲](http://www.movie.hkepx.cn/xiju/0218818.htm)
+- [手机很贵的时代已经全面到来了吗](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [包贝尔因出轨风波新剧被除名](https://www.baidu.com/s?wd=%E5%8C%85%E8%B4%9D%E5%B0%94%E5%9B%A0%E5%87%BA%E8%BD%A8%E9%A3%8E%E6%B3%A2%E6%96%B0%E5%89%A7%E8%A2%AB%E9%99%A4%E5%90%8D&sa=fyb_news&rsv_dl=fyb_news)
+- [带精神小妹买衣服，并回复评论区的一些评论](https://b23.tv/BV1swt86hE64)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ae692d28e704a355fed0 -->
+<!-- content-fingerprint: b1058d11ed75e2d8b805 -->
