@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？
+# 尼泊尔泥石流已致1118死4858失联
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：122 万热度 · 分类：问答 · 更新：2026-09-02T12:49:54+08:00
+> 来源：今日头条热榜 · 排名：第 11 位 · 热度：3671511 · 更新：2026-09-02T17:12:14+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？”位列第 11 位，公开热度指标为 122 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“尼泊尔泥石流已致1118死4858失联”位列第 11 位，公开热度指标为 3671511。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：美东时间1日，美军对伊朗境内的伊朗伊斯兰革命卫队目标发动新一轮打击，伊朗南部沿海多地遭袭。 袭击发生后，伊朗方面发起反击，袭击地区内美军基地，并击落一架美军MQ-9无人机。伊方称，将让美国为袭击付出沉重代价。 美国总统特朗普在社交媒体发文称，如果伊朗对此次打击进行报复，美国将再次进行“更猛烈、更高级别”的打击。更多资讯请下载央视新闻客户端
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [绝活](han-dan-xue-bu.md)
-- [深圳校服为何让全网感叹真香](qi-ren-you-tian.md)
-- [张继科带课一个半小时25元](chao-san-mu-si.md)
-- [开学了这些谣言家长要警惕](dui-niu-tan-qin.md)
+- [美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？](han-dan-xue-bu.md)
+- [“修仙也爱拍照”](qi-ren-you-tian.md)
+- [不满舍友排名2600 排名260学生要退学](chao-san-mu-si.md)
+- [孙艺珍玄彬儿子都这么大了](dui-niu-tan-qin.md)
 
 ## 站内推荐
 
-- [花儿与少年2026官宣](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [花儿与少年8八家客户](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [苹果市值一夜飙升超8000亿元](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [为什么211越来越不被人当成名校了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [我养的牛里混入了奇怪的东西！找到并击毙它！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [反中乱港分子黄之锋当庭认罪](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [国台办回应郑丽文向西藏灾区捐款](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [普京：俄美情报部门接触从未中断](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [雷军晒小米18 Fold真机](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [有网友表示很多医院门诊一号难求，但仍有三甲医院出现裁员现象，医院爆满只是假象吗？为啥医院会有经营困难？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [39岁抗癌博主芳芳离世](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
-- [英国为何执着于援助乌克兰](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
+- [浙江遭遇“隔山打牛式”特大暴雨](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
+- [宇树机器狗隐秘灰产链曝光](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
 - [失联人员深埋巨石和淤泥之下](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
-- [《明日方舟》干员「结城理」技能展示PV](http://www.movie.hkepx.cn/movie/5991338.htm)
-- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](http://www.daogukj.com/lxoougkn/)
-- [我养的牛里混入了奇怪的东西！找到并击毙它！](http://www.daogukj.com/8326428)
-- [《异环》灵可角色PV丨宇宙的频段](http://www.movie.hkepx.cn/xiju/5072880.htm)
-- [《明日方舟：终末地》提弗洛斯EP - Fragmented Dreams](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
-- [如何看待Anthropic全面开放Claude Fable 5.1和Mythos 5.1？有哪些亮点？](http://www.daogukj.com/1022614)
-- [多所高校宣布中秋、国庆连放13天，称「避免学生反复往返耗费路费、体力」，如何看待这一做法？值得普及吗？](http://www.movie.hkepx.cn/xiju/7621812.htm)
-- [博主芳芳离世 曾众筹止痛药](http://www.movie.hkepx.cn/movie/2413887.htm)
-- [老款手机集体涨价](http://www.movie.hkepx.cn/xiju/7532931.htm)
-- [张继科带课一个半小时25元](http://www.daogukj.com/kbhgllhh/)
-- [GPT-6 灰测 demo 刷屏，预计在周四发布，你对这款 AI 模型有哪些期待？](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
-- [温州多地紧急通知：停课一天](http://www.daogukj.com/1222828)
-- [有个人定制了几万只右脚的鞋，这是不是什么圈套？](http://www.daogukj.com/ttvulxwh/)
-- [我国电力供给迎来新格局](http://www.movie.hkepx.cn/xiju/9490112.htm)
-- [国台办回应郑丽文向西藏灾区捐款](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
-- [大叔2600元买空调发现是8年前产品](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
-- [第一次带团队，总感觉下属不听话怎么办？](http://www.daogukj.com/qxdtupzr/)
-- [8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？](http://www.movie.hkepx.cn/xiju/3795229.htm)
-- [俄罗斯人拿人民币在黑河夜市疯狂扫货](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
-- [兵线全被卡住了，但这样我防御塔就安全了](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
-- [井柏然对花少2原班人马拍剧否定三连](http://www.daogukj.com/8473621)
-- [吉隆口岸核心区域救援通道已抢通](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
-- [现在网上有一种观点，给孩子补课不如把钱留着等孩子长大了给他，你怎么看？](http://www.movie.hkepx.cn/xiju/0754538.htm)
-- [普京硬核回应俄日关系恶化](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
-- [这制作水平，当C忍是不是太屈才了](http://www.daogukj.com/nddpfxtw/)
-- [徐州12345涌入万件演唱会诉求](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
-- [巴塞罗那的小偷把我带到了欧洲，让我在纽北被围了起来](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
-- [“我现在被撞了，你意思是我活该吗？”女子骑电动自行车横穿机动车道，交警：全责！](http://www.daogukj.com/0923785)
-- [跟任何人相处都大大方方的秘诀](http://www.daogukj.com/ytapmyxr/)
-- [重型机械已抵达吉隆口岸大楼](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
-- [高圆圆：最好我先走赵又廷收拾后续](http://www.daogukj.com/3735760)
-- [乘客被打后公开打人者信息 法院判了](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
-- [“药中茅台”片仔癀跌落神坛](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
-- [星宇股份董事长称深刻反省真诚道歉](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
-- [于东来晒胖东来业绩，本年累计销售额达 195.15 亿元，同比增长 26.98%，如何评价这个成绩？](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
-- [闪婚获近千万房产99%份额离婚得50万](http://www.daogukj.com/0437875)
-- [原来银行卡上的金色卡片是真金](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
-- [把公司当成主题乐园](http://www.movie.hkepx.cn/xiju/4010771.htm)
-- [有网友表示很多医院门诊一号难求，但仍有三甲医院出现裁员现象，医院爆满只是假象吗？为啥医院会有经营困难？](http://www.daogukj.com/cvgkgyqv/)
-- [这届学生的名字都很个性](http://www.daogukj.com/afffhqsf/)
-- [加拿大对美发动「精准关税战」，以龙虾和奶酪作武器，这波操作能影响美国中期选举吗？](http://www.movie.hkepx.cn/movie/4359740.htm)
-- [微信新增2个功能](http://www.daogukj.com/zaudsbpz/)
-- [西西弗斯推的石头，居然是孙悟空......【AI全民制作人】#SpecialForAAIFF](http://www.daogukj.com/riicnlnn/)
-- [花儿与少年8八家客户](http://www.movie.hkepx.cn/movie/3461436.htm)
-- [32岁美国银行副总裁时代广场被刺身亡](http://www.movie.hkepx.cn/xiju/6388091.htm)
-- [孔绍逊任甘肃省代省长](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
-- [G216全线抢通](http://www.daogukj.com/9288361)
+- [《异环》灵可角色PV丨宇宙的频段](http://www.movie.hkepx.cn/movie/5991338.htm)
+- [炊哥生日加更一期爆蛋炒饭](http://www.daogukj.com/lxoougkn/)
+- [有网友表示很多医院门诊一号难求，但仍有三甲医院出现裁员现象，医院爆满只是假象吗？为啥医院会有经营困难？](http://www.daogukj.com/8326428)
+- [男子去提醒邻居逃生 自己没能逃出](http://www.movie.hkepx.cn/xiju/5072880.htm)
+- [光伏装机超煤电 电力供给迎新格局](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
+- [开学了这些谣言家长要警惕](http://www.daogukj.com/1022614)
+- [为什么211越来越不被人当成名校了？](http://www.movie.hkepx.cn/xiju/7621812.htm)
+- [⚡买瓜史上第一混乱⚡](http://www.movie.hkepx.cn/movie/2413887.htm)
+- [戴森牙刷 不坑穷人](http://www.movie.hkepx.cn/xiju/7532931.htm)
+- [不满舍友排名2600 排名260学生要退学](http://www.daogukj.com/kbhgllhh/)
+- [家长投诉老师婚姻状况](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
+- [泥石流救援进入核心区 这一幕泪目](http://www.daogukj.com/1222828)
+- [皮鞋大王奥康国际四年亏 9 亿，红蜻蜓连年亏损，为啥中国男人不爱买皮鞋了？](http://www.daogukj.com/ttvulxwh/)
+- [比亚迪 2026 年 8 月销量超过 44 万台，同比增长 17.84%，如何评价这一成绩？](http://www.movie.hkepx.cn/xiju/9490112.htm)
+- [赛考斯时隔27年再访中国 外交部回应](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
+- [2026KPL夏季赛](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
+- [马斯克称明年底AI通吃数字领域工作](http://www.daogukj.com/qxdtupzr/)
+- [《明日方舟》干员「结城理」技能展示PV](http://www.movie.hkepx.cn/xiju/3795229.htm)
+- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
+- [如何看待Anthropic全面开放Claude Fable 5.1和Mythos 5.1？有哪些亮点？](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
+- [【何同学】库克时代](http://www.daogukj.com/8473621)
+- [女排亚锦赛爆冷输泰国，乒乓、游泳等多个项目退步严重，中国体育未来究竟该怎么走？](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
+- [当街殴打扒裤女子被刑拘](http://www.movie.hkepx.cn/xiju/0754538.htm)
+- [景区 NPC 的职业前景好吗？一个好的景区 NPC，最重要的能力是什么？会有职业焦虑吗？](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
+- [曾经最成功的游戏类型，为什么没人做了？](http://www.daogukj.com/nddpfxtw/)
+- [直观感受到长期大量阅读的好处](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
+- [陪拍师火了 大学生一个月赚7000元](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
+- [《爱情公寓》中曾小贤明明和胡一菲互相喜欢，为什么却在中途突然和诺澜在一起了？](http://www.daogukj.com/0923785)
+- [开学第一天33名家长被骗9108元](http://www.daogukj.com/ytapmyxr/)
+- [一针99万元 外国人来中国抗癌](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
+- [井柏然双眼皮 年纪大了皮松了](http://www.daogukj.com/3735760)
+- [2人当街殴打撕扯女子衣服被刑拘](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
+- [9块9充话费为什么突然消失了](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
+- [温州辟谣高速路口降雨致人死亡](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
+- [女子被当街殴打撕扯 2人被刑拘](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
+- [香港武打巨星陈观泰去世](http://www.daogukj.com/0437875)
+- [绝活](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
+- [国台办回应台陆委会称赴大陆有风险](http://www.movie.hkepx.cn/xiju/4010771.htm)
+- [【蕾米埃尔】：入木三分，原来是字面意思？](http://www.daogukj.com/cvgkgyqv/)
+- [中国博士后已经50万+了](http://www.daogukj.com/afffhqsf/)
+- [国台办：台湾同胞来大陆无需有顾虑](http://www.movie.hkepx.cn/movie/4359740.htm)
+- [黄之锋当庭认罪](http://www.daogukj.com/zaudsbpz/)
+- [中国空军：立即离开 否则采取措施](http://www.daogukj.com/riicnlnn/)
+- [国台办回应郑丽文向西藏灾区捐款](http://www.movie.hkepx.cn/movie/3461436.htm)
+- [残障大叔无薪喂牛10多年还遭殴打](http://www.movie.hkepx.cn/xiju/6388091.htm)
+- [情况又变 35岁成香饽饽了](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
+- [多地社保缴费基数结束连年快涨](http://www.daogukj.com/9288361)
 
 </details>
 
 ## 原始来源
 
-- [美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？](https://www.zhihu.com/question/2078394585563100576)
+- [尼泊尔泥石流已致1118死4858失联](https://www.toutiao.com/trending/7680811771950534170/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227680811771950534170%22%2C%22hot_board_impr_id%22%3A%2220260902171212AC2B594C3F70A475434C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bbb3e1abf4fb3b37a4da -->
+<!-- content-fingerprint: 71a371653492a1b836b0 -->
