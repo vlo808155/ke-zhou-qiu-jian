@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 贵州秋假连着中秋国庆休13天系谣言
+# 2岁男童把家中百草枯当饮料喝下
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6848510 · 更新：2026-09-05T01:17:32+08:00
+> 来源：微博热搜 · 排名：第 11 位 · 热度：60379 · 分类：民生新闻 · 更新：2026-09-05T03:44:10+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“贵州秋假连着中秋国庆休13天系谣言”位列第 10 位，公开热度指标为 6848510。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“2岁男童把家中百草枯当饮料喝下”位列第 11 位，公开热度指标为 60379，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，网传贵州中小学秋假将和中秋、国庆合并连休13天，引发关注。经教育部门核实，秋假在11月中旬，该消息不实。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [2015湖南台综艺有多神](yu-mu-hun-zhu.md)
-- [贵州秋假连着中秋国庆连休13天系谣言](dong-shi-xiao-pin.md)
-- [如何评价GPT-6打破孪生素数猜想最新纪录？](han-dan-xue-bu.md)
-- [这只猫，性格好到让我无语](qi-ren-you-tian.md)
+- [贵州秋假连着中秋国庆连休13天系谣言](yu-mu-hun-zhu.md)
+- [如何评价GPT-6打破孪生素数猜想最新纪录？](dong-shi-xiao-pin.md)
+- [这次是真玩爽了](han-dan-xue-bu.md)
+- [首批GPT-6内测结果离谱](qi-ren-you-tian.md)
 
 ## 站内推荐
 
-- [天 雷 滚 滚 纽 约 城【神奇组织53】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [纯过日子人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [中国女篮61比94美国女篮](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [曹骏回应难听](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [出轨跟纸片人啥关系](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [【半佛】下一代的孩子还会知道原神吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [中国女篮61比94美国女篮](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [28岁的人生应该是什么样呢](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [要你管 难听](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [钓友帐篷里钻进2米长眼镜王蛇](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [河水暴涨 95后特警抡锤猛砸护栏泄洪](http://www.daogukj.com/1906233)
-- [媒体：电视该回归大屏的公共价值了](http://www.movie.hkepx.cn/movie/8207551.htm)
-- [《绝区零》克拉蕾角色展示 | 不想培训，但攻略已写好](http://www.daogukj.com/dztmbdzh/)
+- [解放军将派出兵力赴俄参加实兵演习](http://www.movie.hkepx.cn/movie/8207551.htm)
+- [王传君队长秀赢了](http://www.daogukj.com/dztmbdzh/)
 - [98岁老人25年捐款近6000万元](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
-- [如何看待今年的超级厄尔尼诺现象？](http://www.movie.hkepx.cn/xiju/7262543.htm)
-- [2岁男童把家中百草枯当饮料喝下](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
-- [结城理的入职测试！【明日方舟】](http://www.movie.hkepx.cn/xiju/4947300.htm)
+- [罗永浩称「谁做老人傻瓜电视，我免费带货一年」，商业上如何看电视越做越复杂，但想看电视却越来越麻烦？](http://www.movie.hkepx.cn/xiju/7262543.htm)
+- [男子与前女友纠纷被其现男友等打死](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
+- [阿诺撒……我让你站起来你耳朵🐉吗？](http://www.movie.hkepx.cn/xiju/4947300.htm)
 - [把青春华章写在祖国大地上](http://www.movie.hkepx.cn/xiju/5761043.htm)
-- [华为国行 5G 疑似回归，Mate90 系列入网，为何在此时选择回归？其 5G 回归有何技术突破创新？](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
-- [解放军将派出兵力赴俄参加实兵演习](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
-- [微信发布最新公告：集体下架](http://www.movie.hkepx.cn/movie/5688642.htm)
-- [王传君队长秀赢了](http://www.daogukj.com/jvdbiekb/)
-- [日本请求俄拆纪念碑菊花纹章遭拒](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
-- [如何评价GPT-6打破孪生素数猜想最新纪录？](http://www.movie.hkepx.cn/xiju/4016086.htm)
-- [为什么手机卖不动了反而要涨价](http://www.movie.hkepx.cn/movie/2656990.htm)
-- [烧水喝和买桶装水喝 哪个更健康](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
-- [零跑B10上手体验：AR-HUD是怎么诞生的？](http://www.movie.hkepx.cn/movie/6948720.htm)
-- [对标SpaceX 西安这家公司出手了](http://www.movie.hkepx.cn/movie/3077263.htm)
-- [四川宜宾地震](http://www.movie.hkepx.cn/movie/1951037.htm)
-- [暴雨袭击莆田 龙舟上阵转移群众](http://www.daogukj.com/0012222)
-- [这只猫，性格好到让我无语](http://www.movie.hkepx.cn/movie/6159585.htm)
-- [男子与前女友纠纷被其现男友等打死](http://www.movie.hkepx.cn/xiju/3354539.htm)
-- [OpenAI总裁宣布AGI到来](http://www.movie.hkepx.cn/movie/4882379.htm)
-- [披哥二公排名](http://www.movie.hkepx.cn/movie/1975079.htm)
-- [多诺米骨牌](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
+- [我不是公公，我是大美太子！万斯要重新证明自己](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
+- [尼泊尔校长 10 秒内撤离 900 学生，对学校灾害应急预案有何借鉴意义？](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
+- [美网第三轮](http://www.movie.hkepx.cn/movie/5688642.htm)
+- [莆田暴雨亲历者饿得受不了](http://www.daogukj.com/jvdbiekb/)
+- [花少2嘉宾干活表](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
+- [这次是真玩爽了](http://www.movie.hkepx.cn/xiju/4016086.htm)
+- [如何看待《重案六组：消失的警号》开播后，观众呼吁「还我季洁」？季洁为何在观众心中不可替代？](http://www.movie.hkepx.cn/movie/2656990.htm)
+- [四川宜宾地震](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
+- [万人追更的终南山怪虫，只有我们拍到了真相！](http://www.movie.hkepx.cn/movie/6948720.htm)
+- [路人根本没兴趣和耐心回看花少6](http://www.movie.hkepx.cn/movie/3077263.htm)
+- [寿司郎给孩子接小便的家长回应](http://www.movie.hkepx.cn/movie/1951037.htm)
+- [52名新加坡公民在广西被捕](http://www.daogukj.com/0012222)
+- [首批GPT-6内测结果离谱](http://www.movie.hkepx.cn/movie/6159585.htm)
+- [2026 女篮世界杯小组赛，中国女篮 61-94 不敌美国女篮，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/3354539.htm)
+- [2015湖南台综艺有多神](http://www.movie.hkepx.cn/movie/4882379.htm)
+- [我国目前有1870万名教师](http://www.movie.hkepx.cn/movie/1975079.htm)
+- [沈佳润练舞骨折](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
 - [美联储9月加息预期升温](http://www.movie.hkepx.cn/xiju/1921854.htm)
-- [张雪机车法国站排位赛包揽前二](http://www.daogukj.com/4901061)
-- [苹果现在才做折叠屏，是来得太晚，还是正好等到了技术成熟？](http://www.daogukj.com/jetdabgu/)
+- [这是真正凭本事吃饭的行业](http://www.daogukj.com/4901061)
+- [天崩开局，读博两年，我的论文中了顶会](http://www.daogukj.com/jetdabgu/)
 - [中国女篮不敌美国女篮](http://www.daogukj.com/7091816)
-- [史上最烂DC电影！万字赤石《超女》！](http://www.movie.hkepx.cn/movie/5119801.htm)
-- [国航回应「美国地勤不拔油管扯爆国航油箱」，航班加油时加油车非正常移动导致飞机部件损伤，如何看待此事？](http://www.daogukj.com/eozvjcki/)
-- [美国拉斯维加斯有点爽！](http://www.movie.hkepx.cn/movie/3647409.htm)
-- [松岛辉空或将登顶世界第一](http://www.daogukj.com/olnmglro/)
-- [人人影视回归变正版，会员定价 25 元/月，用户们还会为曾经的情怀买单吗？你看好其市场前景吗？](http://www.movie.hkepx.cn/movie/0305763.htm)
-- [天崩开局，读博两年，我的论文中了顶会](http://www.movie.hkepx.cn/xiju/5270802.htm)
-- [贵州秋假连着中秋国庆连休13天系谣言](http://www.daogukj.com/novgnuvs/)
-- [Pro Max命名被吐槽泛滥](http://www.movie.hkepx.cn/movie/5479779.htm)
-- [中国女篮61比94美国女篮](http://www.daogukj.com/pimnqdhd/)
-- [曹骏回应难听](http://www.movie.hkepx.cn/movie/9614078.htm)
-- [如何看待日本GDP占美国的比重从1995年的71%下降到2026年的13%？](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
-- [DECO*27 - 洗脳 feat. 初音未来](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
-- [中方通报中国公民在菲被羁押离世事件](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
-- [如何评价GPT-6Astra，是目前智能程度最高的模型吗？](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
-- [52名新加坡公民在广西被捕](http://www.movie.hkepx.cn/xiju/1743642.htm)
-- [消息称月之暗面保密递交港股IPO，估值冲刺350亿美元，从不着急上市到骤然提速，背后有何考量？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
+- [南大老师PPT称没Token的同学应退学](http://www.movie.hkepx.cn/movie/5119801.htm)
+- [桃花源记](http://www.daogukj.com/eozvjcki/)
+- [中方通报中国公民在菲被羁押离世事件](http://www.movie.hkepx.cn/movie/3647409.htm)
+- [媒体：电视该回归大屏的公共价值了](http://www.daogukj.com/olnmglro/)
+- [消息称月之暗面保密递交港股IPO，估值冲刺350亿美元，从不着急上市到骤然提速，背后有何考量？](http://www.movie.hkepx.cn/movie/0305763.htm)
+- [微信发布最新公告：集体下架](http://www.movie.hkepx.cn/xiju/5270802.htm)
+- [如何评价GPT-6打破孪生素数猜想最新纪录？](http://www.daogukj.com/novgnuvs/)
+- [张雪机车法国站排位赛包揽前二](http://www.movie.hkepx.cn/movie/5479779.htm)
+- [28岁的人生应该是什么样呢](http://www.daogukj.com/pimnqdhd/)
+- [要你管 难听](http://www.movie.hkepx.cn/movie/9614078.htm)
+- [结城理 VS 全方舟BOSS，刮痧还是乱杀？【明日方舟】](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
+- [教育部回应“教师不敢管学生”](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
+- [想找大结果先自己成为大结果](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
+- [突然之间破亿，鸿蒙系统和开源鸿蒙为什么发展的如此之快？](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
+- [山东省委书记省长带头捐款](http://www.movie.hkepx.cn/xiju/1743642.htm)
+- [结城理的入职测试！【明日方舟】](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
 - [“梅姨”画像更新](http://www.movie.hkepx.cn/movie/7048621.htm)
-- [美总统称赞美国“就业数据”](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
-- [纯过日子人](http://www.movie.hkepx.cn/movie/9217518.htm)
-- [孙千听到今天星期五的反应](http://www.daogukj.com/mmmeuyql/)
-- [云南人最宝贝的一根棍子，巨下饭！](http://www.movie.hkepx.cn/xiju/2283933.htm)
+- [人人影视回归变正版，会员定价 25 元/月，用户们还会为曾经的情怀买单吗？你看好其市场前景吗？](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
+- [中国女篮61比94美国女篮](http://www.movie.hkepx.cn/movie/9217518.htm)
+- [外交部：已向韩方提出严正交涉](http://www.daogukj.com/mmmeuyql/)
+- [西藏泥石流已致31人遇难531人失联](http://www.movie.hkepx.cn/xiju/2283933.htm)
 
 </details>
 
 ## 原始来源
 
-- [贵州秋假连着中秋国庆休13天系谣言](https://www.baidu.com/s?wd=%E8%B4%B5%E5%B7%9E%E7%A7%8B%E5%81%87%E8%BF%9E%E7%9D%80%E4%B8%AD%E7%A7%8B%E5%9B%BD%E5%BA%86%E4%BC%9113%E5%A4%A9%E7%B3%BB%E8%B0%A3%E8%A8%80&sa=fyb_news&rsv_dl=fyb_news)
+- [2岁男童把家中百草枯当饮料喝下](https://s.weibo.com/weibo?q=2%E5%B2%81%E7%94%B7%E7%AB%A5%E6%8A%8A%E5%AE%B6%E4%B8%AD%E7%99%BE%E8%8D%89%E6%9E%AF%E5%BD%93%E9%A5%AE%E6%96%99%E5%96%9D%E4%B8%8B)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2d79433d9532018f0c7c -->
+<!-- content-fingerprint: 739fc73457078010c61c -->
