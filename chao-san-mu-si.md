@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 鸭脖刺客变相降价了吗
+# 【半佛】下一代的孩子还会知道原神吗？
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6759094 · 更新：2026-09-05T07:39:10+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：920368 · 分类：搞笑 · 更新：2026-09-05T09:26:20+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“鸭脖刺客变相降价了吗”位列第 11 位，公开热度指标为 6759094。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【半佛】下一代的孩子还会知道原神吗？”位列第 11 位，公开热度指标为 920368，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026年上半年，绝味、周黑鸭等卤味巨头业绩普遍承压，门店持续收缩。随后巨头们设法自救，通过推热卤快餐、进商超及开新鲜零食店等新业态，在不直接降价的情况下进行“变相降价”以提升性价比。
+来源公开摘要显示：原神可以打破IP的周期吗？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [刘雯评论区](dui-niu-tan-qin.md)
-- [男子与前女友纠纷被其现男友等打死](mang-ren-mo-xiang.md)
-- [2026 女篮世界杯小组赛，中国女篮 61-94 不敌美国女篮，如何评价本场比赛？](yuan-mu-qiu-yu.md)
-- [我发现了动画最离谱的BUG？](sha-ji-qu-luan.md)
+- [女子家中发现眼镜蛇徒手打包转移](dui-niu-tan-qin.md)
+- [罗志祥复出争议](mang-ren-mo-xiang.md)
+- [联通在青岛大学与校方起冲突？假的](yuan-mu-qiu-yu.md)
+- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
 - [万人追更的终南山怪虫，只有我们拍到了真相！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [美国总统爱吃的芝士牛排三明治，什么味儿？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [安徽滁州回应天空巨响](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [四川宜宾地震](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [尼泊尔不向中国寻求气候正义赔偿](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [我发现了动画最离谱的BUG？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [云南人最宝贝的一根棍子，巨下饭！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [这次是真玩爽了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [美国拉斯维加斯有点爽！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [贺娇龙母亲拒立雕像：别给县里增负担](http://www.daogukj.com/4141941)
-- [男子与前女友纠纷被其现男友压制致死](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [美国总统爱吃的芝士牛排三明治，什么味儿？](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [刘雯评论区](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [桃花源记](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [国航回应「美国地勤不拔油管扯爆国航油箱」，航班加油时加油车非正常移动导致飞机部件损伤，如何看待此事？](http://www.daogukj.com/7265089)
-- [贺娇龙母亲：不要为她立雕像](http://www.daogukj.com/3085948)
-- [莆田暴雨亲历者饿得受不了](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [男子与前女友纠纷被其现男友等打死](http://www.daogukj.com/jtbnzsng/)
-- [【半佛】下一代的孩子还会知道原神吗？](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [我发现了动画最离谱的BUG？](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [天 雷 滚 滚 纽 约 城【神奇组织53】](http://www.daogukj.com/5882217)
-- [研究发现每天吃够豆类高血压风险降低](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [新加坡谈52人在广西涉案被扣](http://www.daogukj.com/0190432)
-- [烧水喝和买桶装水喝 哪个更健康](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [男子肚子疼被误诊为胃癌，医院瞒着切全胃，为何会出现如此离谱的医疗事故？医院赔22万，能抵消男子损失吗？](http://www.daogukj.com/nzmqevzx/)
-- [2026 女篮世界杯小组赛，中国女篮 61-94 不敌美国女篮，如何评价本场比赛？](http://www.daogukj.com/qnzjxpsz/)
-- [上海和平饭店回应一杯椰汁50元](http://www.daogukj.com/7347029)
-- [吴易昺止步美网32强](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [披哥二公排名](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [皇马 姆巴佩](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [葫芦娃爷爷30天后要拆掉葫芦](http://www.daogukj.com/4141941)
+- [一家三口吃水洗鸡蛋集体中毒](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [我发现了动画最离谱的BUG？](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [女子家中发现眼镜蛇徒手打包转移](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [工人因赊1碗面后连续吃121天](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [章泽天不抢话为什么成了一个问题](http://www.daogukj.com/7265089)
+- [手机涨价 最先扛不住的竟是经销商](http://www.daogukj.com/3085948)
+- [贵州秋假连着中秋国庆休13天系谣言](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [罗志祥复出争议](http://www.daogukj.com/jtbnzsng/)
+- [美国总统爱吃的芝士牛排三明治，什么味儿？](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [真实事件改编！一口气抢268个银行保险柜，翻出公主私密照，官员play实录，有钱人玩儿得够花！《银行大劫案》](http://www.daogukj.com/5882217)
+- [贺娇龙母亲：不要为她立雕像](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [菲法院为何下令逮捕副总统](http://www.daogukj.com/0190432)
+- [你往「快乐驿站」里加了什么！](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [德比斯花了20年才拿到第一个杆位](http://www.daogukj.com/nzmqevzx/)
+- [联通在青岛大学与校方起冲突？假的](http://www.daogukj.com/qnzjxpsz/)
+- [深圳校服“热搜” 本地家长“冷淡”](http://www.daogukj.com/7347029)
+- [赵心童1-5不敌特鲁姆普无缘半决赛](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [王楚钦退赛1000卫冕积分即将清零](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [超1万册永乐大典副本下落不明](http://www.movie.hkepx.cn/xiju/8115054.htm)
 - [2岁男童把家中百草枯当饮料喝下](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [如何看待《重案六组：消失的警号》开播后，观众呼吁「还我季洁」？季洁为何在观众心中不可替代？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [史上最烂DC电影！万字赤石《超女》！](http://www.daogukj.com/2641155)
-- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [员工拒坐硬座通宵出差被开除](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [家长在寿司郎餐位用杯子给孩童接尿，顾客称服务员未加制止，从海底捞到寿司郎，门店遇此类事该怎么妥善处理？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [佟丽娅陈思诚边界感](http://www.daogukj.com/3850819)
+- [同样一道炒菜，马路边小饭馆卖30元，大饭店卖100元，有什么区别？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [如何评价勇哥新开的社区食堂？](http://www.daogukj.com/2641155)
+- [家长在寿司郎餐位用杯子给孩童接尿，顾客称服务员未加制止，从海底捞到寿司郎，门店遇此类事该怎么妥善处理？](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [天 雷 滚 滚 纽 约 城【神奇组织53】](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [吴易昺0-3阿尔卡拉斯](http://www.daogukj.com/3850819)
 - [全国多地迎来丰收季](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [为什么手机卖不动了反而要涨价](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [证监会开出2.55亿巨额罚单](http://www.daogukj.com/9307696)
-- [如何评价电影《一刀倾城》（又名神州第一刀）？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [许晴被骂毛阿敏心疼](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [这只猫，性格好到让我无语](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [“梅姨”画像更新](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [一家三口吃水洗鸡蛋集体中毒](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [这是真正凭本事吃饭的行业](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [王楚钦退赛1000卫冕积分即将清零](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [防止职校生实习成“法外飞地”](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [41岁李念和14岁女儿跳舞](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [AI编程时代最黑暗的一晚](http://www.daogukj.com/6360237)
-- [贵州秋假连着中秋国庆休13天系谣言](http://www.daogukj.com/7781714)
-- [尼泊尔不向中国寻求气候正义赔偿](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [极限挑战 重拍](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [《绝区零》克拉蕾角色展示 | 不想培训，但攻略已写好](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [中国女篮不敌美国女篮](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [李月汝护照弄丢到底是谁的责任](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [结城理的入职测试！【明日方舟】](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [上海到成都被订硬座还打卡女子拒出差](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [井柏然孙千cp粉现状](http://www.daogukj.com/9307696)
+- [网友偶遇张馨予何捷广州看车](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [《花少8》7个嘉宾4个急性子](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [罗永浩称「谁做老人傻瓜电视，我免费带货一年」，商业上如何看电视越做越复杂，但想看电视却越来越麻烦？](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [刘雯评论区](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [为什么现在这么流行耳夹式耳机](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [国货零食全球爆单](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [尼泊尔不向中国寻求气候正义赔偿](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [多诺米骨牌](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [导师要求学生开门保持1.5米](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [解毒大师](http://www.daogukj.com/6360237)
+- [接了好多蝌蚪…](http://www.daogukj.com/7781714)
+- [美国拉斯维加斯有点爽！](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [许晴被骂毛阿敏心疼](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [这只猫，性格好到让我无语](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [皇马 姆巴佩](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [结城理的入职测试！【明日方舟】](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [洪水侵袭“中国白茶第一镇”](http://www.movie.hkepx.cn/xiju/7034358.htm)
 - [日本请求俄拆纪念碑菊花纹章遭拒](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [如何将过度思考变成深度思考？](http://www.daogukj.com/nlksxqaw/)
+- [82岁朱幼麟在香港首驾张雪机车](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [鸭脖刺客变相降价了吗](https://www.baidu.com/s?wd=%E9%B8%AD%E8%84%96%E5%88%BA%E5%AE%A2%E5%8F%98%E7%9B%B8%E9%99%8D%E4%BB%B7%E4%BA%86%E5%90%97&sa=fyb_news&rsv_dl=fyb_news)
+- [【半佛】下一代的孩子还会知道原神吗？](https://b23.tv/BV15GtZ6tEGS)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: acc8414100f6b0350ca2 -->
+<!-- content-fingerprint: 683ddef5966a3812907a -->
