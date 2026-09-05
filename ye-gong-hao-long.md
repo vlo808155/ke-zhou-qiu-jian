@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# AI的“iPhone时刻”来了吗
+# 福建泉州出现绿色天空 当地回应
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6951772 · 更新：2026-09-05T14:16:50+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6948988 · 更新：2026-09-05T18:47:12+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“AI的“iPhone时刻”来了吗”位列第 9 位，公开热度指标为 6951772。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“福建泉州出现绿色天空 当地回应”位列第 9 位，公开热度指标为 6948988。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月3日，OpenAI于旧金山发布会推出AGI级新旗舰模型GPT-6 Astra，测试表现大幅突破前代，引发行业对AI是否迎来“iPhone时刻”的广泛热议。
+来源公开摘要显示：9月4日，福建石狮市祥芝中心渔港及镇政府工作人员回应“泉州夜空现绿光”称，实为渔船捕捞作业灯光。据悉，因鱿鱼对绿光最敏感，渔船开灯以诱捕聚集，属正常操作，停工时会关闭。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [江西遂川大桥被冲毁无伤亡](lan-yu-chong-shu.md)
-- [为什么脱口秀演员徐志胜会这么火？](zi-xiang-mao-dun.md)
-- [这次是真玩爽了](bei-gong-she-ying.md)
-- [联通在青岛大学与校方起冲突系谣言](jing-gong-zhi-niao.md)
+- [苹果多款新品售价曝光](lan-yu-chong-shu.md)
+- [1岁裸体男童沙漠走失12小时被找到](zi-xiang-mao-dun.md)
+- [GPT-6 Astra 价格达上一代旗舰5.6 Sol 的2.5 倍，从性能等方面看，这价格贵吗？](bei-gong-she-ying.md)
+- [DECO*27 - 洗脳 feat. 初音未来](jing-gong-zhi-niao.md)
 
 ## 站内推荐
 
-- [万人追更的终南山怪虫，只有我们拍到了真相！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [旗腹姬蜂是蟑螂杀手](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [轮椅老人上高架蓄意碰瓷？不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [史上最烂DC电影！万字赤石《超女》！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [自从有了电车](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [这巴克什太简单辣！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [92岁正是拼的年纪](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [2米眼镜王蛇钻入帐篷 猎犬拖出未果](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [“梅姨”画像更新](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [福建莆田特大暴雨一天下了北方多地全年降水量，有人员失联，宁德多地内涝，为什么雨量这么大？目前情况如何？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [江西遂川泥石流致1人死亡11人失联](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
-- [中国证监会开出天价罚单](http://www.daogukj.com/biwoqqwj/)
-- [史上最烂DC电影！万字赤石《超女》！](http://www.movie.hkepx.cn/xiju/2248691.htm)
-- [第一批戴运动手环的受害者出现了](http://www.daogukj.com/0541941)
-- [刘雯 避嫌](http://www.movie.hkepx.cn/xiju/2330971.htm)
+- [运营商晒iPhone18售价](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
+- [喝多了没人能制裁我 除了我老婆](http://www.daogukj.com/biwoqqwj/)
+- [“梅姨”画像更新](http://www.movie.hkepx.cn/xiju/2248691.htm)
+- [女子吃避孕药后久坐旅游患肺栓塞](http://www.daogukj.com/0541941)
+- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.movie.hkepx.cn/xiju/2330971.htm)
 - [菲法院为何下令逮捕副总统](http://www.movie.hkepx.cn/movie/1952908.htm)
-- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](http://www.movie.hkepx.cn/xiju/7386608.htm)
-- [江苏省委书记省长带头捐款](http://www.daogukj.com/cwfgitul/)
-- [未来五年医保改革划了哪些重点](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
-- [这只猫，性格好到让我无语](http://www.daogukj.com/3149137)
-- [1岁裸体男童沙漠走失12小时](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
-- [搞笑诺贝尔奖来了：蟑螂奶获化学奖](http://www.movie.hkepx.cn/movie/1545092.htm)
-- [苹果将迎最大规模产品发布潮](http://www.movie.hkepx.cn/xiju/3608340.htm)
-- [14岁少年被同学暴力勒索拘禁10小时](http://www.daogukj.com/7262388)
-- [校长回应“9个老师守着12个娃”](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
-- [小学回应家长自费买课桌：非强制](http://www.daogukj.com/8314202)
-- [张凌赫卢昱晓进组](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
-- [“梅姨”画像更新](http://www.movie.hkepx.cn/xiju/5194753.htm)
-- [工人因赊1碗面后连续吃121天](http://www.movie.hkepx.cn/movie/0714674.htm)
-- [江西遂川山体滑坡已致1死11失联](http://www.movie.hkepx.cn/movie/7940067.htm)
-- [以旧换新激活消费新动能](http://www.movie.hkepx.cn/movie/6237029.htm)
-- [两岁男童误把百草枯当饮料喝下](http://www.movie.hkepx.cn/movie/1586252.htm)
-- [大衣哥朱之文演出排到了明年1月](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
-- [轮椅老人上高架蓄意碰瓷？不实](http://www.daogukj.com/0480738)
-- [雪花牛肉疑似造假](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
-- [程序员每天消耗几千万上亿的Token，到底产出了什么？](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
-- [华为何庭波再提「本该烧毁的『τ芯片』」，这揭示了华为怎样的芯片自研能力？](http://www.movie.hkepx.cn/movie/6914548.htm)
-- [联通在青岛大学与校方起冲突系谣言](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
-- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](http://www.daogukj.com/8595353)
-- [我好像突然对钱有了概念](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
-- [“请与我一同，战胜时间的伟力。”](http://www.daogukj.com/gozdpjud/)
-- [考研数学名师汤家凤呼吁取消英语主科地位，你赞同吗？将对人才培养和学生发展带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
-- [安静公主说王俊凯粉丝既要又要](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
-- [猪奶为何成不了人类饮品](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
-- [男子杀妻后水煮分装抛尸被判无期](http://www.movie.hkepx.cn/movie/4558388.htm)
-- [这种鞋子不要给孩子天天穿](http://www.movie.hkepx.cn/movie/4205366.htm)
-- [北方将有大范围降雨](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
-- [旗腹姬蜂是蟑螂杀手](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
-- [井柏然人气一夜之间回到十年前](http://www.daogukj.com/8939549)
-- [为什么歌手上节目唱歌，总喜欢改编一下呢？为什么不按原版本好好唱呢？](http://www.daogukj.com/ixxuunfh/)
-- [美国拉斯维加斯有点爽！](http://www.daogukj.com/2398854)
-- [江西遂川大桥被冲毁无伤亡](http://www.movie.hkepx.cn/movie/0490118.htm)
-- [新 生 开 学 有 多 爽 ？！！](http://www.daogukj.com/utabxjrg/)
-- [接了好多蝌蚪…](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
-- [张雪机车今晚冲击第七冠](http://www.daogukj.com/uqvpybnb/)
-- [这次是真玩爽了](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
-- [精神病院实控人骗保近千万拒不认罪](http://www.movie.hkepx.cn/xiju/5297963.htm)
-- [1岁裸体男童沙漠走失12小时被找到](http://www.daogukj.com/4768730)
+- [中国会出现公认的第五个一线城市吗?](http://www.movie.hkepx.cn/xiju/7386608.htm)
+- [荷兰、法国等多国为什么要从美国运回黄金？这会对全球金融市场及美元体系产生什么影响？](http://www.daogukj.com/cwfgitul/)
+- [中国电动卡车走向世界](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
+- [陈丽君人走了手机落下了](http://www.daogukj.com/3149137)
+- [张家齐13岁赚了81万](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
+- [男子撞上羊群 赔了钱为什么不能带走](http://www.movie.hkepx.cn/movie/1545092.htm)
+- [世界末日，却打不通最后一通电话💔《Payphone》](http://www.movie.hkepx.cn/xiju/3608340.htm)
+- [传播武汉大学举报 PDF 会涉嫌违法吗？如何从法律角度解读？](http://www.daogukj.com/7262388)
+- [并非放隔夜才叫隔夜菜](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
+- [这种鞋子不要给孩子天天穿](http://www.daogukj.com/8314202)
+- [剧本杀恋陪涉黄乱象](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
+- [我好像找到了特别贴numb numb副歌音效的跳法…](http://www.movie.hkepx.cn/xiju/5194753.htm)
+- [超1万册永乐大典副本下落不明](http://www.movie.hkepx.cn/movie/0714674.htm)
+- [尼泊尔泥石流1名受困中国公民获救](http://www.movie.hkepx.cn/movie/7940067.htm)
+- [青春华章因创新更燃](http://www.movie.hkepx.cn/movie/6237029.htm)
+- [离异男子带3个孩子 大女儿确诊白血病](http://www.movie.hkepx.cn/movie/1586252.htm)
+- [接了好多蝌蚪…](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
+- [2米眼镜王蛇钻入帐篷 猎犬拖出未果](http://www.daogukj.com/0480738)
+- [如何看待 Anthropic 利用 Claude 完成费马大定理的 lean4 形式化证明？](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
+- [青海海西州地震](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
+- [花600天做一道菜，切开的瞬间发光了！](http://www.movie.hkepx.cn/movie/6914548.htm)
+- [DECO*27 - 洗脳 feat. 初音未来](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
+- [王一博赛场车辆碰撞着火](http://www.daogukj.com/8595353)
+- [张雅琪被花少8剪掉了](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
+- [常规小升级？Alienware 18 Area-51 U9 290HX+RTX5090到底强不强？](http://www.daogukj.com/gozdpjud/)
+- [如何看待因被要求补缴社保，老板在店门口滚屏抱怨”选择员工需谨慎”？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
+- [耿同学锤刘光慧、曲静的《Nature》论文涉数据造假，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
+- [2026搞笑诺贝尔奖揭晓](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
+- [对面一个牢玩家李白，打我们这边4个牢玩家](http://www.movie.hkepx.cn/movie/4558388.htm)
+- [上海女导购“薅”了公司72万余元](http://www.movie.hkepx.cn/movie/4205366.htm)
+- [尼泊尔泥石流灾害1名中国公民获救](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
+- [92岁正是拼的年纪](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
+- [TES对战iG](http://www.daogukj.com/8939549)
+- [如何看待乌克兰两大情报部门 GUR 和 SBU 爆发内讧，视频显示双方发生枪战？背后有何矛盾？](http://www.daogukj.com/ixxuunfh/)
+- [宝妈带娃坐飞机为其他乘客准备耳塞](http://www.daogukj.com/2398854)
+- [苹果多款新品售价曝光](http://www.movie.hkepx.cn/movie/0490118.htm)
+- [国家医保局探索居民医保年限折算](http://www.daogukj.com/utabxjrg/)
+- [慢下来，就会死！](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
+- [“请与我一同，战胜时间的伟力。”](http://www.daogukj.com/uqvpybnb/)
+- [GPT-6 Astra 价格达上一代旗舰5.6 Sol 的2.5 倍，从性能等方面看，这价格贵吗？](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
+- [WorkBuddy 金融版正式发布，可为券商提供覆盖投研、尽调支持，具体能力如何？](http://www.movie.hkepx.cn/xiju/5297963.htm)
+- [特斯拉市值一夜蒸发超6000亿](http://www.daogukj.com/4768730)
 - [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
-- [撒贝宁：只要不上班就来丹霞山](http://www.daogukj.com/6807039)
+- [《营救匪徒》](http://www.daogukj.com/6807039)
 
 </details>
 
 ## 原始来源
 
-- [AI的“iPhone时刻”来了吗](https://www.baidu.com/s?wd=AI%E7%9A%84%E2%80%9CiPhone%E6%97%B6%E5%88%BB%E2%80%9D%E6%9D%A5%E4%BA%86%E5%90%97&sa=fyb_news&rsv_dl=fyb_news)
+- [福建泉州出现绿色天空 当地回应](https://www.baidu.com/s?wd=%E7%A6%8F%E5%BB%BA%E6%B3%89%E5%B7%9E%E5%87%BA%E7%8E%B0%E7%BB%BF%E8%89%B2%E5%A4%A9%E7%A9%BA+%E5%BD%93%E5%9C%B0%E5%9B%9E%E5%BA%94&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d1177e1fbd409cc14a4e -->
+<!-- content-fingerprint: aa9f3c95394b3545c0c7 -->
