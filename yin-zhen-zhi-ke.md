@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 花15元买了2斤蛤蜊吃出3颗珍珠
+# 你是说我钓鱼还得用枪吗？
 
-> 来源：百度热搜 · 排名：第 12 位 · 热度：6660295 · 更新：2026-09-06T08:04:12+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：697896 · 分类：单机游戏 · 更新：2026-09-06T12:32:02+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“花15元买了2斤蛤蜊吃出3颗珍珠”位列第 12 位，公开热度指标为 6660295。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“你是说我钓鱼还得用枪吗？”位列第 12 位，公开热度指标为 697896，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，山东青岛张先生在食用母亲花15元买来的蛤蜊时，牙齿被异物割了一下，吐出发现竟是3颗珍珠。张先生称常吃蛤蜊从未遇到此事。
+来源公开摘要显示：@耳朵有超能力 @蛙之歌 游戏：鱼力全开 喜欢本期内容！欢迎各位点赞！投币！充电！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
 
 ## 相关热点
 
-- [美网官推称郑钦文是奇迹本迹](ke-zhou-qiu-jian.md)
-- [郑钦文对手遭逆转用球拍猛砸头部](yan-er-dao-ling.md)
-- [《周处除三害》导演新作《荡荡荡寇志》剧照流出，张家辉、阮经天、贾静雯造型颠覆，能复刻前作的口碑吗？](nan-yuan-bei-zhe.md)
-- [慢下来，就会死！](mai-du-huan-zhu.md)
+- [伍佰演唱会大喊“我要下班”](ke-zhou-qiu-jian.md)
+- [小沈阳在干嘛](yan-er-dao-ling.md)
+- [高市早苗抗议俄罗斯伤害日本人感情](nan-yuan-bei-zhe.md)
+- [摇滚歌手何勇病逝，年仅 57 岁，长期精神疾病会怎样影响一个人的健康状况和寿命？](mai-du-huan-zhu.md)
 
 ## 站内推荐
 
-- [生育险、长护险、医保报销迎新变化](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [郑钦文逆转后热泪盈眶](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [网传“青铜峡大坝开始泄洪”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [贵州一医生被刺伤 患者锦旗内藏刀](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [小沈阳现场拉票演小品引争议](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [全网首通逐星者行动](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [【剧情】良医 第七季（2024）01【弗莱迪·海默 / 佩奇·斯巴勒】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [银行集中“清淤”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [江西遂川泥石流已致2死10人失联](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [苹果折叠手机价格](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
-- [美博主镜头下在芭提雅疯狂的美海军](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
-- [德甲第四轮，樊振东第一盘3-0胜鲁伊斯，第四盘3-0 胜杜达锁定胜局，如何评价本场比赛？](http://www.daogukj.com/tqrulkrm/)
-- [《周处除三害》导演新作《荡荡荡寇志》剧照流出，张家辉、阮经天、贾静雯造型颠覆，能复刻前作的口碑吗？](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
-- [美军袭击三艘伊朗油轮](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
-- [叶润泽淘汰](http://www.daogukj.com/2903535)
-- [车企“围攻”动力电池](http://www.movie.hkepx.cn/movie/8396411.htm)
-- [贵中医二附院被捅伤医生仍在抢救](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
-- [美网官推称郑钦文是奇迹本迹](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
-- [贵中医二附院一医生疑被患者捅伤，一名肠癌患者将刀具藏在锦旗中带入，警方通报嫌疑人被刑拘，如何看待此事？](http://www.movie.hkepx.cn/movie/7093450.htm)
-- [美网官号称郑钦文是奇迹本迹](http://www.daogukj.com/2824694)
-- [张学友大女儿近照曝光](http://www.daogukj.com/yjkpaybt/)
-- [为什么当年小品《不差钱》要设计一个调侃「刀郎」的片段？](http://www.daogukj.com/9138421)
-- [【剧情】良医 第七季（2024）01【弗莱迪·海默 / 佩奇·斯巴勒】](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
-- [普京与美总统特使会见超3小时](http://www.movie.hkepx.cn/xiju/5067207.htm)
-- [《死神千年血战篇》第四季祸进谭开播，如何评价第七集？](http://www.daogukj.com/7199630)
-- [耿同学锤刘光慧、曲静的《Nature》论文涉数据造假，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/6135897.htm)
-- [【2026LPL第三赛段】9月5日 TES vs IG](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
-- [鞠婧祎扇巴掌给我看爽了](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
-- [披荆斩棘三公分组](http://www.daogukj.com/2412867)
-- [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](http://www.daogukj.com/0344516)
-- [港姐王菲与歌手张子丰宣布订婚](http://www.movie.hkepx.cn/movie/0187296.htm)
-- [未来五年 健康生活“新”在哪](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
-- [为何张继科退役后体脂率还是这么低？](http://www.daogukj.com/qfjukyqn/)
-- [获救中国公民称能坚持下来是奇迹](http://www.daogukj.com/uumjcsie/)
-- [郑钦文下一轮迎战斯瓦泰克](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
-- [6500万从海外“抢”回《永乐大典》孤本](http://www.movie.hkepx.cn/movie/7623929.htm)
-- [你是说我钓鱼还得用枪吗？](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
-- [王楚钦退赛「1000」分卫冕积分将清零，如何影响其世界排名及赛程？](http://www.movie.hkepx.cn/movie/8313935.htm)
-- [手机发明之前，人们就是这样手书的……完整版！【bilibilionly同人扶持计划】](http://www.daogukj.com/fqjpdyus/)
-- [郑钦文打得对手疯狂砸头](http://www.daogukj.com/5983723)
-- [盖尔·加朵确认 DC 未计划她继续出演神奇女侠，这对于 DC 新电影宇宙意味着什么？](http://www.movie.hkepx.cn/xiju/4176767.htm)
-- [郑钦文 2-1 凯斯，晋级美网 16 强，决胜局 0-5 落后上演超级大逆转，如何评价她的表现？](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
-- [如何看待因被要求补缴社保，老板在店门口滚屏抱怨「选择员工需谨慎」？](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
-- [获救中国公民曾爬隧道最高处等救援](http://www.movie.hkepx.cn/movie/8664223.htm)
-- [对面一个牢玩家李白，打我们这边4个牢玩家](http://www.movie.hkepx.cn/movie/1942982.htm)
-- [葫芦娃爷爷把葫芦剪掉了目击者发声](http://www.movie.hkepx.cn/movie/5767803.htm)
-- [午夜轮班，伪人超市](http://www.movie.hkepx.cn/xiju/8972635.htm)
-- [郑钦文说总不能让她打个6-0](http://www.movie.hkepx.cn/xiju/5657270.htm)
-- [葫芦娃爷爷家门口“蛇精”真来了](http://www.movie.hkepx.cn/movie/4036246.htm)
-- [不同北京人的住处差异](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
-- [郑钦文对手遭逆转用球拍猛砸头部](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
-- [郑钦文电影级镜头](http://www.movie.hkepx.cn/xiju/0860317.htm)
-- [栾念看到前男友气到嚼冰块](http://www.daogukj.com/lyyagrpj/)
-- [我把汉堡搬到了星星上](http://www.daogukj.com/1732815)
-- [心动的信号](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
-- [保洁上门打扫每次偷2万到3万现金](http://www.daogukj.com/sokjghqt/)
+- [德甲第四轮，樊振东第一盘3-0胜鲁伊斯，第四盘3-0 胜杜达锁定胜局，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
+- [早春晴朗原著尚之桃开公司不收女员工](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
+- [现在做开发真的很难完全不用AI](http://www.daogukj.com/tqrulkrm/)
+- [高市早苗抗议俄罗斯伤害日本人感情](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
+- [对面一个牢玩家李白，打我们这边4个牢玩家](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
+- [张学友大女儿近照曝光](http://www.daogukj.com/2903535)
+- [手机发明之前，人们就是这样手书的……完整版！【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/movie/8396411.htm)
+- [网传“青铜峡大坝开始泄洪”系谣言](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
+- [伍佰演唱会大喊“我要下班”](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
+- [8月辟谣榜](http://www.movie.hkepx.cn/movie/7093450.htm)
+- [章泽天采访 没有一个菜入味](http://www.daogukj.com/2824694)
+- [新一轮油价调整即将开启](http://www.daogukj.com/yjkpaybt/)
+- [郑钦文决胜盘惊天大逆转](http://www.daogukj.com/9138421)
+- [盖尔·加朵确认 DC 未计划她继续出演神奇女侠，这对于 DC 新电影宇宙意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
+- [郑钦文社媒写下：迎万难 赢万难](http://www.movie.hkepx.cn/xiju/5067207.htm)
+- [西藏吉隆口岸国门处五星红旗飘展](http://www.daogukj.com/7199630)
+- [郑钦文说这次大逆转是职业生涯头一次](http://www.movie.hkepx.cn/movie/6135897.htm)
+- [贵中医二附院一医生疑被患者捅伤，一名肠癌患者将刀具藏在锦旗中带入，警方通报嫌疑人被刑拘，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
+- [孩子在餐厅就餐后休克进ICU](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
+- [辽宁处长被枪击案唯一目击证人发声](http://www.daogukj.com/2412867)
+- [有律师说剧本杀可能暗含色情服务，是这样吗？会有一些未成年人沉迷其中，存在什么危害？家长维权难在哪？](http://www.daogukj.com/0344516)
+- [如何评价《欢迎来龙餐馆》IF 线中马俊生和丽娜的婚礼彩蛋？](http://www.movie.hkepx.cn/movie/0187296.htm)
+- [地质灾害发生有哪些前兆](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
+- [郑钦文是16强唯一资格赛选手](http://www.daogukj.com/qfjukyqn/)
+- [有哪些信、达、不雅的翻译？](http://www.daogukj.com/uumjcsie/)
+- [全B站最垃圾的一期视频](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
+- [沙溢胡可送两儿子去英国读书](http://www.movie.hkepx.cn/movie/7623929.htm)
+- [困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
+- [为什么部分经济学理论，越来越脱离真实的经济世界？](http://www.movie.hkepx.cn/movie/8313935.htm)
+- [武契奇被推举为塞尔维亚总理候选人](http://www.daogukj.com/fqjpdyus/)
+- [【独家】牧神记 第99集 医毒斗法](http://www.daogukj.com/5983723)
+- [中小学一定要买校服吗？教育部回应](http://www.movie.hkepx.cn/xiju/4176767.htm)
+- [中国超大市场红利惠及全球](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
+- [普京会见特朗普特使超3小时](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
+- [郑钦文创女子大满贯翻盘纪录](http://www.movie.hkepx.cn/movie/8664223.htm)
+- [媒体人：中国女篮对战捷克不容有失](http://www.movie.hkepx.cn/movie/1942982.htm)
+- [6500万从海外“抢”回《永乐大典》孤本](http://www.movie.hkepx.cn/movie/5767803.htm)
+- [2026 搞笑诺贝尔奖来了，「蟑螂奶」获化学奖，其能量据称是牛奶 4 倍，还有哪些看点？](http://www.movie.hkepx.cn/xiju/8972635.htm)
+- [江西泥石流救援现场再次塌方](http://www.movie.hkepx.cn/xiju/5657270.htm)
+- [不同北京人的住处差异](http://www.movie.hkepx.cn/movie/4036246.htm)
+- [你觉得哪一项计算机技术被大众严重低估了？](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
+- [小沈阳在干嘛](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
+- [午夜轮班，伪人超市](http://www.movie.hkepx.cn/xiju/0860317.htm)
+- [学生卖黄金到账12.4万账户被冻结](http://www.daogukj.com/lyyagrpj/)
+- [如何看待彰化县长称郑丽文破坏选情？](http://www.daogukj.com/1732815)
+- [为什么轩辕剑系列没有仙剑系列火？](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
+- [[个人汉化]假面骑士麦斯MY-TH第1话《子鼠执事与大小姐》完整版 老鼠执事与生肖苏醒与Zodiac1之物语](http://www.daogukj.com/sokjghqt/)
 - [传播武汉大学举报 PDF 会涉嫌违法吗？如何从法律角度解读？](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
-- [第一批戴运动手环的受害者出现了](http://www.daogukj.com/fcgqpwva/)
-- [全网首发，爆肝12个小时唐吉第一阶段任务全流程](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
+- [车手放弃比赛冒死救人 车队发声](http://www.daogukj.com/fcgqpwva/)
+- [外国人真的像电影《龙餐馆》里一样喜欢中餐吗？](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
 
 </details>
 
 ## 原始来源
 
-- [花15元买了2斤蛤蜊吃出3颗珍珠](https://www.baidu.com/s?wd=%E8%8A%B115%E5%85%83%E4%B9%B0%E4%BA%862%E6%96%A4%E8%9B%A4%E8%9C%8A%E5%90%83%E5%87%BA3%E9%A2%97%E7%8F%8D%E7%8F%A0&sa=fyb_news&rsv_dl=fyb_news)
+- [你是说我钓鱼还得用枪吗？](https://b23.tv/BV1H6t26zEVw)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 72824acfc2ebbfa9f78c -->
+<!-- content-fingerprint: 78cb281c1df2c71608a5 -->
