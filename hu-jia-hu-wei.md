@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【剧情】良医 第七季（2024）01【弗莱迪·海默 / 佩奇·斯巴勒】
+# 网传“青铜峡大坝开始泄洪”系谣言
 
-> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：334412 · 分类：海外剧 · 更新：2026-09-06T06:20:36+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6851346 · 更新：2026-09-06T08:04:12+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【剧情】良医 第七季（2024）01【弗莱迪·海默 / 佩奇·斯巴勒】”位列第 10 位，公开热度指标为 334412，榜单分类为“海外剧”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“网传“青铜峡大坝开始泄洪”系谣言”位列第 10 位，公开热度指标为 6851346。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：年轻外科医生肖恩·墨菲（弗莱迪·海默 Freddie Highmore 饰）患有自闭症和学者综合症，他在著名的圣文德医院持续发挥卓越的医疗天赋，与此同时也在生活中不断成长。
+来源公开摘要显示：8月30日，青铜峡市水务局辟谣网传“青铜峡大坝开始泄洪”视频，明确近期未进行泄洪操作，水位小幅上涨系降雨所致的正常现象。此前，有网民误将水位变化当成泄洪并发布视频。目前，发布者已被教育训诫并删除该视频。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `海外剧`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [教授夫妇坠楼床上摆百万现金是谣言](yu-mu-hun-zhu.md)
-- [葫芦娃爷爷把葫芦剪掉了目击者发声](dong-shi-xiao-pin.md)
-- [港姐王菲与歌手张子丰宣布订婚](han-dan-xue-bu.md)
-- [惠灵顿牛排是什么？为什么这么火？](qi-ren-you-tian.md)
+- [贵中医二附院被捅伤医生仍在抢救](yu-mu-hun-zhu.md)
+- [8月辟谣榜](dong-shi-xiao-pin.md)
+- [贵中医二附院一医生疑被患者捅伤，一名肠癌患者将刀具藏在锦旗中带入，警方通报嫌疑人被刑拘，如何看待此事？](han-dan-xue-bu.md)
+- [【2026LPL第三赛段】9月5日 TES vs IG](qi-ren-you-tian.md)
 
 ## 站内推荐
 
-- [午夜轮班，伪人超市](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [全网首发，爆肝12个小时唐吉第一阶段任务全流程](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [你是说我钓鱼还得用枪吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [“龙叔，如果要选一个符咒，你选哪一个？”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [拉康：我们如何用一生，从别人那里偷来一个“我”？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [郑钦文打得对手疯狂砸头](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [车企“围攻”动力电池](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [花15元买了2斤蛤蜊吃出3颗珍珠](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [6500万从海外“抢”回《永乐大典》孤本](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [小沈阳嘴瓢把弹幕说成大幕](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [葫芦娃爷爷家门口“蛇精”真来了](http://www.daogukj.com/1906233)
-- [1岁裸体男童沙漠走失12小时被找到](http://www.movie.hkepx.cn/movie/8207551.htm)
-- [美国『林肯』号航母现身油漆脱落、遍布锈迹，这在航母日常维护中属于正常现象吗？](http://www.daogukj.com/dztmbdzh/)
-- [花15元买了2斤蛤蜊吃出3颗珍珠](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
-- [为什么当年小品《不差钱》要设计一个调侃「刀郎」的片段？](http://www.movie.hkepx.cn/xiju/7262543.htm)
-- [普京：乌克兰将人像狗一样赶上前线](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
-- [泥石流获救中国公民：一度不敢相信](http://www.movie.hkepx.cn/xiju/4947300.htm)
-- [青春华章](http://www.movie.hkepx.cn/xiju/5761043.htm)
-- [张雅琪被花少8剪掉了](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
-- [避孕药 血栓](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
-- [世界末日，却打不通最后一通电话💔《Payphone》](http://www.movie.hkepx.cn/movie/5688642.htm)
-- [史上最烂DC电影！万字赤石《超女》！](http://www.daogukj.com/jvdbiekb/)
-- [获救中国公民爬到了隧道最高处](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
-- [港姐王菲与歌手张子丰宣布订婚](http://www.movie.hkepx.cn/xiju/4016086.htm)
-- [前阿里高管在美失联身亡警方介入](http://www.movie.hkepx.cn/movie/2656990.htm)
-- [阿里巴巴前高管在美失踪后确认身亡](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
-- [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](http://www.movie.hkepx.cn/movie/6948720.htm)
-- [如果人人都可以通过 AI 写代码，程序员还需要存在吗？未来的程序员的工作会是什么？](http://www.movie.hkepx.cn/movie/3077263.htm)
-- [剧版《哈利·波特》新预告释出，观感如何？你对霍格沃茨还原、哈利、赫敏、罗恩、邓布利多等扮相满意吗？](http://www.movie.hkepx.cn/movie/1951037.htm)
-- [叶润泽淘汰](http://www.daogukj.com/0012222)
-- [惠灵顿牛排是什么？为什么这么火？](http://www.movie.hkepx.cn/movie/6159585.htm)
-- [贵中医二附院被捅伤医生仍在抢救](http://www.movie.hkepx.cn/xiju/3354539.htm)
-- [有没有某个瞬间，你觉得做科研特扯淡?](http://www.movie.hkepx.cn/movie/4882379.htm)
-- [汤家凤呼吁取消英语主科地位](http://www.movie.hkepx.cn/movie/1975079.htm)
-- [传播武汉大学举报 PDF 会涉嫌违法吗？如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
-- [超1万册永乐大典副本下落不明](http://www.movie.hkepx.cn/xiju/1921854.htm)
-- [厄尔尼诺即将达“超强”级别](http://www.daogukj.com/4901061)
-- [张学友大女儿近照曝光](http://www.daogukj.com/jetdabgu/)
-- [葫芦娃爷爷爆火“蛇精”来打卡](http://www.daogukj.com/7091816)
-- [耿同学锤刘光慧、曲静的《Nature》论文涉数据造假，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/5119801.htm)
-- [普京斥乌克兰将人民像狗一样赶上前线](http://www.daogukj.com/eozvjcki/)
-- [脂肪肝真的只是“吃得太好”吗](http://www.movie.hkepx.cn/movie/3647409.htm)
-- [《鲜花》被吐槽像菜市场买鲜花](http://www.daogukj.com/olnmglro/)
-- [父亲送女儿到郑州上大学直呼高大上](http://www.movie.hkepx.cn/movie/0305763.htm)
-- [剧本杀恋陪涉黄乱象](http://www.movie.hkepx.cn/xiju/5270802.htm)
-- [葫芦娃爷爷把葫芦剪掉了目击者发声](http://www.daogukj.com/novgnuvs/)
-- [曾辉果然还是跑调了](http://www.movie.hkepx.cn/movie/5479779.htm)
-- [你是说我钓鱼还得用枪吗？](http://www.daogukj.com/pimnqdhd/)
-- [“龙叔，如果要选一个符咒，你选哪一个？”](http://www.movie.hkepx.cn/movie/9614078.htm)
-- [郑钦文决胜盘连赢7局](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
-- [为什么希腊神话中赫拉是婚姻女神但是自己的婚姻却如此不幸？](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
-- [德甲第四轮，樊振东第一盘3-0胜鲁伊斯，第四盘3-0 胜杜达锁定胜局，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
-- [严子怡68米42夺冠](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
-- [小沈阳现场拉票演小品引争议](http://www.movie.hkepx.cn/xiju/1743642.htm)
-- [菲法院为何下令逮捕副总统](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
-- [iPhone 18系列售价曝光](http://www.movie.hkepx.cn/movie/7048621.htm)
-- [郑钦文回应惊天大逆转](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
-- [全网首发，爆肝12个小时唐吉第一阶段任务全流程](http://www.movie.hkepx.cn/movie/9217518.htm)
-- [折叠屏iPhone真机！全球首发「科技美学」再手搓iPhone Ultra 适配iOS折叠系统 那岩KJMX](http://www.daogukj.com/mmmeuyql/)
-- [王楚钦退赛「1000」分卫冕积分将清零，如何影响其世界排名及赛程？](http://www.movie.hkepx.cn/xiju/2283933.htm)
+- [编制不等于绝对稳定](http://www.daogukj.com/1906233)
+- [为什么当年小品《不差钱》要设计一个调侃「刀郎」的片段？](http://www.movie.hkepx.cn/movie/8207551.htm)
+- [慢下来，就会死！](http://www.daogukj.com/dztmbdzh/)
+- [小学靠吼初中靠忍高中靠哄大学靠钱](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
+- [我爱我的废技能](http://www.movie.hkepx.cn/xiju/7262543.htm)
+- [冉莹颖给爸爸三婚妻子塞钱](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
+- [惠灵顿牛排是什么？为什么这么火？](http://www.movie.hkepx.cn/xiju/4947300.htm)
+- [未来五年 健康生活“新”在哪](http://www.movie.hkepx.cn/xiju/5761043.htm)
+- [拍伪装车遭敲窗威胁称泄露就赔钱](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
+- [郑钦文对手遭逆转用球拍猛砸头部](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
+- [新能源汽车动力电池将迎“退役潮”](http://www.movie.hkepx.cn/movie/5688642.htm)
+- [决胜盘0比5落后连胜7局](http://www.daogukj.com/jvdbiekb/)
+- [超1万册永乐大典副本下落不明](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
+- [贵中医二附院一医生疑被患者捅伤，一名肠癌患者将刀具藏在锦旗中带入，警方通报嫌疑人被刑拘，如何看待此事？](http://www.movie.hkepx.cn/xiju/4016086.htm)
+- [郑钦文说总不能让她打个6-0](http://www.movie.hkepx.cn/movie/2656990.htm)
+- [女子回应5岁女儿病历上被医生标注刁蛮](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
+- [郑钦文电影级镜头](http://www.movie.hkepx.cn/movie/6948720.htm)
+- [“请与我一同，战胜时间的伟力。”](http://www.movie.hkepx.cn/movie/3077263.htm)
+- [评分7.1！当太阳升起就把昨天忘记！假面骑士ZZZ完结吐槽！](http://www.movie.hkepx.cn/movie/1951037.htm)
+- [获救中国公民曾爬隧道最高处等救援](http://www.daogukj.com/0012222)
+- [【2026LPL第三赛段】9月5日 TES vs IG](http://www.movie.hkepx.cn/movie/6159585.htm)
+- [美网官号称郑钦文是奇迹本迹](http://www.movie.hkepx.cn/xiju/3354539.htm)
+- [对面一个牢玩家李白，打我们这边4个牢玩家](http://www.movie.hkepx.cn/movie/4882379.htm)
+- [取消英语主科利弊](http://www.movie.hkepx.cn/movie/1975079.htm)
+- [世界末日，却打不通最后一通电话💔《Payphone》](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
+- [盖尔·加朵确认 DC 未计划她继续出演神奇女侠，这对于 DC 新电影宇宙意味着什么？](http://www.movie.hkepx.cn/xiju/1921854.htm)
+- [樊振东德甲输掉的全都赢回来了](http://www.daogukj.com/4901061)
+- [电视剧《大明王朝1566》里严党为什么要推行改稻为桑？](http://www.daogukj.com/jetdabgu/)
+- [联合国警告称升温1.5℃已无法避免，能做的只有压低超额升温，这是否意味着变暖要失控了？](http://www.daogukj.com/7091816)
+- [史上最烂DC电影！万字赤石《超女》！](http://www.movie.hkepx.cn/movie/5119801.htm)
+- [传播武汉大学举报 PDF 会涉嫌违法吗？如何从法律角度解读？](http://www.daogukj.com/eozvjcki/)
+- [德甲第四轮，樊振东第一盘3-0胜鲁伊斯，第四盘3-0 胜杜达锁定胜局，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/3647409.htm)
+- [汤家凤对历史不计入中考总分深感痛心](http://www.daogukj.com/olnmglro/)
+- [耿同学锤刘光慧、曲静的《Nature》论文涉数据造假，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/0305763.htm)
+- [中国会出现公认的第五个一线城市吗?](http://www.movie.hkepx.cn/xiju/5270802.htm)
+- [8月辟谣榜](http://www.daogukj.com/novgnuvs/)
+- [美网官推称郑钦文是奇迹本迹](http://www.movie.hkepx.cn/movie/5479779.htm)
+- [花15元买了2斤蛤蜊吃出3颗珍珠](http://www.daogukj.com/pimnqdhd/)
+- [6500万从海外“抢”回《永乐大典》孤本](http://www.movie.hkepx.cn/movie/9614078.htm)
+- [郑钦文下一轮迎战斯瓦泰克](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
+- [不同北京人的住处差异](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
+- [手机发明之前，人们就是这样手书的……完整版！【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
+- [港姐王菲与歌手张子丰宣布订婚](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
+- [栾念看到前男友气到嚼冰块](http://www.movie.hkepx.cn/xiju/1743642.htm)
+- [《周处除三害》导演新作《荡荡荡寇志》剧照流出，张家辉、阮经天、贾静雯造型颠覆，能复刻前作的口碑吗？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
+- [《死神千年血战篇》第四季祸进谭开播，如何评价第七集？](http://www.movie.hkepx.cn/movie/7048621.htm)
+- [iPhone 18系列售价曝光](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
+- [车企“围攻”动力电池](http://www.movie.hkepx.cn/movie/9217518.htm)
+- [普京与美总统特使会见超3小时](http://www.daogukj.com/mmmeuyql/)
+- [你是说我钓鱼还得用枪吗？](http://www.movie.hkepx.cn/xiju/2283933.htm)
 
 </details>
 
 ## 原始来源
 
-- [【剧情】良医 第七季（2024）01【弗莱迪·海默 / 佩奇·斯巴勒】](https://b23.tv/BV1MThw6NEv6)
+- [网传“青铜峡大坝开始泄洪”系谣言](https://www.baidu.com/s?wd=%E7%BD%91%E4%BC%A0%E2%80%9C%E9%9D%92%E9%93%9C%E5%B3%A1%E5%A4%A7%E5%9D%9D%E5%BC%80%E5%A7%8B%E6%B3%84%E6%B4%AA%E2%80%9D%E7%B3%BB%E8%B0%A3%E8%A8%80&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fda1361d46062cbb385e -->
+<!-- content-fingerprint: 156ce3656645c3dfefce -->
