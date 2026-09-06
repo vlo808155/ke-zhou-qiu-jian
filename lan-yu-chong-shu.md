@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 演员郑国霖回应成NPC顶流：剧本多了
+# “塞夫”拍完告别戏崩溃大哭
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6944873 · 更新：2026-09-07T06:08:15+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6944186 · 更新：2026-09-07T07:56:52+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“演员郑国霖回应成NPC顶流：剧本多了”位列第 9 位，公开热度指标为 6944873。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““塞夫”拍完告别戏崩溃大哭”位列第 9 位，公开热度指标为 6944186。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，演员郑国霖在接受采访时，回应被网友称为“NPC顶流”，面对这个称呼，他直言自己是普通打工人而已。郑国霖表示有流量、关注度之后，找上门的剧本多了很多。
+来源公开摘要显示：塞夫拍完《欢迎来龙餐馆》告别戏后久久走不出情绪，看回放时崩溃大哭，导演连忙伸手安抚。此前在戏中，塞夫眼睁睁看着像父亲一样的师父被带走，一句“没事，孩子”成最后告别。因入戏太深，戏里戏外一样催泪。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [半个娱乐圈明星都去李宇春演唱会](zi-xiang-mao-dun.md)
-- [校长回应开学一年级只有一个人报到](bei-gong-she-ying.md)
-- [如何看待联合国倡导使用“平等地球投影法”，这会让统治地图圈几百年的“墨卡托投影”彻底退出历史舞台吗？](jing-gong-zhi-niao.md)
-- [【早期视频】逃离电视宝宝联机，绝命逃亡](hu-jia-hu-wei.md)
+- [刘耀文说错话丁程鑫的表情](zi-xiang-mao-dun.md)
+- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](bei-gong-she-ying.md)
+- [【早期视频】逃离电视宝宝联机，绝命逃亡](jing-gong-zhi-niao.md)
+- [“一吨旧手机提炼200克黄金”不实](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [滕王阁 终身免费票](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [井柏然的两次扔行李箱](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [年轻人正在“忘记”打字](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [尿酸高的人适当多喝这3种粥](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [8家中央金融企业迎来增资 有何考量](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [葫芦爷爷剪的不是葫芦是流量喧嚣](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [同名同姓同年同月同日生同校同专业](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [婚内强奸案男子性侵妻子拍下视频](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [陈晓妈妈仍会帮陈妍希带孩子](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [中国博主伦敦直播遭外籍青年挑衅殴打](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [北京的路边摊都去了哪儿](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [阿森纳切尔西 互捅局](http://www.daogukj.com/axnomarx/)
-- [安徽 新“五子登科”](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [花少2摄影师曾劝杨洋明天跑吧](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [什么！“紫色的蜂蜜？如果给蜜蜂喂火龙果里的天然色素，会不会吧蜂巢里的“蜂蜜”也染色？今天就来做一下实验！看看会不会酿造出“紫色的蜂蜜”！](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [62岁后睡觉尽量做到这4点](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [章泽天专访何超琼时被指采访深度不足，甚至出现「主客反转」，你如何评价她的采访水平？](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [萨巴伦卡vs汤森德](http://www.daogukj.com/9955752)
-- [相约“青春华章”](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [张家齐一直在被妈妈吐槽](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [美网认证郑钦文Queen](http://www.daogukj.com/axnomarx/)
+- [400元买块“塑料砖头”戒手机](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [张纪中妻子备孕5胎](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [胡明轩飞赴日本途中看女篮直播](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [《圣斗士》作者被骗 46 亿，这部童年经典是否将面临烂尾结局？](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [我把汉堡搬到了星星上](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [工作人员曾反复劝阻女孩赴港看演唱会](http://www.daogukj.com/9955752)
+- [“电动中国，靠你们了！”](http://www.movie.hkepx.cn/movie/6160167.htm)
 - [《下一个是谁》第七季（4）](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [赴港看演唱会被取消低保？当地回应](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [陈妍希离婚后首谈二胎](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [如何看待张家齐已是奥运冠军，妈妈却仍因她不会收拾、整理而频繁数落？暴露了怎样的亲子关系问题？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [你知道的最震惊的冷知识是什么？](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [青春华章向新而行](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [ETC该不该取消](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [中国节水账本里的“节约密码”](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [小区禁止新能源汽车进地库 律师解读](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [大家不爱住民宿了吗](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [杨舒予绝平](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [5岁女童电子病历被医生标注“刁蛮”，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [谁在郑钦文低谷期选择了“不分手”](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [尿酸高的人适当多喝这3种粥](http://www.daogukj.com/2395514)
-- [中国女篮力克捷克 出线占据主动](http://www.daogukj.com/6574038)
-- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](http://www.daogukj.com/ajcuxydy/)
-- [“塞夫”拍完告别戏崩溃大哭](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [8家中央金融企业迎来增资 有何考量](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [肖战背后拍爸妈看李宇春演唱会](http://www.daogukj.com/cfeqrkjc/)
-- [三年之期已到，恭迎世一上归位！【第7集】](http://www.daogukj.com/rkkegwyy/)
-- [井柏然的两次扔行李箱](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [如何看待联合国倡导使用“平等地球投影法”，这会让统治地图圈几百年的“墨卡托投影”彻底退出历史舞台吗？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [网友便宜出售莆田泡水鞋 商家打假](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [校长回应开学一年级只有一个人报到](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [加时死里逃生，中国女篮 74-70 逆转捷克，韩旭砍 22+14，杨舒予 18分5助，如何评价本场？](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [财政部将发行3000亿特别国债](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [我去了世界最大的男女混浴温泉瀑布，泡起来到底多刺激？](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [女子怀孕后工资从8000调到3000](http://www.daogukj.com/8099191)
-- [央视曝光幽灵外卖乱象](http://www.daogukj.com/vrvcskzj/)
-- [多家银行清理百亿不良](http://www.daogukj.com/lbbxrvry/)
-- [《绝区零》克拉蕾EP | Link Up 血火相连](http://www.daogukj.com/9295095)
-- [中国女篮大概率小组出线](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [400元买块“塑料砖头”戒手机](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [爷爷提前剪葫芦是给流量的一记耳光](http://www.daogukj.com/7435478)
-- [阿森纳2比1切尔西](http://www.daogukj.com/kwdurrnw/)
-- [【招笑版】新僵尸1:健忘撑杆跳](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [同名同姓同年同月同日生同校同专业](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [年轻人正在“忘记”打字](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [白露时节如何养生](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [中国需要多久达到或超过 GPT-6 Astra 级别的模型水平？](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [农行拟募资不超过1600亿元，工行拟募资不超过1000亿元，均用于补充资本，如何解读？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [用手还原badapple-终于还是走到了这一步](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [安徽造车F4齐聚中国科大](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [贵州中医二附院发生伤医事件，嫌疑人将刀藏于锦旗中捅伤医生，为什么医院不能强制进行高级别安检？](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [这里是中国科大](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [付费飞机餐走红 你愿意买单吗](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [官方回应赴港看演唱会被取消全家低保](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [财政部将发行3000亿特别国债](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [我去了世界最大的男女混浴温泉瀑布，泡起来到底多刺激？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [胖东来要求供应商提供社保，此举对行业发展有何影响？](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [家长反对交600元请保洁扫教室被禁言，这暴露出什么问题？现在的学生连打扫教室都不会了吗？](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [陈晓妈妈仍会帮陈妍希带孩子](http://www.daogukj.com/2395514)
+- [5岁女孩哭着抢收稻谷伙伴纷纷赶来](http://www.daogukj.com/6574038)
+- [北京的路边摊都去了哪儿](http://www.daogukj.com/ajcuxydy/)
+- [华为 韬定律](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [中国博主伦敦直播遭外籍青年挑衅殴打](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [10大含微塑料的日用品](http://www.daogukj.com/cfeqrkjc/)
+- [怎么有网友让我走到西藏啊…](http://www.daogukj.com/rkkegwyy/)
+- [同名同姓同年同月同日生同校同专业](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [【早期视频】逃离电视宝宝联机，绝命逃亡](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [ETC该不该取消](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [手机涨价消费者为何不买账](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [终南山“绿色怪虫”身份揭晓](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [《崩坏：星穹铁道》千星纪游PV——「深水区」](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [挖眼案男孩操作手机完成报到](http://www.daogukj.com/8099191)
+- [章泽天专访何超琼时被指采访深度不足，甚至出现「主客反转」，你如何评价她的采访水平？](http://www.daogukj.com/vrvcskzj/)
+- [多地严查赵一鸣等零食品牌](http://www.daogukj.com/lbbxrvry/)
+- [三年之期已到，恭迎世一上归位！【第7集】](http://www.daogukj.com/9295095)
+- [华为Mate XT 2蓄势待发](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [半个娱乐圈明星都去李宇春演唱会](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [肖战背后拍爸妈看李宇春演唱会](http://www.daogukj.com/7435478)
+- [女子怀孕后工资从8000调到3000](http://www.daogukj.com/kwdurrnw/)
+- [美货机冲出跑道撞车爆燃 多人死伤](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [女子月捐数年无人问 停捐后遭催捐](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [婚内强奸案男子性侵妻子拍下视频](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [演员郑国霖回应成NPC顶流：剧本多了](https://www.baidu.com/s?wd=%E6%BC%94%E5%91%98%E9%83%91%E5%9B%BD%E9%9C%96%E5%9B%9E%E5%BA%94%E6%88%90NPC%E9%A1%B6%E6%B5%81%EF%BC%9A%E5%89%A7%E6%9C%AC%E5%A4%9A%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [“塞夫”拍完告别戏崩溃大哭](https://www.baidu.com/s?wd=%E2%80%9C%E5%A1%9E%E5%A4%AB%E2%80%9D%E6%8B%8D%E5%AE%8C%E5%91%8A%E5%88%AB%E6%88%8F%E5%B4%A9%E6%BA%83%E5%A4%A7%E5%93%AD&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4538495373b362aafd52 -->
+<!-- content-fingerprint: 9e675e217e1b13d62dd9 -->

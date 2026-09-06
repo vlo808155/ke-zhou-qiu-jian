@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！
+# 惨遭伤害永久失明男孩完成大学报到
 
-> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：534877 · 分类：单机游戏 · 更新：2026-09-07T06:08:15+08:00
+> 来源：百度热搜 · 排名：第 12 位 · 热度：6656785 · 更新：2026-09-07T07:56:52+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！”位列第 12 位，公开热度指标为 534877，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“惨遭伤害永久失明男孩完成大学报到”位列第 12 位，公开热度指标为 6656785。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：爆肝赶工！缆车末日第三期来了！ 小伙伴们是不是都开学了？！ 安慰大家一下，九月请 3 天假，直接解锁 13 天超长假期！ 这期三连综合破 10 万，立马安排下一期更新！ 整合包来自 @Q弹的果冻c ，记得多多支持作者！
+来源公开摘要显示：9月6日，曾因遭遇伤害永久失明、备受社会关注的山西男孩郭斌赴长春大学报到，依靠手机独立完成报到流程，迈入大学新阶段。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [除了惊天逆转 郑钦文还有高情商发言](ke-zhou-qiu-jian.md)
-- [腿上冒出小鼓包要注意了](yan-er-dao-ling.md)
-- [财政部将发行3000亿特别国债](nan-yuan-bei-zhe.md)
-- [《花儿与少年 2》被誉为内娱综艺史上无法超越的巅峰，如何评价其历史地位？](mai-du-huan-zhu.md)
+- [7个村庄采水点 一滴真实水样也没采](ke-zhou-qiu-jian.md)
+- [为啥大家不穿皮鞋了](yan-er-dao-ling.md)
+- [手机涨价消费者为何不买账](nan-yuan-bei-zhe.md)
+- [如何看待特斯拉股价单日大跌近 6%？Cybercab上线一天便遭审查，无方向盘、刹车板的车型有何隐患？](mai-du-huan-zhu.md)
 
 ## 站内推荐
 
 - [当你吃出口腔溃疡时体内正在发生什么](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [三年之期已到，恭迎世一上归位！【第7集】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [【早期视频】逃离电视宝宝联机，绝命逃亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [【招笑版】新僵尸1:健忘撑杆跳](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [《杜鹃》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [怎么有网友让我走到西藏啊…](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [“一吨旧手机提炼200克黄金”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [美货机冲出跑道撞车爆燃 多人死伤](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [巴萨客场5比0大胜 亚马尔梅开二度](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“东山再起”的东山在哪](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
-- [官方回应赴港看演唱会被取消全家低保](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
-- [谁在郑钦文低谷期选择了“不分手”](http://www.daogukj.com/tqrulkrm/)
-- [财政部将发行3000亿特别国债](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
-- [8家中央金融企业迎来增资 有何考量](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
-- [演员郑国霖回应成NPC顶流：剧本多了](http://www.daogukj.com/2903535)
-- [我把汉堡搬到了星星上](http://www.movie.hkepx.cn/movie/8396411.htm)
-- [“一吨旧手机提炼200克黄金”不实](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
-- [除了惊天逆转 郑钦文还有高情商发言](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
-- [网传“青铜峡大坝开始泄洪”系谣言](http://www.movie.hkepx.cn/movie/7093450.htm)
-- [婚内强奸案男子性侵妻子拍下视频](http://www.daogukj.com/2824694)
-- [华为 韬定律](http://www.daogukj.com/yjkpaybt/)
-- [女子怀孕后工资从8000调到3000](http://www.daogukj.com/9138421)
-- [如何看待联合国倡导使用“平等地球投影法”，这会让统治地图圈几百年的“墨卡托投影”彻底退出历史舞台吗？](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
-- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](http://www.movie.hkepx.cn/xiju/5067207.htm)
-- [中国女篮力克捷克 出线占据主动](http://www.daogukj.com/7199630)
-- [A股转折点：从水牛到盈利牛](http://www.movie.hkepx.cn/movie/6135897.htm)
-- [中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
-- [井柏然的两次扔行李箱](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
-- [郑钦文美网惊天逆转](http://www.daogukj.com/2412867)
-- [江西一低保家庭女孩自己攒钱去香港看演唱会，网传其全家低保资格被取消，当地民政局回应正在核查，你怎么看？](http://www.daogukj.com/0344516)
-- [中国博主伦敦直播遭外籍青年挑衅殴打](http://www.movie.hkepx.cn/movie/0187296.htm)
-- [青春华章向新而行](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
-- [校长回应开学一年级只有一个人报到](http://www.daogukj.com/qfjukyqn/)
-- [LPL四强出炉](http://www.daogukj.com/uumjcsie/)
-- [中国女篮vs捷克女篮](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
-- [我去了世界最大的男女混浴温泉瀑布，泡起来到底多刺激？](http://www.movie.hkepx.cn/movie/7623929.htm)
-- [贵中医二附院一医生疑被患者捅伤，一名肠癌患者将刀具藏在锦旗中带入，警方通报嫌疑人被刑拘，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
-- [央视曝光幽灵外卖乱象](http://www.movie.hkepx.cn/movie/8313935.htm)
-- [全球首个乙肝功能性治愈新药日本获批，慢性乙肝患者这下真能摆脱终身服药了吗？](http://www.daogukj.com/fqjpdyus/)
+- [当年火得一塌糊涂如今却销声匿迹的东西](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
+- [大家不爱住民宿了吗](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
+- [家长反对交600元请保洁扫教室被禁言，这暴露出什么问题？现在的学生连打扫教室都不会了吗？](http://www.daogukj.com/tqrulkrm/)
+- [手机涨价消费者为何不买账](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
+- [中国博主伦敦直播遭外籍青年挑衅殴打](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
+- [“塞夫”拍完告别戏崩溃大哭](http://www.daogukj.com/2903535)
+- [《绝区零》克拉蕾EP | Link Up 血火相连](http://www.movie.hkepx.cn/movie/8396411.htm)
+- [陈晓陈妍希好体面](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
+- [7个村庄采水点 一滴真实水样也没采](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
+- [中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？](http://www.movie.hkepx.cn/movie/7093450.htm)
+- [郭富城称碰到刘德华张学友会聊育女经](http://www.daogukj.com/2824694)
+- [媒体人：张子宇速度劣势被放大](http://www.daogukj.com/yjkpaybt/)
+- [挖眼案男孩操作手机完成报到](http://www.daogukj.com/9138421)
+- [【早期视频】逃离电视宝宝联机，绝命逃亡](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
+- [北京的路边摊都去了哪儿](http://www.movie.hkepx.cn/xiju/5067207.htm)
+- [5岁女孩哭着抢收稻谷伙伴纷纷赶来](http://www.daogukj.com/7199630)
+- [女生赴港看演唱会被取消低保](http://www.movie.hkepx.cn/movie/6135897.htm)
+- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
+- [同名同姓同年同月同日生同校同专业](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
+- [毛阿敏工作室早期博文 活人感](http://www.daogukj.com/2412867)
+- [多地严查赵一鸣、好想来等量贩零食品牌，有人买4块牛肉干64.58元复秤17.29元，暴露出哪些问题？](http://www.daogukj.com/0344516)
+- [中国女篮力克捷克 出线占据主动](http://www.movie.hkepx.cn/movie/0187296.htm)
+- [安徽造车F4齐聚中国科大](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
+- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](http://www.daogukj.com/qfjukyqn/)
+- [葫芦爷爷提前剪葫芦 游客们表示理解](http://www.daogukj.com/uumjcsie/)
+- [折叠屏手机迎超级发布周](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
+- [终南山“绿色怪虫”身份揭晓](http://www.movie.hkepx.cn/movie/7623929.htm)
+- [困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
+- [章泽天专访何超琼时被指采访深度不足，甚至出现「主客反转」，你如何评价她的采访水平？](http://www.movie.hkepx.cn/movie/8313935.htm)
+- [《杜鹃》](http://www.daogukj.com/fqjpdyus/)
 - [【独家】牧神记 第99集 医毒斗法](http://www.daogukj.com/5983723)
-- [多家银行清理百亿不良](http://www.movie.hkepx.cn/xiju/4176767.htm)
-- [中国节水账本里的“节约密码”](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
-- [张纪中妻子备孕5胎](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
-- [阿森纳切尔西 互捅局](http://www.movie.hkepx.cn/movie/8664223.htm)
-- [加时死里逃生，中国女篮 74-70 逆转捷克，韩旭砍 22+14，杨舒予 18分5助，如何评价本场？](http://www.movie.hkepx.cn/movie/1942982.htm)
-- [安徽 新“五子登科”](http://www.movie.hkepx.cn/movie/5767803.htm)
-- [多地严查赵一鸣、好想来等量贩零食品牌，有人买4块牛肉干64.58元复秤17.29元，暴露出哪些问题？](http://www.movie.hkepx.cn/xiju/8972635.htm)
-- [中国女篮大概率小组出线](http://www.movie.hkepx.cn/xiju/5657270.htm)
-- [我爸是老总，公司大部分女性都是他情人，还有5个私生子，又用我的名字贷了巨款，让我无法翻身【探照灯计划】](http://www.movie.hkepx.cn/movie/4036246.htm)
-- [章泽天专访何超琼时被指采访深度不足，甚至出现「主客反转」，你如何评价她的采访水平？](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
-- [腿上冒出小鼓包要注意了](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
+- [多地严查赵一鸣等零食品牌](http://www.movie.hkepx.cn/xiju/4176767.htm)
+- [这里是中国科大](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
+- [如何看待阿根廷总统米莱表示，英国应像把香港归还给中国一样，把马岛归还给阿根廷，阿方可接受香港模式？](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
+- [美网认证郑钦文Queen](http://www.movie.hkepx.cn/movie/8664223.htm)
+- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](http://www.movie.hkepx.cn/movie/1942982.htm)
+- [400元买块“塑料砖头”戒手机](http://www.movie.hkepx.cn/movie/5767803.htm)
+- [财政部将向中国工商银行等八家金融央企增资共计 3600 亿元，如何解读？](http://www.movie.hkepx.cn/xiju/8972635.htm)
+- [华为Mate XT 2蓄势待发](http://www.movie.hkepx.cn/xiju/5657270.htm)
+- [井柏然的两次扔行李箱](http://www.movie.hkepx.cn/movie/4036246.htm)
+- [我把汉堡搬到了星星上](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
+- [为啥大家不穿皮鞋了](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
 - [《下一个是谁》第七季（4）](http://www.movie.hkepx.cn/xiju/0860317.htm)
-- [北京的路边摊都去了哪儿](http://www.daogukj.com/lyyagrpj/)
-- [如何看待阿根廷总统米莱表示，英国应像把香港归还给中国一样，把马岛归还给阿根廷，阿方可接受香港模式？](http://www.daogukj.com/1732815)
-- [400元买块“塑料砖头”戒手机](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
-- [西部神枪手快意恩仇，亲手报血海深仇后，却坠入一场惊天大阴谋](http://www.daogukj.com/sokjghqt/)
-- [萌娃进滕王阁 系统提示终身免费票](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
-- [阿森纳2比1切尔西](http://www.daogukj.com/fcgqpwva/)
-- [胖东来要求供应商提供社保，此举对行业发展有何影响？](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
+- [张家齐一直在被妈妈吐槽](http://www.daogukj.com/lyyagrpj/)
+- [假如格林穿越到了re0的世界（王选篇3）](http://www.daogukj.com/1732815)
+- [半个娱乐圈明星都去李宇春演唱会](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
+- [“东山再起”的东山在哪](http://www.daogukj.com/sokjghqt/)
+- [为什么今年的脱口秀比赛不温不火？是不好笑了还是大家都不爱看了？](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
+- [女子怀孕后工资从8000调到3000](http://www.daogukj.com/fcgqpwva/)
+- [5 岁女童电子病历被医生标注「刁蛮」，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
 
 </details>
 
 ## 原始来源
 
-- [困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！](https://b23.tv/BV1SBb763EAJ)
+- [惨遭伤害永久失明男孩完成大学报到](https://www.baidu.com/s?wd=%E6%83%A8%E9%81%AD%E4%BC%A4%E5%AE%B3%E6%B0%B8%E4%B9%85%E5%A4%B1%E6%98%8E%E7%94%B7%E5%AD%A9%E5%AE%8C%E6%88%90%E5%A4%A7%E5%AD%A6%E6%8A%A5%E5%88%B0&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 37f99524cae9998934b3 -->
+<!-- content-fingerprint: 749456bd133d4ecb3e80 -->

@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？
+# 全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：115 万热度 · 分类：问答 · 更新：2026-09-07T06:08:15+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：812001 · 分类：网络游戏 · 更新：2026-09-07T07:56:52+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？”位列第 11 位，公开热度指标为 115 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！”位列第 11 位，公开热度指标为 812001，榜单分类为“网络游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月4日，在出席咪咕和中国之队的赛事发布会时，中国足协主席宋凯发表了一段讲话。 宋凯首先表示：我们有时候工作的原因，可能直播看不到了，但是我必定要跑到办公室，把我的电视上投屏，世界杯比赛我就是这么度过的。有时候可能是1点、 3 点钟比赛，可能因为工作的关系看不了，但是我世界杯期间 5 点就跑到办公室，打开电视，把咪咕调出来，把这个比赛再看一遍。 宋凯说：“我发现从今年开始，中国足球上下动起来了，中国足球起势了，我们今年上半年创造了二十几年历史，拿了两个亚军，不是偶然的。感谢全国上下对足球的关注、投入和支持，感谢球迷一直热爱、支持、鼓励中国足球。我相信未来
+来源公开摘要显示：生日爆肝有没有懂得！ 签约B站了！有KPI了！大家点点赞感谢
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `网络游戏`
 
 ## 相关热点
 
-- [西部神枪手快意恩仇，亲手报血海深仇后，却坠入一场惊天大阴谋](chao-san-mu-si.md)
-- [年轻人正在“忘记”打字](dui-niu-tan-qin.md)
-- [婚内强奸案男子性侵妻子拍下视频](mang-ren-mo-xiang.md)
-- [张纪中妻子备孕5胎](yuan-mu-qiu-yu.md)
+- [“东山再起”的东山在哪](chao-san-mu-si.md)
+- [婚内强奸案男子性侵妻子拍下视频](dui-niu-tan-qin.md)
+- [郭富城称碰到刘德华张学友会聊育女经](mang-ren-mo-xiang.md)
+- [如何看待阿根廷总统米莱表示，英国应像把香港归还给中国一样，把马岛归还给阿根廷，阿方可接受香港模式？](yuan-mu-qiu-yu.md)
 
 ## 站内推荐
 
-- [江西一低保家庭女孩自己攒钱去香港看演唱会，网传其全家低保资格被取消，当地民政局回应正在核查，你怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [《花儿与少年 2》被誉为内娱综艺史上无法超越的巅峰，如何评价其历史地位？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [章泽天专访何超琼时被指采访深度不足，甚至出现「主客反转」，你如何评价她的采访水平？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [5岁女童电子病历被医生标注“刁蛮”，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [多地严查赵一鸣、好想来等量贩零食品牌，有人买4块牛肉干64.58元复秤17.29元，暴露出哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [胖东来要求供应商提供社保，此举对行业发展有何影响？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [如何看待特斯拉股价单日大跌近 6%？Cybercab上线一天便遭审查，无方向盘、刹车板的车型有何隐患？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [我把汉堡搬到了星星上](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [我去了世界最大的男女混浴温泉瀑布，泡起来到底多刺激？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [萨巴伦卡vs汤森德](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
-- [【早期视频】逃离电视宝宝联机，绝命逃亡](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
-- [中国需要多久达到或超过 GPT-6 Astra 级别的模型水平？](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
-- [肖战背后拍爸妈看李宇春演唱会](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
-- [演员郑国霖回应成NPC顶流：剧本多了](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
-- [如何看待张家齐已是奥运冠军，妈妈却仍因她不会收拾、整理而频繁数落？暴露了怎样的亲子关系问题？](http://www.movie.hkepx.cn/xiju/2772866.htm)
+- [工作人员曾反复劝阻女孩赴港看演唱会](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
+- [“一吨旧手机提炼200克黄金”不实](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
+- [我爸是老总，公司大部分女性都是他情人，还有5个私生子，又用我的名字贷了巨款，让我无法翻身【探照灯计划】](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
+- [10大含微塑料的日用品](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
+- [“塞夫”拍完告别戏崩溃大哭](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
+- [农行拟募资不超过1600亿元，工行拟募资不超过1000亿元，均用于补充资本，如何解读？](http://www.movie.hkepx.cn/xiju/2772866.htm)
 - [《下一个是谁》第七季（4）](http://www.movie.hkepx.cn/movie/8157133.htm)
-- [什么！“紫色的蜂蜜？如果给蜜蜂喂火龙果里的天然色素，会不会吧蜂巢里的“蜂蜜”也染色？今天就来做一下实验！看看会不会酿造出“紫色的蜂蜜”！](http://www.movie.hkepx.cn/movie/3703338.htm)
-- [校长回应开学一年级只有一个人报到](http://www.movie.hkepx.cn/xiju/3368241.htm)
-- [腿上冒出小鼓包要注意了](http://www.movie.hkepx.cn/movie/9040401.htm)
-- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](http://www.movie.hkepx.cn/movie/7194765.htm)
-- [400元买块“塑料砖头”戒手机](http://www.movie.hkepx.cn/movie/6128990.htm)
-- [5岁女童电子病历被医生标注“刁蛮”，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
-- [中国女篮vs捷克女篮](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
-- [《崩坏：星穹铁道》千星纪游PV——「深水区」](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
-- [八国外长联合声明强烈谴责以色列](http://www.movie.hkepx.cn/movie/4858272.htm)
-- [我爸是老总，公司大部分女性都是他情人，还有5个私生子，又用我的名字贷了巨款，让我无法翻身【探照灯计划】](http://www.daogukj.com/bfxepwya/)
-- [爷爷提前剪葫芦是给流量的一记耳光](http://www.movie.hkepx.cn/xiju/4024765.htm)
-- [多地严查赵一鸣等零食品牌](http://www.movie.hkepx.cn/xiju/0737631.htm)
-- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
-- [“一吨旧手机提炼200克黄金”不实](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
-- [半个娱乐圈明星都去李宇春演唱会](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
-- [井柏然的两次扔行李箱](http://www.movie.hkepx.cn/xiju/7334347.htm)
-- [如何看待联合国倡导使用“平等地球投影法”，这会让统治地图圈几百年的“墨卡托投影”彻底退出历史舞台吗？](http://www.daogukj.com/7849300)
-- [女生赴港看演唱会被取消低保](http://www.daogukj.com/aozagmkd/)
-- [西部神枪手快意恩仇，亲手报血海深仇后，却坠入一场惊天大阴谋](http://www.daogukj.com/ioafjlkc/)
-- [张纪中妻子备孕5胎](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
-- [官方回应赴港看演唱会被取消全家低保](http://www.movie.hkepx.cn/xiju/2137446.htm)
-- [青春华章向新而行](http://www.daogukj.com/0166884)
-- [加时死里逃生，中国女篮 74-70 逆转捷克，韩旭砍 22+14，杨舒予 18分5助，如何评价本场？](http://www.movie.hkepx.cn/movie/0848231.htm)
-- [“东山再起”的东山在哪](http://www.daogukj.com/tckpumpu/)
-- [A股转折点：从水牛到盈利牛](http://www.daogukj.com/0292547)
-- [胖东来要求供应商提供社保，此举对行业发展有何影响？](http://www.daogukj.com/hejavvee/)
-- [阿森纳2比1切尔西](http://www.movie.hkepx.cn/xiju/2863382.htm)
-- [财政部将向中国工商银行等八家金融央企增资共计 3600 亿元，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
-- [工作人员曾反复劝阻女孩赴港看演唱会](http://www.daogukj.com/gurgtiup/)
-- [困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
-- [网传“青铜峡大坝开始泄洪”系谣言](http://www.daogukj.com/nlwlvqny/)
-- [中国女篮力克捷克 出线占据主动](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
-- [女子怀孕后工资从8000调到3000](http://www.daogukj.com/4367144)
+- [胡明轩飞赴日本途中看女篮直播](http://www.movie.hkepx.cn/movie/3703338.htm)
+- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](http://www.movie.hkepx.cn/xiju/3368241.htm)
+- [为啥大家不穿皮鞋了](http://www.movie.hkepx.cn/movie/9040401.htm)
+- [《崩坏：星穹铁道》千星纪游PV——「深水区」](http://www.movie.hkepx.cn/movie/7194765.htm)
+- [半个娱乐圈明星都去李宇春演唱会](http://www.movie.hkepx.cn/movie/6128990.htm)
+- [我去了世界最大的男女混浴温泉瀑布，泡起来到底多刺激？](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
+- [折叠屏手机迎超级发布周](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
+- [【招笑版】新僵尸1:健忘撑杆跳](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
+- [女孩攒钱赴港看演唱会疑被取消低保，法律上是怎样设置这种资格标准的？若全家被取消资格，​后续生活怎么办？](http://www.movie.hkepx.cn/movie/4858272.htm)
+- [井柏然的两次扔行李箱](http://www.daogukj.com/bfxepwya/)
+- [肖战背后拍爸妈看李宇春演唱会](http://www.movie.hkepx.cn/xiju/4024765.htm)
+- [“姜健”号驱逐舰正式入列朝鲜海军](http://www.movie.hkepx.cn/xiju/0737631.htm)
+- [如何评价据传iPhone 18 Pro 9999元起，Ultra 14999元起，新增红色和蓝色款？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
+- [陈晓陈妍希好体面](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
+- [刘耀文说错话丁程鑫的表情](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
+- [同名同姓同年同月同日生同校同专业](http://www.movie.hkepx.cn/xiju/7334347.htm)
+- [【早期视频】逃离电视宝宝联机，绝命逃亡](http://www.daogukj.com/7849300)
+- [“葫芦娃爷爷”隔壁阳台挂起7个葫芦](http://www.daogukj.com/aozagmkd/)
+- [“东山再起”的东山在哪](http://www.daogukj.com/ioafjlkc/)
+- [如何看待阿根廷总统米莱表示，英国应像把香港归还给中国一样，把马岛归还给阿根廷，阿方可接受香港模式？](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
+- [大家不爱住民宿了吗](http://www.movie.hkepx.cn/xiju/2137446.htm)
+- [安徽造车F4齐聚中国科大](http://www.daogukj.com/0166884)
+- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](http://www.movie.hkepx.cn/movie/0848231.htm)
+- [当年火得一塌糊涂如今却销声匿迹的东西](http://www.daogukj.com/tckpumpu/)
+- [女生赴港看演唱会被取消低保](http://www.daogukj.com/0292547)
+- [5 岁女童电子病历被医生标注「刁蛮」，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](http://www.daogukj.com/hejavvee/)
+- [女子怀孕后工资从8000调到3000](http://www.movie.hkepx.cn/xiju/2863382.htm)
+- [江西一低保家庭女孩自己攒钱去香港看演唱会，网传其全家低保资格被取消，当地民政局回应正在核查，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
+- [网传“青铜峡大坝开始泄洪”系谣言](http://www.daogukj.com/gurgtiup/)
+- [惨遭伤害永久失明男孩完成大学报到](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
+- [中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？](http://www.daogukj.com/nlwlvqny/)
+- [5岁女孩哭着抢收稻谷伙伴纷纷赶来](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
+- [挖眼案男孩操作手机完成报到](http://www.daogukj.com/4367144)
 - [华强买瓜，但死神来了](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
-- [贵中医二附院一医生疑被患者捅伤，一名肠癌患者将刀具藏在锦旗中带入，警方通报嫌疑人被刑拘，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
-- [全球首个乙肝功能性治愈新药日本获批，慢性乙肝患者这下真能摆脱终身服药了吗？](http://www.movie.hkepx.cn/movie/3421929.htm)
-- [小区禁止新能源汽车进地库 律师解读](http://www.movie.hkepx.cn/xiju/7147911.htm)
-- [中国女篮大概率小组出线](http://www.movie.hkepx.cn/xiju/5231443.htm)
-- [婚内强奸案男子性侵妻子拍下视频](http://www.daogukj.com/hwjpoycr/)
-- [年轻人正在“忘记”打字](http://www.movie.hkepx.cn/movie/7786575.htm)
-- [多地严查赵一鸣、好想来等量贩零食品牌，有人买4块牛肉干64.58元复秤17.29元，暴露出哪些问题？](http://www.movie.hkepx.cn/movie/1630389.htm)
-- [《圣斗士》作者被骗 46 亿，这部童年经典是否将面临烂尾结局？](http://www.daogukj.com/ijajouly/)
-- [《花儿与少年 2》被誉为内娱综艺史上无法超越的巅峰，如何评价其历史地位？](http://www.daogukj.com/7130534)
+- [困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
+- [《杜鹃》](http://www.movie.hkepx.cn/movie/3421929.htm)
+- [付费飞机餐走红 你愿意买单吗](http://www.movie.hkepx.cn/xiju/7147911.htm)
+- [华为Mate XT 2蓄势待发](http://www.movie.hkepx.cn/xiju/5231443.htm)
+- [郭富城称碰到刘德华张学友会聊育女经](http://www.daogukj.com/hwjpoycr/)
+- [婚内强奸案男子性侵妻子拍下视频](http://www.movie.hkepx.cn/movie/7786575.htm)
+- [财政部将向中国工商银行等八家金融央企增资共计 3600 亿元，如何解读？](http://www.movie.hkepx.cn/movie/1630389.htm)
+- [西部神枪手快意恩仇，亲手报血海深仇后，却坠入一场惊天大阴谋](http://www.daogukj.com/ijajouly/)
+- [如何看待特斯拉股价单日大跌近 6%？Cybercab上线一天便遭审查，无方向盘、刹车板的车型有何隐患？](http://www.daogukj.com/7130534)
 
 </details>
 
 ## 原始来源
 
-- [中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？](https://www.zhihu.com/question/2079634074000531636)
+- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](https://b23.tv/BV1X5bE62EbZ)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0abce73111c3057cec39 -->
+<!-- content-fingerprint: da47c9e054db9306da23 -->
