@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 郑钦文 美网认证Queen
+# 挖眼案男孩抱着盲校“妈妈”合影
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6951148 · 更新：2026-09-07T12:26:23+08:00
+> 来源：今日头条热榜 · 排名：第 10 位 · 热度：8826879 · 分类：新事件上榜 · 更新：2026-09-07T17:39:26+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“郑钦文 美网认证Queen”位列第 9 位，公开热度指标为 6951148。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“挖眼案男孩抱着盲校“妈妈”合影”位列第 10 位，公开热度指标为 8826879，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026美网女单第三轮，郑钦文对阵22号种子凯斯，决胜盘0‑5落后且遭遇对手赛点，她连赢七局完成逆转。赛后美网官方发文对其盛赞，称Q代表Queen，以此肯定其顽强斗志。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
 
 ## 相关热点
 
-- [平儿扮演者在中戏迎新晚会上跳舞](zi-xiang-mao-dun.md)
-- [当地回应赴港看演唱会被取消低保](bei-gong-she-ying.md)
-- [为什么吉利销量越来越差，只能靠便宜车走量呢？](jing-gong-zhi-niao.md)
-- [给盲人投放弹窗广告？](hu-jia-hu-wei.md)
+- [体育总局拟在外卖、快递员的休息站点建设健身设施，其背后是何种考量，又有哪些更优解？](zi-xiang-mao-dun.md)
+- [什么！“紫色的蜂蜜？如果给蜜蜂喂火龙果里的天然色素，会不会吧蜂巢里的“蜂蜜”也染色？今天就来做一下实验！看看会不会酿造出“紫色的蜂蜜”！](bei-gong-she-ying.md)
+- [“毁草原种枸杞”系谣言](jing-gong-zhi-niao.md)
+- [吃播网红干饭莹莹去世年仅24岁](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [看演唱会全家被取消低保原帖已删除](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [手机少了8千多张照片 用户质疑系统](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [贵州3名未成年女孩接连失联](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [林肯号驶离泰国 停靠5天消费1亿泰铢](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [特朗普发图称月球是美国的](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [南阳“老头乐”退场引出全国性难题](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [赵昭仪提到北斗七行哭了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [世界首富为什么不是出自洛克菲勒、摩根这样的财阀？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [古代的银票就一张纸，有人去仿制吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [多款手机集体涨价，有经销商称本以为会迎来抢购潮，结果询价者寥寥无几，哪里出了问题？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [山寨版葫芦出现 葫芦爷爷最新发声](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [葫芦娃爷爷隔壁咖啡店挂了7个葫芦](http://www.daogukj.com/axnomarx/)
-- [特斯拉降价](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [特斯拉降价无人维权](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [婚内强奸案被告家属称其老实本分](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [多地严查赵一鸣等零食品牌](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [世界首富为什么不是出自洛克菲勒、摩根这样的财阀？](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [单亲妈妈说没钱再捐后公益机构笑了](http://www.daogukj.com/9955752)
-- [“国家需要什么 我们就做什么”](http://www.movie.hkepx.cn/movie/6160167.htm)
-- [当你吃出口腔溃疡时体内正在发生什么](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [《交锋》尺度好大](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [扎哈罗娃：日本有“病”别传染给他国](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [《圣斗士》作者被骗 46 亿，具体是什么情况？这部童年经典是否将面临烂尾结局？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [真实事件改编，史上最离谱的劫机案！韩国政府这波极限忽悠我给满分《凶降喜讯》](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [失去双腿的他说继续冲锋](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [中国女篮战意大利决定附加赛对手](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [8月经济发展看点有哪些](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [教师 手机恐惧症](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [贫困生能不能追星](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [王传福：一块拇指大小电池造就比亚迪](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [5 岁女童电子病历被医生标注「刁蛮」，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [福建某小区禁止新能源车驶入地下车库，要求已停车辆 10 日内移出，这合理吗？如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [贵州中医二附院发生伤医事件，嫌疑人将刀藏于锦旗中捅伤医生，为什么医院不能强制进行高级别安检？](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [我国可谓是麻雀大国，问一只麻雀的寿命在两三年，那它们死的时候都死在哪里呢，我怎么从来没见过它们的尸体?](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [林肯号驶离泰国 停靠5天消费1亿泰铢](http://www.daogukj.com/2395514)
-- [官方回应驳船往长江倾倒黑色固体](http://www.daogukj.com/6574038)
-- [暴 雨 告 发](http://www.daogukj.com/ajcuxydy/)
-- [女子外出喝酒 3岁儿子被反锁坠亡](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [特朗普发图称月球是美国的](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [官方回应赴港看演唱会被取消全家低保](http://www.daogukj.com/cfeqrkjc/)
-- [《下一个是谁》第七季（4）](http://www.daogukj.com/rkkegwyy/)
-- [手机少了8千多张照片 用户质疑系统](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [为什么吉利销量越来越差，只能靠便宜车走量呢？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [白露有哪些习俗](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [当地回应赴港看演唱会被取消低保](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [【STN快报第8.5季19】这德国科隆给我干哪来了？这真不是国内吗？](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [摩尔线程股价触及跌停](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [【千年村庄】我建了这么久的房子，只有一个小朋友过来](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [贵州3名未成年女孩接连失联最小12岁](http://www.daogukj.com/8099191)
-- [湖北省公安厅原副厅长吴晓波被查](http://www.daogukj.com/vrvcskzj/)
-- [女子月捐数年无人问停捐后遭催捐](http://www.daogukj.com/lbbxrvry/)
-- [怎么有网友让我走到西藏啊…](http://www.daogukj.com/9295095)
-- [詹青云删除宣传早春晴朗视频](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [张靓颖三国志玩家身份被曝](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [黄金 散户](http://www.daogukj.com/7435478)
-- [网友上海高铁站偶遇刘亦菲](http://www.daogukj.com/kwdurrnw/)
-- [《崩坏：星穹铁道》千星纪游PV——「深水区」](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [同名同姓同年同月同日生同校同专业](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [贵州3名未成年女孩接连失联](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [网上很多人批评星宇，星宇到底哪里错了？](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [Switch2 大量机器被封，可能由哪些情况造成？](http://www.daogukj.com/axnomarx/)
+- [赴港看演出被取消全家低保？当地通报](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [怎么有网友让我走到西藏啊…](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [葫芦娃爷爷被“全国通缉”留言逗笑](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [证监会原副主席王建军一审被判无期](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [才知道郑佩佩去世后捐赠了大脑](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [余承东介绍新芯片连喊3个Super](http://www.daogukj.com/9955752)
+- [两代少年班 青春接力跑](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [乌克兰的军统和中统内斗](http://www.movie.hkepx.cn/xiju/3768366.htm)
+- [华为麒麟9050Pro](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [《我的前半生》平儿扮演者考入中戏](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [中秋放假3天不调休高速不免费](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [原来雪姨出轨事发当天有这么多事](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [在祖国大地上书写新时代青春答卷](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [“好想来”回应多地门店被查](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [赓续科创薪火 书写报国华章](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [华为时隔六年再次发布高性能芯片](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [别让低保女生赴港追星争议撕裂舆论](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [在机场随机跟随路人旅行，我意外翻新了一整所乡村小学](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [才知道井柏然是刘雯初恋](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [2021年度最令人讨厌歌曲TOP10！](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [浙江104岁老人每天睡觉18个小时](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [《鸣潮》共鸣者战斗演示 | 景燃](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [古代的银票就一张纸，有人去仿制吗？](http://www.daogukj.com/2395514)
+- [如何评价铜师傅《凡人》动画联名第二弹作品开售1小时热卖5500万元？](http://www.daogukj.com/6574038)
+- [中国最北职院开学 新生穿羽绒服报到](http://www.daogukj.com/ajcuxydy/)
+- [关羽水淹七军，威震华夏，吓得曹操要迁都以避其锋，怎么就突然兵败如山倒，走了麦城了？](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [多款手机集体涨价，有经销商称本以为会迎来抢购潮，结果询价者寥寥无几，哪里出了问题？](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [六旬富豪伙同妻子送90后情人坐牢](http://www.daogukj.com/cfeqrkjc/)
+- [郑佩佩去世后捐赠了大脑](http://www.daogukj.com/rkkegwyy/)
+- [赵昭仪提到北斗七行哭了](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [“毁草原种枸杞”系谣言](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [华强买瓜，但死神来了](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [什么！“紫色的蜂蜜？如果给蜜蜂喂火龙果里的天然色素，会不会吧蜂巢里的“蜂蜜”也染色？今天就来做一下实验！看看会不会酿造出“紫色的蜂蜜”！](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [胡锡进说不会与汤家凤对线](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [海豹08能当20万轿车的守门员吗？](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [男子捞螃蟹时救起漂浮女子](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [陈晓 陈妍希](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [耐克将被移出标普 100 指数，市值五年累计缩水约 79%，耐克怎么了？](http://www.daogukj.com/8099191)
+- [南宁站一旅客跳入股道与列车碰撞身亡](http://www.daogukj.com/vrvcskzj/)
+- [我国可谓是麻雀大国，问一只麻雀的寿命在两三年，那它们死的时候都死在哪里呢，我怎么从来没见过它们的尸体?](http://www.daogukj.com/lbbxrvry/)
+- [佛得角宣布全国降半旗](http://www.daogukj.com/9295095)
+- [薛甄珠手撕凌玲,但在印度](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [如果没学过平方差公式，看到a²-1时，能想到它可以等于（a+1）（a-1）的难度有多大？](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [百万粉丝吃播网红“干饭莹莹”离世](http://www.daogukj.com/7435478)
+- [【古希腊AI短片】普罗米修斯：愚者的火种](http://www.daogukj.com/kwdurrnw/)
+- [财政部将发行3000亿特别国债](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [华为PuraXView价格](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [世界首富为什么不是出自洛克菲勒、摩根这样的财阀？](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [郑钦文 美网认证Queen](https://www.baidu.com/s?wd=%E9%83%91%E9%92%A6%E6%96%87+%E7%BE%8E%E7%BD%91%E8%AE%A4%E8%AF%81Queen&sa=fyb_news&rsv_dl=fyb_news)
+- [挖眼案男孩抱着盲校“妈妈”合影](https://www.toutiao.com/trending/7682712050212245043/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227682712050212245043%22%2C%22hot_board_impr_id%22%3A%2220260907173925533D969DC21FCC085548%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9179bf31938097475af6 -->
+<!-- content-fingerprint: e24eb4eac23cb95edc5b -->
