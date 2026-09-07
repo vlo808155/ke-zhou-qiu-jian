@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 陈晓陈妍希好体面
+# “毁草原种枸杞”系谣言
 
-> 来源：微博热搜 · 排名：第 11 位 · 热度：343108 · 分类：艺人 · 更新：2026-09-07T07:56:52+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6852442 · 更新：2026-09-07T12:26:23+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“陈晓陈妍希好体面”位列第 11 位，公开热度指标为 343108，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““毁草原种枸杞”系谣言”位列第 10 位，公开热度指标为 6852442。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：有消息称：“枸杞种植破坏高原生态”，经核实，枸杞均种植在沙荒地、盐碱地，兼具固沙护土作用，实现生态保护与乡村增收双赢。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [网传“青铜峡大坝开始泄洪”系谣言](dong-shi-xiao-pin.md)
-- [中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？](han-dan-xue-bu.md)
-- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](qi-ren-you-tian.md)
-- [“东山再起”的东山在哪](chao-san-mu-si.md)
+- [和贫困生喝咖啡一样的困境](dong-shi-xiao-pin.md)
+- [一吨旧手机能提炼200克黄金？假的](han-dan-xue-bu.md)
+- [章泽天专访何超琼时被指采访深度不足，甚至出现「主客反转」，你如何评价她的采访水平？](qi-ren-you-tian.md)
+- [三年之期已到，恭迎世一上归位！【第7集】](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [付费飞机餐走红 你愿意买单吗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [今日白露](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [7个村庄采水点 一滴真实水样也没采](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [毛阿敏工作室早期博文 活人感](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [张家齐一直在被妈妈吐槽](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [教师 手机恐惧症](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [人民日报曝光非法码头4年关不掉](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [李荣浩演唱会女子中亲签后激动晕倒](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [多地楼市有新变化](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [山寨版葫芦出现 葫芦爷爷最新发声](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [折叠屏手机迎超级发布周](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [工作人员曾反复劝阻女孩赴港看演唱会](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [《圣斗士》作者被骗 46 亿，这部童年经典是否将面临烂尾结局？](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [“东山再起”的东山在哪](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [财政部将发行3000亿特别国债](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [单亲妈妈说没钱再捐后公益机构笑了](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [多地严查赵一鸣等零食品牌](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [三年之期已到，恭迎世一上归位！【第7集】](http://www.movie.hkepx.cn/movie/9298248.htm)
 - [江西一低保家庭女孩自己攒钱去香港看演唱会，网传其全家低保资格被取消，当地民政局回应正在核查，你怎么看？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [北京的路边摊都去了哪儿](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [张家齐一直在被妈妈吐槽](http://www.daogukj.com/4734416)
-- [挖眼案男孩操作手机完成报到](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [为什么今年的脱口秀比赛不温不火？是不好笑了还是大家都不爱看了？](http://www.daogukj.com/eujljnlh/)
-- [手机涨价消费者为何不买账](http://www.daogukj.com/3484796)
-- [7个村庄采水点 一滴真实水样也没采](http://www.daogukj.com/6840289)
-- [胖东来要求供应商提供社保，此举对行业发展有何影响？](http://www.daogukj.com/8544186)
-- [困守地面！丧尸与极寒步步紧逼？！绝境之下我们如何重返天空？！缆车末日惊变 100 天！](http://www.daogukj.com/4262842)
-- [今日白露](http://www.movie.hkepx.cn/movie/0136106.htm)
-- [“电动中国，靠你们了！”](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [毛阿敏工作室早期博文 活人感](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [网传“青铜峡大坝开始泄洪”系谣言](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [财政部将发行3000亿特别国债](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [华为Mate XT 2蓄势待发](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [家长反对交600元请保洁扫教室被禁言，这暴露出什么问题？现在的学生连打扫教室都不会了吗？](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [华强买瓜，但死神来了](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [女子月捐数年无人问 停捐后遭催捐](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [假如格林穿越到了re0的世界（王选篇3）](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [如何看待特斯拉股价单日大跌近 6%？Cybercab上线一天便遭审查，无方向盘、刹车板的车型有何隐患？](http://www.daogukj.com/4133568)
-- [5 岁女童电子病历被医生标注「刁蛮」，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [【早期视频】逃离电视宝宝联机，绝命逃亡](http://www.daogukj.com/0480016)
-- [尿酸高的人适当多喝这3种粥](http://www.daogukj.com/4561506)
-- [女生赴港看演唱会被取消低保](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [我爸是老总，公司大部分女性都是他情人，还有5个私生子，又用我的名字贷了巨款，让我无法翻身【探照灯计划】](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [半个娱乐圈明星都去李宇春演唱会](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [单亲妈妈月捐数年无人问停捐后遭催捐](http://www.daogukj.com/jbdvxipc/)
-- [我国可谓是麻雀大国，问一只麻雀的寿命在两三年，那它们死的时候都死在哪里呢，我怎么从来没见过它们的尸体?](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [刘耀文说错话丁程鑫的表情](http://www.daogukj.com/awgjjjvg/)
-- [当年火得一塌糊涂如今却销声匿迹的东西](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [我把汉堡搬到了星星上](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [用手还原badapple-终于还是走到了这一步](http://www.daogukj.com/ditzbwwz/)
-- [张纪中妻子备孕5胎](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [我去了世界最大的男女混浴温泉瀑布，泡起来到底多刺激？](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [华为 韬定律](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [中国需要多久达到或超过 GPT-6 Astra 级别的模型水平？](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [「葫芦娃爷爷」剪掉了全网走红的 7 个青葫芦，为何要提前剪藤？游客的「热情」为何最终成了老人的负担？](http://www.daogukj.com/aqmuomii/)
-- [同名同姓同年同月同日生同校同专业](http://www.daogukj.com/phjdnbun/)
-- [【招笑版】新僵尸1:健忘撑杆跳](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [暴 雨 告 发](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [山寨版葫芦出现 葫芦爷爷最新发声](http://www.daogukj.com/4734416)
+- [贵州3名未成年女孩接连失联最小12岁](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [国产GPU四小龙谁过得最好](http://www.daogukj.com/eujljnlh/)
+- [摩尔线程股价触及跌停](http://www.daogukj.com/3484796)
+- [李荣浩演唱会女子中亲签后激动晕倒](http://www.daogukj.com/6840289)
+- [福建某小区禁止新能源车驶入地下车库，要求已停车辆 10 日内移出，这合理吗？如何从法律角度解读？](http://www.daogukj.com/8544186)
+- [你是什么时候发现，人生根本不会完蛋的？](http://www.daogukj.com/4262842)
+- [人民日报曝光非法码头4年关不掉](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [“国家需要什么 我们就做什么”](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
+- [多地楼市有新变化](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [和贫困生喝咖啡一样的困境](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [王传福：一块拇指大小电池造就比亚迪](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [詹青云删除宣传早春晴朗视频](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [贵州中医二附院发生伤医事件，嫌疑人将刀藏于锦旗中捅伤医生，为什么医院不能强制进行高级别安检？](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [【招笑版】新僵尸1:健忘撑杆跳](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [同名同姓同年同月同日生同校同专业](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [体育总局拟在外卖、快递员的休息站点建设健身设施，其背后是何种考量，又有哪些更优解？](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [腾讯 WorkBuddy 快速登顶国内 AI 办公智能体市场，其成功背后的关键因素有哪些？](http://www.daogukj.com/4133568)
+- [家长反对交600元请保洁扫教室被禁言，这暴露出什么问题？现在的学生连打扫教室都不会了吗？](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [为什么吉利销量越来越差，只能靠便宜车走量呢？](http://www.daogukj.com/0480016)
+- [62岁阿姨撸铁10年一身健美肌肉](http://www.daogukj.com/4561506)
+- [“葫芦娃爷爷”隔壁阳台挂起7个葫芦](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [WSBK 法国站第二回合，德比斯驾驶「张雪机车」，因红旗重新起步丧失优势获得第三，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [张靓颖三国志玩家身份被曝](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [星宇车灯处罚公告](http://www.daogukj.com/jbdvxipc/)
+- [如果德国选择党获得萨克森-安哈尔特州的议会选举胜利，德国的政局将会发生什么变化？](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [平儿扮演者在中戏迎新晚会上跳舞](http://www.daogukj.com/awgjjjvg/)
+- [早春晴朗删掉的亲密戏](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [世界首富为什么不是出自洛克菲勒、摩根这样的财阀？](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [真实事件改编，史上最离谱的劫机案！韩国政府这波极限忽悠我给满分《凶降喜讯》](http://www.daogukj.com/ditzbwwz/)
+- [特斯拉降价无人维权](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [5 岁女童电子病历被医生标注「刁蛮」，卫健局工作人员称当事人网上发帖是抹黑当地，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [女子外出喝酒 3岁儿子被反锁坠亡](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [扎哈罗娃：日本有“病”别传染给他国](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [当地回应赴港看演唱会被取消低保](http://www.daogukj.com/aqmuomii/)
+- [手机少了8千多张照片 用户质疑系统](http://www.daogukj.com/phjdnbun/)
+- [《鸣潮》共鸣者战斗演示 | 景燃](http://www.movie.hkepx.cn/movie/2280842.htm)
 - [女孩攒钱赴港看演唱会疑被取消低保，法律上是怎样设置这种资格标准的？若全家被取消资格，​后续生活怎么办？](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [三年之期已到，恭迎世一上归位！【第7集】](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [婚内强奸案男子性侵妻子拍下视频](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [大家不爱住民宿了吗](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [媒体人：张子宇速度劣势被放大](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [年轻人正在“忘记”打字](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [中国足协主席宋凯称「中国足球起势了」，这一判断有哪些依据？](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [怎么有网友让我走到西藏啊…](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [贵州3名未成年女孩接连失联](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [中秋放假3天不调休高速不免费](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [母亲哄睡3岁儿子外出喝酒儿子坠亡](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [IG疯了！要去世界赛！涅槃登峰大变天！TES终于转不动了！【1酱赛评LPL季后赛篇】](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [一吨旧手机能提炼200克黄金？假的](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [陈晓陈妍希好体面](https://s.weibo.com/weibo?q=%E9%99%88%E6%99%93%E9%99%88%E5%A6%8D%E5%B8%8C%E5%A5%BD%E4%BD%93%E9%9D%A2)
+- [“毁草原种枸杞”系谣言](https://www.baidu.com/s?wd=%E2%80%9C%E6%AF%81%E8%8D%89%E5%8E%9F%E7%A7%8D%E6%9E%B8%E6%9D%9E%E2%80%9D%E7%B3%BB%E8%B0%A3%E8%A8%80&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9309c80c6e32af5b55a7 -->
+<!-- content-fingerprint: aac50c79bd18a8136cde -->
