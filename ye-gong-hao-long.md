@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 尚之桃离开给栾念发的短信
+# 仰卧、俯卧、侧卧哪种睡姿更健康
 
-> 来源：微博热搜 · 排名：第 10 位 · 热度：349627 · 分类：剧集 · 更新：2026-09-08T17:43:52+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6952060 · 更新：2026-09-08T21:54:54+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“尚之桃离开给栾念发的短信”位列第 10 位，公开热度指标为 349627，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“仰卧、俯卧、侧卧哪种睡姿更健康”位列第 9 位，公开热度指标为 6952060。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：仰卧能放松身体但气血易散，可配合“回阳卧”改善手脚冰凉。俯卧易压迫心肺、加重心脏负担，尤其不推荐老年人心脑血管患者。侧卧能收气血、稳心神，适合绝大多数人。建议右侧卧，不压迫心脏且利于消化，身体呈弓形，注意“虚心实腹”以助眠。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `剧集`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [英国正计划一场大规模备战演习](lan-yu-chong-shu.md)
-- [媒体称塑料外卖盒等都含有微塑料，会穿过血脑屏障进入大脑，什么是微塑料？会产生什么影响？又该如何应对？](zi-xiang-mao-dun.md)
-- [孤岛小夫 第三集](bei-gong-she-ying.md)
-- [新疆中考科目及分值重大调整？不实](jing-gong-zhi-niao.md)
+- [iG战胜LGD](lan-yu-chong-shu.md)
+- [郑钦文一年狂赚1.5亿元](zi-xiang-mao-dun.md)
+- [如何看待冯小刚电影《抓特务》上线流媒体后出现口碑逆袭？可能有哪些原因？](bei-gong-she-ying.md)
+- [开学舍友把宿舍改造成了海洋馆](jing-gong-zhi-niao.md)
 
 ## 站内推荐
 
-- [《鸣潮》共鸣者「景燃」PV | “问神”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [到底孩子多大可以有手机 能玩多久](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [东莞理工学院专插本虚假招生？假的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [香港私家车冲撞警员截查现场曝光](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [网红晒百万捐款截图被查实仅捐 1 元，借灾情「诈捐」博流量该如何惩处？灾情中的「假慈善」为何屡屡出现？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [三折叠、阔折叠、中折叠 你选谁](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [加拿大正式报复美国](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [太子奶](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [手机集体涨价原因找到了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [武汉通报非法辅助生殖地下实验室称已查封，8 名涉案人员被控制，哪些信息值得关注？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [太子奶创始人李途纯逝世](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
-- [开学舍友把宿舍改造成了海洋馆](http://www.daogukj.com/biwoqqwj/)
-- [香港私家车冲撞警员截查现场曝光](http://www.movie.hkepx.cn/xiju/2248691.htm)
-- [网红宣传捐款百万实际只捐1元](http://www.daogukj.com/0541941)
-- [微信视频号崩了 官方回应](http://www.movie.hkepx.cn/xiju/2330971.htm)
-- [毛阿敏为什么要在镜头面前把许晴逼到崩溃？](http://www.movie.hkepx.cn/movie/1952908.htm)
-- [如何看待「余承东建议苹果用户买华为备用机，备用几天就可能成为主力机」？你会购买吗？](http://www.movie.hkepx.cn/xiju/7386608.htm)
-- [小米澎程 N70 系列增程 SUV 发布，售价 20.99 万元起，怎样看待这一定价？竞争力有多强？](http://www.daogukj.com/cwfgitul/)
-- [投身时代洪流 作答“青春何谓”](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
-- [为什么国产偶像剧都喜欢把男女主的工作背景设定在广告、新闻、公关等传媒行业？](http://www.daogukj.com/3149137)
-- [太子奶创始人李途纯去世](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
-- [特斯拉降价全国订单爆了](http://www.movie.hkepx.cn/movie/1545092.htm)
-- [「中国女主播连续跳舞4到6小时，几乎不停歇」的视频在外网引发热议。网友辣评：这看起来简直像《黑镜》里的情节。](http://www.movie.hkepx.cn/xiju/3608340.htm)
-- [网传长江武汉段三艘驳船，单次十秒倾倒大量黑色物质入江，相关部门已紧急巡查，倾倒物可能是什么？危害多大？](http://www.daogukj.com/7262388)
-- [外交部：“敌国条款” 至今仍然有效](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
-- [旅行青蛙将正式停运](http://www.daogukj.com/8314202)
-- [德国国债遭遇猛烈抛售](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
-- [「小白」玄戒O3落地首测：小米 Pad 9 Pro Max到底怎么样？](http://www.movie.hkepx.cn/xiju/5194753.htm)
-- [第一批「20后」正式上小学了，送学家长横跨70后、80后、90后、00后，你如何看待这种「时代错位」？](http://www.movie.hkepx.cn/movie/0714674.htm)
-- [如何看待高盛预计人民币未来将持续有序升值，每年升幅约3%至5%，五年后升至5.5元人民币兑1美元？](http://www.movie.hkepx.cn/movie/7940067.htm)
-- [一代代科技工作者回答中国人为何行](http://www.movie.hkepx.cn/movie/6237029.htm)
-- [如何看待冯小刚电影《抓特务》上线流媒体后出现口碑逆袭？可能有哪些原因？](http://www.movie.hkepx.cn/movie/1586252.htm)
-- [《真千金她真没有背景通天》1-31](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
-- [东莞理工学院专插本虚假招生？假的](http://www.daogukj.com/0480738)
-- [小米澎程 让你久等了](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
-- [床底响没当回事 开门见床上盘着大蛇](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
-- [假如你生活在十万人的宿舍](http://www.movie.hkepx.cn/movie/6914548.htm)
-- [新疆中考科目及分值重大调整？不实](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
-- [如何看待华为首款阔直板Pura X View上市定价5999起，这个价格是否有竞争力？](http://www.daogukj.com/8595353)
-- [为什么子女买房会把父母安排在次卧](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
-- [《最会做菜の一集》](http://www.daogukj.com/gozdpjud/)
-- [如何看待全国各地古镇相似度高达 99%，连「特色小吃」都一模一样？为何会出现这一局面？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
-- [《我真没招了》](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
-- [小米澎程系列4分钟锁单破万，从SU7到澎程，小米接连打造爆款，它的打法和新势力、传统车企本质区别在哪？](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
-- [伊能静谈4岁男童摸臀争议](http://www.movie.hkepx.cn/movie/4558388.htm)
-- [苹果 华为](http://www.movie.hkepx.cn/movie/4205366.htm)
-- [栾念在西藏撒谎了](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
-- [到底孩子多大可以有手机 能玩多久](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
-- [3天停火到期 俄军大规模打击乌克兰](http://www.daogukj.com/8939549)
-- [实验！被洋辣子蜇到后，用它的体液涂抹能止疼吗？](http://www.daogukj.com/ixxuunfh/)
-- [美网赞叹郑钦文奇迹翻盘：惹不起](http://www.daogukj.com/2398854)
-- [英国正计划一场大规模备战演习](http://www.movie.hkepx.cn/movie/0490118.htm)
-- [印度裔遭种族歧视震动新加坡政坛](http://www.daogukj.com/utabxjrg/)
-- [武汉非法辅助生殖地下实验室已查封](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
-- [贵州3名失联女孩均已找到](http://www.daogukj.com/uqvpybnb/)
-- [孤岛小夫 第三集](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
-- [在北京，为什么北五环的房价比南三环还贵呢？](http://www.movie.hkepx.cn/xiju/5297963.htm)
-- [信息支援部队工程大学开学典礼举行](http://www.daogukj.com/4768730)
-- [《阴阳师》石长姬CG丨拾光永恒（CV：小清水亚美）](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
-- [申军良称“梅姨”真实年龄为65岁](http://www.daogukj.com/6807039)
+- [医生眼里让大脑休息最好的方法](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
+- [网传长江武汉段三艘驳船，单次十秒倾倒大量黑色物质入江，相关部门已紧急巡查，倾倒物可能是什么？危害多大？](http://www.daogukj.com/biwoqqwj/)
+- [手机集体涨价原因找到了](http://www.movie.hkepx.cn/xiju/2248691.htm)
+- [iG晋级LPL败决](http://www.daogukj.com/0541941)
+- [“追光逐梦”主题活动故事视频爆料！当清晨的第一缕阳光照进欧利蒂丝运动会的赛场，运动员们已准备好迎接新的一天……](http://www.movie.hkepx.cn/xiju/2330971.htm)
+- [博主：韩旭打出世界级水平](http://www.movie.hkepx.cn/movie/1952908.htm)
+- [丹麦老板称越南建厂成本比中国贵 10%，这透露出全球供应链怎样的变化？](http://www.movie.hkepx.cn/xiju/7386608.htm)
+- [湖南乒乓球小将卢俊为发球方式吸睛](http://www.daogukj.com/cwfgitul/)
+- [让守信经营者得实惠](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
+- [洪秀柱参观张雪机车：我腿短跨不上去](http://www.daogukj.com/3149137)
+- [华为 备用机](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
+- [金鹰节公告](http://www.movie.hkepx.cn/movie/1545092.htm)
+- [深度求索发布DeepSeek V4.1 Flash 的中间版本内测，该模型体验如何?](http://www.movie.hkepx.cn/xiju/3608340.htm)
+- [韩一失踪女子遗体在咖啡馆冻库被发现](http://www.daogukj.com/7262388)
+- [《鸣潮》共鸣者「景燃」PV | “问神”](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
+- [凌晨喊闺蜜起床！开车7小时去她老家看日出，结果…【3】](http://www.daogukj.com/8314202)
+- [太子奶创始人李途纯逝世](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
+- [对话汉斯·季默！如何用一段旋律创造一个电影宇宙？](http://www.movie.hkepx.cn/xiju/5194753.htm)
+- [上海10月1日起生娃个人「不花钱」，产检超额费用全兜底，住院分娩政策内费用全报销，新政会带来哪些利好？](http://www.movie.hkepx.cn/movie/0714674.htm)
+- [如何看待 Buckmaster 披露 OpenAI 在 NS 方程突破中的学术掠夺与威胁言论？](http://www.movie.hkepx.cn/movie/7940067.htm)
+- [我国进出口连续4个月保持两位数增长](http://www.movie.hkepx.cn/movie/6237029.htm)
+- [特朗普用AI疯狂生成假地图意欲何为](http://www.movie.hkepx.cn/movie/1586252.htm)
+- [8月汽车销量前十已无燃油车](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
+- [太子奶](http://www.daogukj.com/0480738)
+- [如何看待Alpöge 和 Buckmaster 关于Navier-Stokes方程的工作？](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
+- [DeepSeek新模型限时内测 烧钱更快了](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
+- [第一集](http://www.movie.hkepx.cn/movie/6914548.htm)
+- [开学舍友把宿舍改造成了海洋馆](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
+- [新疆中考科目及分值重大调整系谣言](http://www.daogukj.com/8595353)
+- [武汉非法代孕地下实验室被查封](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
+- [假如你生活在十万人的宿舍](http://www.daogukj.com/gozdpjud/)
+- [《阴阳师》石长姬CG丨拾光永恒（CV：小清水亚美）](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
+- [LPL 2026赛季季后赛 iG 3:0 淘汰 LGD 距离晋级决赛仅一步之遥，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
+- [小伙看奶奶路上坠亡9天后奶奶去世](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
+- [【独家】《百日成王》第23集 龙傲【7月国创】](http://www.movie.hkepx.cn/movie/4558388.htm)
+- [栾念为了见尚之桃飞西北20次](http://www.movie.hkepx.cn/movie/4205366.htm)
+- [筋膜枪和按摩仪千万别乱用](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
+- [加拿大正式报复美国](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
+- [江西遂川泥石流已致12人遇难](http://www.daogukj.com/8939549)
+- [《最会做菜の一集》](http://www.daogukj.com/ixxuunfh/)
+- [三位学者虚构 4500 份简历，投递发现海归面试概率比本土求职者低 16.2%，海归学历不再吃香了吗？](http://www.daogukj.com/2398854)
+- [iG战胜LGD](http://www.movie.hkepx.cn/movie/0490118.htm)
+- [吃播已成吃人的流量赛道](http://www.daogukj.com/utabxjrg/)
+- [《我是自愿开学的》复旦大学随机采访！](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
+- [真《晚安，敖鲁古雅》真睡升顶帐篷小米澎程。澎程N90 Max探索版穿越大兴安岭睡觉全体验。晚安敖鲁古雅。](http://www.daogukj.com/uqvpybnb/)
+- [如何看待冯小刚电影《抓特务》上线流媒体后出现口碑逆袭？可能有哪些原因？](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
+- [早期视频，给总统治疗](http://www.movie.hkepx.cn/xiju/5297963.htm)
+- [这轮冷空气究竟有多猛](http://www.daogukj.com/4768730)
+- [【2026LPL第三赛段】9月8日 LGD vs IG](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
+- [《我真没招了》](http://www.daogukj.com/6807039)
 
 </details>
 
 ## 原始来源
 
-- [尚之桃离开给栾念发的短信](https://s.weibo.com/weibo?q=%E5%B0%9A%E4%B9%8B%E6%A1%83%E7%A6%BB%E5%BC%80%E7%BB%99%E6%A0%BE%E5%BF%B5%E5%8F%91%E7%9A%84%E7%9F%AD%E4%BF%A1)
+- [仰卧、俯卧、侧卧哪种睡姿更健康](https://www.baidu.com/s?wd=%E4%BB%B0%E5%8D%A7%E3%80%81%E4%BF%AF%E5%8D%A7%E3%80%81%E4%BE%A7%E5%8D%A7%E5%93%AA%E7%A7%8D%E7%9D%A1%E5%A7%BF%E6%9B%B4%E5%81%A5%E5%BA%B7&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 72d0abc07a8fbf34eed5 -->
+<!-- content-fingerprint: 66f7324607a6b1e9e257 -->
