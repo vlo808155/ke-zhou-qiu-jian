@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 5 岁女孩病历被标注「刁蛮」，卫健局称涉事医生被立案调查，病历能写主观评价吗？反映出医疗管理哪些问题？
+# 孤岛小夫 第三集
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：150 万热度 · 分类：问答 · 更新：2026-09-08T13:09:03+08:00
+> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：1222851 · 分类：同人·手书 · 更新：2026-09-08T17:43:52+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“5 岁女孩病历被标注「刁蛮」，卫健局称涉事医生被立案调查，病历能写主观评价吗？反映出医疗管理哪些问题？”位列第 10 位，公开热度指标为 150 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“孤岛小夫 第三集”位列第 10 位，公开热度指标为 1222851，榜单分类为“同人·手书”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，广东湛江吴川市一家长反映，其5岁女儿因过敏到吴川市黄坡镇中心卫生院就医，事后发现孩子的电子病历“既往史”一栏被医生标注“刁蛮”二字，引发关注。 9月5日晚，吴川市卫生健康局接受央广网记者采访时表示，经核查情况属实，吴川市卫生健康局联合相关部门已于9月5日赴黄坡镇开展调处，向患者家属通报了处置工作情况，家属充分认可，表示接受调查结果。同时有关部门对当事医生开展思想教育和纪律教育，其已深刻反思自身错误，并于当天下午向患者进行真诚道歉，双方达成和解。 吴川市卫生健康局已对涉事医生予以警告、批评教育和立案调查，并约谈黄坡镇中心卫生院主要负责人，责令改正该院
+来源公开摘要显示：要说什么我忘了
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `同人·手书`
 
 ## 相关热点
 
-- [太惨了！LPL今年最离谱对局！20-0胜决变成人机局！BLG残忍暴虐AL！【1酱赛评季后赛胜决篇】](jing-gong-zhi-niao.md)
-- [网传新疆一加气站重度漏气系谣言](hu-jia-hu-wei.md)
-- [4岁男童摸臀算性骚扰吗](yu-mu-hun-zhu.md)
-- [美网赞叹郑钦文奇迹翻盘：惹不起](dong-shi-xiao-pin.md)
+- [新疆中考科目及分值重大调整？不实](jing-gong-zhi-niao.md)
+- [女子深夜转呼啦圈减肥致黄体破裂](hu-jia-hu-wei.md)
+- [特朗普发布新版「美国总统从夯到拉排名」，自己夯爆了，拜登、奥巴马在「失败区」，你怎么看特朗普的排名？](yu-mu-hun-zhu.md)
+- [真实事件改编，史上最离谱的劫机案！韩国政府这波极限忽悠我给满分《凶降喜讯》](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [男子偷拍未公开战机刚发布就被查](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [小米澎程 N70 系列增程 SUV 发布，售价 20.99 万元起，怎样看待这一定价？竞争力有多强？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [如何看待紫金矿业 2026 年半年度中被发现多处基础性文字错误？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [现房销售开始站上“C位”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [保护眼睛居然有这么冷门的办法](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [如何看待高盛预计人民币未来将持续有序升值，每年升幅约3%至5%，五年后升至5.5元人民币兑1美元？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [三位学者虚构 4500 份简历，投递发现海归面试概率比本土求职者低 16.2%，海归学历不再吃香了吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [微信视频号崩了 官方回应](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [外交部：“敌国条款” 至今仍然有效](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [云米科技被曝“摆烂式售后”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [广东人真正的执念太真实了](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [多所顶尖名校陆续停招学硕](http://www.daogukj.com/0517179)
-- [《解 救 姜 哥》](http://www.daogukj.com/yzfviyov/)
-- [第2期（上）：“神秘技师”惊现按摩店？！【时差五小时3】](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [长江有多艘船10秒倒光不明黑色物质](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [霸王茶姬 茶叶蛋](http://www.daogukj.com/1191355)
-- [早春晴朗](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [如何看待「高盛预计人民币未来将持续有序升值，每年升幅约3%至5%，五年后升至5.5元人民币兑1美元」？](http://www.daogukj.com/2850206)
-- [网传新疆一加气站重度漏气系谣言](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [如何看待紫金矿业 2026 年半年度中被发现多处基础性文字错误？](http://www.daogukj.com/5364901)
-- [22岁男子看望生病奶奶过桥时坠亡](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
-- [太惨了！LPL今年最离谱对局！20-0胜决变成人机局！BLG残忍暴虐AL！【1酱赛评季后赛胜决篇】](http://www.daogukj.com/nisjsldl/)
-- [钟美美 何以为父](http://www.daogukj.com/xvspcmfq/)
-- [4年前我设计的车，如今给小米量产了？！](http://www.daogukj.com/4116400)
-- [郑钦文说逆转不是运气](http://www.daogukj.com/nncunhqi/)
-- [赵一鸣致歉：若称错差价十倍退还](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [保护眼睛居然有这么冷门的办法](http://www.daogukj.com/svuwbdap/)
-- [年轻人为什么爱上“杀糕局”](http://www.daogukj.com/qvipjsxc/)
-- [东莞理工学院专插本虚假招生？假的](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
-- [铜价“爆了”](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [百万奖金花落谁家？B站AI创造公开赛第一季获奖结果公布！](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [一男童被大妈扶上展台，触摸东汉石兽真品，现场标注「请勿触摸」，触摸石兽有何影响？此类现象为何屡禁不止？](http://www.daogukj.com/wvyvpuql/)
-- [毛阿敏为什么要在镜头面前把许晴逼到崩溃？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
-- [恒河水位上涨近150年神庙被冲走](http://www.daogukj.com/yktxglwn/)
-- [网红宣称捐款百万实际只捐1元](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [阿维塔9系](http://www.daogukj.com/2377613)
-- [陪护阿姨总爱蔬菜里加姜，老人提醒多次后仍不改，被老人评价“脑子有病”后直接辞职，这件事到底是谁不对？](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [如何看待全国各地古镇相似度高达 99%，连「特色小吃」都一模一样？为何会出现这一局面？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [英国政府要求民众提前存粮存水](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [4岁男童的手是碰还是摸不该情绪定罪](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [寒门子弟的逆袭路径，琅琊王氏的历史之巅【两晋悲歌】](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [又有9家私募扮演失联](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [小米澎程 N70 系列增程 SUV 发布，售价 20.99 万元起，怎样看待这一定价？竞争力有多强？](http://www.daogukj.com/qkjpzqjb/)
-- [孤岛小夫 第三集](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [心动的信号9](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [立志成为恶兽第三集【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
-- [赵一鸣致歉 承诺称错赔十倍](http://www.daogukj.com/opgycgjr/)
-- [祖先如果真的早入轮回了，那祈祷祖宗保佑是不是也没什么用？](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [男子偷拍未公开战机刚发布就被查](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [如何看待华为首款阔直板Pura X View上市定价5999起，这个价格是否有竞争力？](http://www.daogukj.com/3894638)
-- [小米18Fold中折叠评测](http://www.daogukj.com/ihugvxjr/)
-- [网传长江武汉段三艘驳船，单次十秒倾倒大量黑色物质入江，相关部门已紧急巡查，倾倒物可能是什么？危害多大？](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [华为鸿蒙 7 操作系统采用超空间存储技术，用户升级后最多可节省 109 GB存储空间，如何看待该性能？](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [俄称在哈尔科夫州包围约1700名乌军](http://www.daogukj.com/owscegnp/)
-- [网红宣传捐款百万实际只捐1元](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [冯小刚《抓特务》口碑逆袭](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [俄军在高速公路用机枪击毁乌无人机](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [贵州福泉三名未成年女孩接连失联，目前均已找到，有哪些信息值得关注？](http://www.daogukj.com/9324764)
-- [iPhone Ultra 没有消除屏幕折痕，国行或 14999 元起，「折痕」难题究竟卡在哪里？](http://www.daogukj.com/awlcbyru/)
-- [4岁男童摸臀算性骚扰吗](http://www.daogukj.com/5750670)
+- [英国正计划一场大规模备战演习](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [德国国债遭遇猛烈抛售](http://www.daogukj.com/0517179)
+- [武汉非法辅助生殖地下实验室已查封](http://www.daogukj.com/yzfviyov/)
+- [“好想躺着军训啊” 教官：安排](http://www.movie.hkepx.cn/xiju/0529283.htm)
+- [人民日报：谁来守护源头数据真实](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [3天停火到期 俄军大规模打击乌克兰](http://www.daogukj.com/1191355)
+- [太子奶创始人李途纯去世](http://www.movie.hkepx.cn/xiju/7511993.htm)
+- [同事工资是我两倍，活儿却比我少一半，我该找领导谈吗？](http://www.daogukj.com/2850206)
+- [女子深夜转呼啦圈减肥致黄体破裂](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
+- [微信视频号崩了 官方回应](http://www.daogukj.com/5364901)
+- [梅姨年龄籍贯曝光](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [新疆中考科目及分值重大调整？不实](http://www.daogukj.com/nisjsldl/)
+- [小伙看奶奶路上坠亡9天后奶奶去世](http://www.daogukj.com/xvspcmfq/)
+- [伊能静谈4岁男童摸臀争议](http://www.daogukj.com/4116400)
+- [香港私家车冲撞警员截查现场曝光](http://www.daogukj.com/nncunhqi/)
+- [媒体称塑料外卖盒等都含有微塑料，会穿过血脑屏障进入大脑，什么是微塑料？会产生什么影响？又该如何应对？](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [云米科技被曝“摆烂式售后”](http://www.daogukj.com/svuwbdap/)
+- [栾念在西藏撒谎了](http://www.daogukj.com/qvipjsxc/)
+- [兼职挑战！！挑战AI让我尝试的3个职业！！](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
+- [受贿1.48亿余元 金湘军一审被判死缓](http://www.movie.hkepx.cn/movie/2146522.htm)
+- [「小白」玄戒O3落地首测：小米 Pad 9 Pro Max到底怎么样？](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [地球升温之快史无前例](http://www.daogukj.com/wvyvpuql/)
+- [丹麦老板称越南建厂成本比中国贵 10%，这透露出全球供应链怎样的变化？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [信息支援部队工程大学开学典礼举行](http://www.daogukj.com/yktxglwn/)
+- [对话汉斯·季默！如何用一段旋律创造一个电影宇宙？](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [特斯拉降价全国订单爆了](http://www.daogukj.com/2377613)
+- [第2期（上）：“神秘技师”惊现按摩店？！【时差五小时3】](http://www.movie.hkepx.cn/movie/4178444.htm)
+- [如何看待「余承东建议苹果用户买华为备用机，备用几天就可能成为主力机」？你会购买吗？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [外交部：日本应当同军国主义彻底切割](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [为什么子女买房会把父母安排在次卧](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [假如你生活在十万人的宿舍](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [毛阿敏为什么要在镜头面前把许晴逼到崩溃？](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [三位学者虚构 4500 份简历，投递发现海归面试概率比本土求职者低 16.2%，海归学历不再吃香了吗？](http://www.daogukj.com/qkjpzqjb/)
+- [贵州3名失联女孩均已找到](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [旅行青蛙将正式停运](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [《最会做菜の一集》](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [人民日报谈“葫芦娃爷爷”摘下葫芦](http://www.daogukj.com/opgycgjr/)
+- [小米澎程 让你久等了](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [如何看待高盛预计人民币未来将持续有序升值，每年升幅约3%至5%，五年后升至5.5元人民币兑1美元？](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [小米澎程 N70 系列增程 SUV 发布，售价 20.99 万元起，怎样看待这一定价？竞争力有多强？](http://www.daogukj.com/3894638)
+- [荣耀 系统级Agent](http://www.daogukj.com/ihugvxjr/)
+- [《解 救 姜 哥》](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [如何看待紫金矿业 2026 年半年报中被发现多处基础性文字错误？](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [小米澎程系列4分钟锁单破万，从SU7到澎程，小米接连打造爆款，它的打法和新势力、传统车企本质区别在哪？](http://www.daogukj.com/owscegnp/)
+- [如何看待华为首款阔直板Pura X View上市定价5999起，这个价格是否有竞争力？](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [床底响没当回事 开门见床上盘着大蛇](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [我国将扩大灵活就业人员医保参保规模](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [如何看待冯小刚电影《抓特务》上线流媒体后出现口碑逆袭？可能有哪些原因？](http://www.daogukj.com/9324764)
+- [网红晒百万捐款截图被查实仅捐 1 元，借灾情「诈捐」博流量该如何惩处？灾情中的「假慈善」为何屡屡出现？](http://www.daogukj.com/awlcbyru/)
+- [特朗普发布新版「美国总统从夯到拉排名」，自己夯爆了，拜登、奥巴马在「失败区」，你怎么看特朗普的排名？](http://www.daogukj.com/5750670)
 
 </details>
 
 ## 原始来源
 
-- [5 岁女孩病历被标注「刁蛮」，卫健局称涉事医生被立案调查，病历能写主观评价吗？反映出医疗管理哪些问题？](https://www.zhihu.com/question/2079585698311565403)
+- [孤岛小夫 第三集](https://b23.tv/BV1wKbs67Emc)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6e1b46e238628922a435 -->
+<!-- content-fingerprint: d3f69952c27239332bd7 -->
