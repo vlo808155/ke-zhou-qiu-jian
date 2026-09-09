@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 男子烟龄28年肺全黑确诊癌症
+# 德国政坛大地震，选择党，前进四！
 
-> 来源：今日头条热榜 · 排名：第 9 位 · 热度：10224392 · 更新：2026-09-09T19:15:07+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：433945 · 分类：社科·法律·心理 · 更新：2026-09-09T23:10:07+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“男子烟龄28年肺全黑确诊癌症”位列第 9 位，公开热度指标为 10224392。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“德国政坛大地震，选择党，前进四！”位列第 9 位，公开热度指标为 433945，榜单分类为“社科·法律·心理”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：本期视频提及的事件以及信息来源如下： 《极右翼州选大胜，德国政坛“防火墙”还能撑多久》，新华网，2026-09-07 《出口民调：极右翼德国选择党赢得东部萨安州选举》，新华网，2026-09-07 《德国选择党领袖公开发声：德国实际上已经破产了，法国也快玩完了，谁来收拾欧盟这个烂摊子？》，极目新闻公众号，2026-09-08 《德国总理“深感震惊”，波兰外长、法国财长接连表态》，环球网公众号，2026-09-08 《德国极右翼政党在州议会选举跃居榜首，特朗普也关注：“对德国总理默茨造成沉重打击”“是迈向2
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `社科·法律·心理`
 
 ## 相关热点
 
-- [网友称自己上班时突然不认识字了，连数字也不认识了，这是咋回事？能认定为工伤吗？](nan-yuan-bei-zhe.md)
-- [挑战0元城市生存（1.2）](mai-du-huan-zhu.md)
-- [巴基斯坦警方喜提50辆中国新能源汽车](ye-gong-hao-long.md)
-- [内蒙古锡林郭勒4.6级地震](lan-yu-chong-shu.md)
+- [父亲离世爱车下落不明 女儿含泪急寻](nan-yuan-bei-zhe.md)
+- [白鹿常华森吻戏好苏](mai-du-huan-zhu.md)
+- [如何评价番茄小说最新的全勤新规定？](ye-gong-hao-long.md)
+- [不是哥们儿，咱宿舍还有正常人嘛？](lan-yu-chong-shu.md)
 
 ## 站内推荐
 
-- [服贸会今日开幕](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [司美格鲁肽有5大副作用](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [多部门印发通知，扩大灵活就业人员等群体基本医保参保规模，哪些要点值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [郑钦文从排名跌到一百名开外到如今一路挺进美网八强，你认为她的状态算重回巅峰了吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [资本弃子包贝尔，彻底塌房](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [在改善民生中扩大内需](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [为什么感觉台湾的卤肉饭远没有大陆的“台湾卤肉饭”好吃，这中间差异在哪里？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [轿车停大榕树下12年被树根“吞掉”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [明年或爆发全球粮食危机](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [全球癌症病例2050年可能激增67%](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [小样，我这不直接拿下你~](http://www.daogukj.com/dzgfjkrf/)
-- [很多人认为本地部署一个大模型，就实现token自由，就可以干活了，真的吗？](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
-- [2026服贸会今日开幕](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
-- [A股市场正在经历一场深刻的风格重塑](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
-- [【招笑版】新植物8:嘴巴很大花](http://www.daogukj.com/3970663)
-- [燃油车真卖不动了吗](http://www.movie.hkepx.cn/movie/5367817.htm)
-- [网友称自己上班时突然不认识字了，连数字也不认识了，这是咋回事？能认定为工伤吗？](http://www.daogukj.com/bcavubqj/)
-- [理想等车企“去宁化”加速](http://www.daogukj.com/8795484)
-- [迪丽热巴老式脸盆帽子](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
-- [新iPhone未发先炒 代抢费最高上千](http://www.movie.hkepx.cn/xiju/9388208.htm)
-- [河南地震](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
-- [河南济源地震](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
-- [癌症转移的第一站，为啥总是「肝」？](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
-- [怎么看 DeepSeek Flash 系列9月10日将再调整定价，除输出外回归8月17日前价格？](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
-- [明年或爆发全球粮食危机](http://www.daogukj.com/3703920)
-- [张小泉剪刀 剪排骨剪猪蹄](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
-- [游客没少 民宿却不赚钱了](http://www.daogukj.com/akojpuxw/)
-- [中国制造的电动 MG, 英国人怎么看？](http://www.movie.hkepx.cn/movie/0307482.htm)
-- [S4前瞻特别节目精彩回顾 | 速览！看看S4到底有什么](http://www.movie.hkepx.cn/xiju/4985219.htm)
-- [挑战0元城市生存（1.2）](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
-- [医生：要多吃肉少喝汤](http://www.daogukj.com/sqbgfepf/)
-- [黑龙江一次撤销 32 人次运动员技术等级称号，均涉省乒乓球锦标赛，具体是怎么回事？](http://www.daogukj.com/0772573)
-- [不是哥们儿，咱宿舍还有正常人嘛？](http://www.daogukj.com/iaiklsqf/)
-- [宁德时代宜宾基地回应](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
-- [新职业新工种来了](http://www.daogukj.com/iejdmdav/)
-- [王者万象棋首支职业战队成立](http://www.daogukj.com/3595629)
-- [被砸宝马车主称定损约四五万](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
-- [郑钦文一年狂赚1.5亿元](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
-- [河南济源3.6级地震 郑州有震感](http://www.daogukj.com/7736560)
-- [鲜花饼 吐痰](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
-- [免费飞机餐是否取消？多家航司回应](http://www.daogukj.com/9580900)
-- [微信 私密朋友圈](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
-- [《我是自愿开学的》复旦大学随机采访！](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
-- [如何看待曝某厂不让普工上厕所致拉裤兜，致其车间裸奔并拿粪便扔向他人，宁德时代宜宾基地回应称不是本公司？](http://www.daogukj.com/lsbolopb/)
-- [内蒙古锡林郭勒4.6级地震](http://www.daogukj.com/ssuxjwef/)
-- [《未眠野》首曝PV | 万物都在回应，世界没有答案](http://www.daogukj.com/ukxzmdih/)
-- [湖南医保可办理二次报销系谣言](http://www.movie.hkepx.cn/movie/0461195.htm)
-- [三十而已被裁掉合照的顾佳](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
-- [苹果Duo怎么读](http://www.movie.hkepx.cn/movie/9527500.htm)
-- [印度女子力量举运动员因外貌走红](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
-- [英国与以色列针锋相对释放什么信号](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
-- [星宇股份已获港股上市备案却三周仍无聆讯日程，受此次裁员风波影响有多大？会影响公司上市吗？](http://www.daogukj.com/hvfyixhj/)
-- [高考数学132分开学考只有12分](http://www.movie.hkepx.cn/movie/4719114.htm)
-- [如何评价DeepSeek V4.1 Flash将于2026年9月10日上线，以及V4Pro下架？](http://www.daogukj.com/jollzwuo/)
-- [混动的大脑被上汽造出来了，MG 07 上的 ECU 到底有多少技术含量？](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
-- [《新闻联播》正在直播](http://www.movie.hkepx.cn/movie/4200387.htm)
-- [司美格鲁肽有5大副作用](http://www.movie.hkepx.cn/xiju/0668299.htm)
-- [多部门印发通知，扩大灵活就业人员等群体基本医保参保规模，哪些要点值得关注？](http://www.movie.hkepx.cn/xiju/2277955.htm)
-- [男子躲4000元债务换7个住处仍被找到](http://www.daogukj.com/7974348)
-- [内蒙古锡林郭勒盟发生4.6级地震](http://www.movie.hkepx.cn/xiju/6045140.htm)
+- [赖冠霖疑似结婚了](http://www.daogukj.com/dzgfjkrf/)
+- [帮精神小妹过一场生日，送给她一束特别的花](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
+- [感受长征出发前的峥嵘岁月](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
+- [《早春晴朗》大结局](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
+- [被指摸臀4岁男孩已正常返校上学](http://www.daogukj.com/3970663)
+- [爱情公寓超长iPhone18](http://www.movie.hkepx.cn/movie/5367817.htm)
+- [父亲离世爱车下落不明 女儿含泪急寻](http://www.daogukj.com/bcavubqj/)
+- [南阳「老头乐」被禁止上路，怎样看待这一规定？该如何平衡老年人出行需求与交通安全？](http://www.daogukj.com/8795484)
+- [宁夏7人假意应聘，借居住条件差等理由「软暴力」向工方勒索共16起，最高被判七年，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
+- [景德镇学院让大四挪宿舍警方已介入](http://www.movie.hkepx.cn/xiju/9388208.htm)
+- [资助者回应大二女生被取消资助](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
+- [群众自发前往毛主席纪念堂缅怀](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
+- [柬埔寨一诈骗园区内部曝光](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
+- [河南济源地震](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
+- [iPhone18Pro小号灵动岛](http://www.daogukj.com/3703920)
+- [iPhone Duo](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
+- [国乒三战三负 蒯曼止步首轮](http://www.daogukj.com/akojpuxw/)
+- [宁德时代已报警](http://www.movie.hkepx.cn/movie/0307482.htm)
+- [刘亦菲 删照片](http://www.movie.hkepx.cn/xiju/4985219.htm)
+- [白鹿常华森吻戏好苏](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
+- [曝DeepSeek正筹备科创板IPO](http://www.daogukj.com/sqbgfepf/)
+- [特朗普关税被判违法，这一整年白忙了? 现在关税什么情况?](http://www.daogukj.com/0772573)
+- [警惕这些常见骗术](http://www.daogukj.com/iaiklsqf/)
+- [上交所向星宇股份发监管函，就公司相关事项明确监管要求，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
+- [高考数学132入学考试0分 大学回应](http://www.daogukj.com/iejdmdav/)
+- [如何看待高考数学132分的学生在西电数学开学考只考12分，33分竟位列前6%？大学入学考是在考察什么？](http://www.daogukj.com/3595629)
+- [网友户外应急烧水把玻璃瓶放火堆烧](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
+- [苹果首款折叠屏 iPhone 爆料起售价 2199 美元，人民币近 1.5 万元，如何看待该定价？](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
+- [护航开学季 警惕这些常见骗术](http://www.daogukj.com/7736560)
+- [魏德尔喊话默茨：你的时代结束了](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
+- [酒店回应浴巾里掉出女士内裤](http://www.daogukj.com/9580900)
+- [不让上厕所员工裸奔？宁德时代否认](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
+- [杨幂豹纹短裙](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
+- [百万粉丝博主“康康爷爷”去世](http://www.daogukj.com/lsbolopb/)
+- [不是哥们儿，咱宿舍还有正常人嘛？](http://www.daogukj.com/ssuxjwef/)
+- [我 来 同 你 玩 丨 二洲年快乐](http://www.daogukj.com/ukxzmdih/)
+- [多部门印发通知，扩大灵活就业人员等群体基本医保参保规模，哪些要点值得关注？](http://www.movie.hkepx.cn/movie/0461195.htm)
+- [网友称美的洗衣机每天上传数百MB数据](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
+- [OpenAI 首席科学家称已造出「异星心智」，并警告「全人类都要刹车」，这意味着什么？](http://www.movie.hkepx.cn/movie/9527500.htm)
+- [医生：要多吃肉少喝汤](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
+- [《鸣潮》共鸣者「景燃」PV | “问神”](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
+- [降价140万元的药终于有患者用了](http://www.daogukj.com/hvfyixhj/)
+- [小猫咪为什么喜欢拿头拱人？](http://www.movie.hkepx.cn/movie/4719114.htm)
+- [苹果秋季发布会](http://www.daogukj.com/jollzwuo/)
+- [苹果新CEO发布会前更新动态](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
+- [也算是太岁头上动了把土！](http://www.movie.hkepx.cn/movie/4200387.htm)
+- [为什么感觉台湾的卤肉饭远没有大陆的“台湾卤肉饭”好吃，这中间差异在哪里？](http://www.movie.hkepx.cn/xiju/0668299.htm)
+- [轿车停大榕树下12年被树根“吞掉”](http://www.movie.hkepx.cn/xiju/2277955.htm)
+- [新三国的“吃什么”梗为什么这么出圈？](http://www.daogukj.com/7974348)
+- [《我是自愿开学的》复旦大学随机采访！](http://www.movie.hkepx.cn/xiju/6045140.htm)
 
 </details>
 
 ## 原始来源
 
-- [男子烟龄28年肺全黑确诊癌症](https://www.toutiao.com/trending/7682884895425347593/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227682884895425347593%22%2C%22hot_board_impr_id%22%3A%22202609091915065AEF8C656FBA472B50FE%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [德国政坛大地震，选择党，前进四！](https://b23.tv/BV1veYx6DESi)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9270cee476e425e8d6ad -->
+<!-- content-fingerprint: b300c3042785eff238dd -->
