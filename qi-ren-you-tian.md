@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# “人们常常在夏天结束时，回忆那些美好的时光... ”【Shawdow of the sun】【夏天结束の小曲】
+# 加拿大一向很听美国的话，这次怎么敢真的和美国打贸易战？
 
-> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：1131513 · 分类：音乐综合 · 更新：2026-09-12T21:45:28+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：102 万热度 · 分类：问答 · 更新：2026-09-13T00:39:32+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，““人们常常在夏天结束时，回忆那些美好的时光... ”【Shawdow of the sun】【夏天结束の小曲】”位列第 11 位，公开热度指标为 1131513，榜单分类为“音乐综合”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“加拿大一向很听美国的话，这次怎么敢真的和美国打贸易战？”位列第 11 位，公开热度指标为 102 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：----------------
+来源公开摘要显示：美国和加拿大掐架，互相征收50%的关税。 8月22日，美国先动了手，正式对加拿大200亿美元的商品加征50%关税，涉550余种商品。 然后加拿大宣称自己遭到了攻击，处于战争状态。 随后加拿大拟了份清单，要对美国价值200亿美元的商品加征50%关税，涉700余种商品，激活时间9月8日。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `音乐综合`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [公职人员醉驾撞死一对夫妻](chao-san-mu-si.md)
-- [女婴在月子中心无呼吸心跳送医死亡](dui-niu-tan-qin.md)
-- [《我的前半生》里，为什么贺函和唐晶没能走到最后？](mang-ren-mo-xiang.md)
-- [火箭军防毒面具版“恶魔引体”，硬核出战！](yuan-mu-qiu-yu.md)
+- [《重返未来：1999》2026箱中巡游·4.0版本PV：应门者](chao-san-mu-si.md)
+- [84岁老人独自到店为自己挑选寿衣](dui-niu-tan-qin.md)
+- [小胖现场喊天狼星天为首](mang-ren-mo-xiang.md)
+- [iPhone 18 Pro系列开售秒售罄](yuan-mu-qiu-yu.md)
 
 ## 站内推荐
 
-- [多车队宣布永久退出China GT，上海站赛车起火救援不力带来的影响有多大？业内怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [去了一趟山西。](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [“为生民而立命，继往圣之绝学.”【我的歌声里DJ-变速】【教书育人の小曲】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [王辉已被执行死刑](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [普京抵达印度 保镖紧随其后贴身护卫](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [LPL 2026 赛季败者组决赛 AL 3:2 淘汰 iG 晋级总决赛，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [如何看待跳水奥运冠军张家齐称自己「慕强」，但男友实力似乎都低于她？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [《还珠》结局，为什么永琪逃亡云南，而尔康必须回京？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [反转到最后一秒！狗血100%，伏笔全回收，年度抓马爽剧诞生！年度高分韩剧《现在不是出轨的问题》下](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [5米大锅30年老卤料，一次性炖1200斤猪蹄，今天带大家沉浸式感受烹饪过程](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [马珊珊任沈阳市委副书记](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
-- [上海一幼儿园收集家长职务信息不实](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
-- [影史神作9月扎堆重新上映](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
-- [雷军为车主开车门 现场大人小孩围满](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
-- [15名同事合买彩票中奖3000万](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
-- [21世纪波兰依然被闪击](http://www.movie.hkepx.cn/xiju/2772866.htm)
-- [《重返未来：1999》2026箱中巡游·4.0版本PV：应门者](http://www.movie.hkepx.cn/movie/8157133.htm)
-- [郭文韬当爸](http://www.movie.hkepx.cn/movie/3703338.htm)
-- [女子向大雁塔景区雨水井塞管状不明物，警方已介入调查，可能塞的是什么？会承担怎样的责任？](http://www.movie.hkepx.cn/xiju/3368241.htm)
-- [一支拖鞋军正在改写中东格局](http://www.movie.hkepx.cn/movie/9040401.htm)
-- [多地小学改为养老院](http://www.movie.hkepx.cn/movie/7194765.htm)
-- [黑龙江漠河今天正式供暖](http://www.movie.hkepx.cn/movie/6128990.htm)
-- [普京抵达印度 保镖紧随其后贴身护卫](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
-- [总有人说AI写出的作品带AI味，那AI味究竟是什么？难道AI就不能消除AI味吗？](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
-- [小米高管称门店客流量暴涨400％](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
-- [【独家】《百日成王》第24集 还有人在等着我【7月国创】](http://www.movie.hkepx.cn/movie/4858272.htm)
-- [兰香如故女眷赴死争议](http://www.daogukj.com/bfxepwya/)
-- [男生捐全身器官救7人 遗体今日火化](http://www.movie.hkepx.cn/xiju/4024765.htm)
+- [说唱巅峰对决2026](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
+- [当你穿进老钱班《前传》](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
+- [什么叫你往mc添加了整套拼豆系统？](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
+- [AI短剧 成瘾](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
+- [高铁车窗玻璃被刻“到此一游”](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
+- [如何评价 DeepSeek 灰度测试语音对话，意味着什么？](http://www.movie.hkepx.cn/xiju/2772866.htm)
+- [中国超能，奶奶蔡明能，飞！](http://www.movie.hkepx.cn/movie/8157133.htm)
+- [iPhone18扣款成功仍等待付款](http://www.movie.hkepx.cn/movie/3703338.htm)
+- [俄方不排除普京和特朗普在中国会晤](http://www.movie.hkepx.cn/xiju/3368241.htm)
+- [兰香如故走势](http://www.movie.hkepx.cn/movie/9040401.htm)
+- [夏季的温馨碎片，重新剪到一起，准备再赚一次流量](http://www.movie.hkepx.cn/movie/7194765.htm)
+- [雨果4比2松岛辉空](http://www.movie.hkepx.cn/movie/6128990.htm)
+- [5米大锅30年老卤料，一次性炖1200斤猪蹄，今天带大家沉浸式感受烹饪过程](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
+- [特朗普7400万美元广告砸向关键选区](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
+- [《原神》7.1版本「往冥府的安魂歌」前瞻特别节目](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
+- [家长如何有效提升孩子的抗挫力？](http://www.movie.hkepx.cn/movie/4858272.htm)
+- [王辉已被执行死刑](http://www.daogukj.com/bfxepwya/)
+- [AG 年总](http://www.movie.hkepx.cn/xiju/4024765.htm)
 - [中国将于2027年接任金砖主席国](http://www.movie.hkepx.cn/xiju/0737631.htm)
-- [高糖VS戒糖14天！真的差别很大吗？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
-- [苹果18 抢不到](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
-- [陈幸同晋级WTT澳门冠军赛女单4强](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
-- [一条小团团首播](http://www.movie.hkepx.cn/xiju/7334347.htm)
-- [你可能不认识我，但或许刷到过我的画…](http://www.daogukj.com/7849300)
-- [“我端着一碗爷爷煮的面”有语法错误吗？](http://www.daogukj.com/aozagmkd/)
-- [公职人员醉驾撞死一对夫妻](http://www.daogukj.com/ioafjlkc/)
-- [火箭军防毒面具版“恶魔引体”，硬核出战！](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
-- [特朗普松口允许中国大厂赴美造车](http://www.movie.hkepx.cn/xiju/2137446.htm)
-- [看懂中国贸易出海新模式](http://www.daogukj.com/0166884)
-- [漠河低温降至0℃以下 已正式供暖](http://www.movie.hkepx.cn/movie/0848231.htm)
-- [无锡市长蒋锋拟任设区市委书记](http://www.daogukj.com/tckpumpu/)
-- [家长花 20 万买房车陪读上高中儿子，称比租房划算，这笔账该怎么算？这种陪读方式值得吗？](http://www.daogukj.com/0292547)
-- [校长来啦](http://www.daogukj.com/hejavvee/)
-- [苹果多款老机型涨价，iPhone 17 涨价 800 元，为什么新机发布，旧款不降价反而涨价？](http://www.movie.hkepx.cn/xiju/2863382.htm)
-- [“一饭温情相赠，千里以报恩深.”【红色高跟鞋DJ-降调】【涌泉相报の小曲】](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
-- [外卖员往饮料里加百草枯？假的](http://www.daogukj.com/gurgtiup/)
-- [Lisa说YG限制她很多](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
-- [加拿大一向很听美国的话，这次怎么敢真的和美国打贸易战？](http://www.daogukj.com/nlwlvqny/)
-- [如何评价《潜伏》里的罗掌柜？](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
-- [苹果高管称折叠屏比例泄密很遗憾，竞争对手拿到了屏幕比例，泄密为何难以防范？将对行业造成哪些影响？](http://www.daogukj.com/4367144)
-- [1300张票1000张黄牛 罗永浩吐槽](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
-- [胖东来网红大月饼暂停门店线下销售](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
-- [郎平看不下去了](http://www.movie.hkepx.cn/movie/3421929.htm)
+- [如何评价2026年9月米哈游《原神》7.1版本前瞻直播【往冥府的安魂歌】？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
+- [上海一幼儿园收集家长职务信息不实](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
+- [茶叶蛋vs白煮蛋](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
+- [走路快和走路慢哪个对心脏更好](http://www.movie.hkepx.cn/xiju/7334347.htm)
+- [女子向大雁塔景区雨水井塞管状不明物，警方已介入调查，可能塞的是什么？会承担怎样的责任？](http://www.daogukj.com/7849300)
+- [男生去年考上北大放弃今年又考进北大](http://www.daogukj.com/aozagmkd/)
+- [《重返未来：1999》2026箱中巡游·4.0版本PV：应门者](http://www.daogukj.com/ioafjlkc/)
+- [iPhone 18 Pro系列开售秒售罄](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
+- [赵雷当爸爸了](http://www.movie.hkepx.cn/xiju/2137446.htm)
+- [金砖合作打造互联互通贸易通道](http://www.daogukj.com/0166884)
+- [绝航唱《父亲》大哥主动给油！！！](http://www.movie.hkepx.cn/movie/0848231.htm)
+- [苏超](http://www.daogukj.com/tckpumpu/)
+- [一支拖鞋军正在改写中东格局](http://www.daogukj.com/0292547)
+- [亲戚借了网贷，还不起了，想找我帮忙，她不想告诉家人，数额巨大，我该怎么办？](http://www.daogukj.com/hejavvee/)
+- [中东局势骤变 全球经济承压](http://www.movie.hkepx.cn/xiju/2863382.htm)
+- [“我端着一碗爷爷煮的面”有语法错误吗？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
+- [井迪直播被说怀孕了](http://www.daogukj.com/gurgtiup/)
+- [手把手教你复刻《百万英镑》牛排套餐，一口锅就能煎完！](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
+- [外卖员往饮料里加百草枯？假的](http://www.daogukj.com/nlwlvqny/)
+- [年轻人血管为什么会开始堵了](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
+- [雷军为首批小米澎程车主开车门](http://www.daogukj.com/4367144)
+- [【独家】《凡人修仙传之慕兰之战》第15集【总第191集】](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
+- [21世纪波兰依然被闪击](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
+- [假如你是一个雪饼](http://www.movie.hkepx.cn/movie/3421929.htm)
 - [下周上班时间有变](http://www.movie.hkepx.cn/xiju/7147911.htm)
-- [如何看待胡塞武装突然势如破竹控制曼德海峡和红海南部？这对当前局势有哪些影响？](http://www.movie.hkepx.cn/xiju/5231443.htm)
-- [《我的前半生》里，为什么贺函和唐晶没能走到最后？](http://www.daogukj.com/hwjpoycr/)
-- [女婴在月子中心无呼吸心跳送医死亡](http://www.movie.hkepx.cn/movie/7786575.htm)
-- [【独家】《凡人修仙传之慕兰之战》第15集【总第191集】](http://www.movie.hkepx.cn/movie/1630389.htm)
-- [这样吃外卖等于给自己“下毒”](http://www.daogukj.com/ijajouly/)
-- [“为生民而立命，继往圣之绝学.”【我的歌声里DJ-变速】【教书育人の小曲】](http://www.daogukj.com/7130534)
+- [那英南京演唱会新编《山沟沟》](http://www.movie.hkepx.cn/xiju/5231443.htm)
+- [小胖现场喊天狼星天为首](http://www.daogukj.com/hwjpoycr/)
+- [84岁老人独自到店为自己挑选寿衣](http://www.movie.hkepx.cn/movie/7786575.htm)
+- [拆弹的时候为什么不一下把线全剪了?](http://www.movie.hkepx.cn/movie/1630389.htm)
+- [去了一趟山西。](http://www.daogukj.com/ijajouly/)
+- [《还珠》结局，为什么永琪逃亡云南，而尔康必须回京？](http://www.daogukj.com/7130534)
 
 </details>
 
 ## 原始来源
 
-- [“人们常常在夏天结束时，回忆那些美好的时光... ”【Shawdow of the sun】【夏天结束の小曲】](https://b23.tv/BV16XbP6sEX2)
+- [加拿大一向很听美国的话，这次怎么敢真的和美国打贸易战？](https://www.zhihu.com/question/2078761189157425780)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fd6da319123eb885aad4 -->
+<!-- content-fingerprint: 9da1c2f68f871b2e35e5 -->
