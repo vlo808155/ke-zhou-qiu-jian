@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 为什么酒店标间两张床的价格反而会低于一张床的大床房的价格，这背后的定价逻辑是什么？
+# 央视30秒视频悼念敬一丹
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：287 万热度 · 分类：问答 · 更新：2026-09-13T19:41:47+08:00
+> 来源：今日头条热榜 · 排名：第 9 位 · 热度：45430583 · 分类：热门事件 · 更新：2026-09-13T23:05:13+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么酒店标间两张床的价格反而会低于一张床的大床房的价格，这背后的定价逻辑是什么？”位列第 9 位，公开热度指标为 287 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“央视30秒视频悼念敬一丹”位列第 9 位，公开热度指标为 45430583，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [中国人能飞](mai-du-huan-zhu.md)
-- [陪看：陈熠vs张本美和](ye-gong-hao-long.md)
-- [当老妈知道我工资1260后](lan-yu-chong-shu.md)
-- [伊朗局势外溢风险牵动中东安全局势](zi-xiang-mao-dun.md)
+- [如何评价魔兽争霸3新出的酒馆英雄“被遗忘者圣骑士”？](mai-du-huan-zhu.md)
+- [夏季的温馨碎片，重新剪到一起，准备再赚一次流量](ye-gong-hao-long.md)
+- [被举报116次的烧烤店被责令整改](lan-yu-chong-shu.md)
+- [“打塔人”在10层楼高树上打松塔](zi-xiang-mao-dun.md)
 
 ## 站内推荐
 
-- [服务贸易如何助力数字文化产品出海](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [易中天说三国里最聪明的人是贾诩，而不是诸葛亮，是否有点过了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [如何看待罗永浩称野人先生冰激凌很一般，比钟薛高难吃？野人先生该如何回应这场突发舆情？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [端倪](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [超市八角数出13个角 一查是剧毒莽草](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [透过服贸会，外资抢抓三大新机遇](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [张本美和赛季三连冠](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [《听见你的心声》05我能听见我的初恋在想什么。老师……你拉链真的开了。本故事纯属虚构，请相信科学。](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [UZI：他是真的？还是串的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [5分钟网页开发上线全流程 | 豆包工作和我的爱恨纠缠](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [勇哥餐饮事件，博主线下调查发现火锅店实为两班倒，并非员工单人工作17小时，这一调查结果能否平息争议？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
-- [胖东来新招工准则：合同4年不续签](http://www.movie.hkepx.cn/xiju/7685631.htm)
-- [台媒称岛内呼吁统一的声量持续增大](http://www.movie.hkepx.cn/xiju/7504816.htm)
-- [剧组副导演吼黄灿灿妈妈](http://www.movie.hkepx.cn/xiju/1803085.htm)
-- [如何看待小区业主筹备业委会反映问题，却遭住建局副局长辱骂？目前涉事副局长已被停职，此事暴露了哪些问题？](http://www.daogukj.com/2496411)
-- [2026 WTT 澳门冠军赛男单半决赛，莫雷加德 4-3 绝杀张本智和，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
-- [首个、首次、首台 中国硬核成果上新](http://www.movie.hkepx.cn/xiju/0683615.htm)
-- [葫芦爷爷一顿饭被叫出去10次](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
-- [男生去年考上北大医学部放弃，2026 年又考进北大图灵班，做到这点有多难？怎样看待他的选择？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
-- [罗永浩吐槽野人先生比钟薛高难吃](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
-- [央视知名主持人敬一丹去世](http://www.daogukj.com/2645900)
-- [终于我也成了第一个接孩子的家长](http://www.daogukj.com/7346575)
-- [超市八角数出13个角 一查是剧毒莽草](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
-- [服务贸易如何助力数字文化产品出海](http://www.daogukj.com/8445802)
-- [2026 苏超第十二轮比赛，淮安队让二追三战胜徐州队，如何评价双方表现？](http://www.daogukj.com/4329793)
-- [菏泽被频查烧烤店遭一人投诉116次](http://www.movie.hkepx.cn/movie/9626163.htm)
-- [《自然》称生成式AI正让人类思维趋同，这对科学创新是福是祸？](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
-- [敬一丹账号讣告：感谢这世界让我走过](http://www.daogukj.com/0966704)
+- [河北医大二院工作人员先后收受贿赂46次，累计涉案1.84亿元，超30家药企长期行贿，哪些环节出了问题？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
+- [女子拍下骇人巨型蜗牛引热议](http://www.movie.hkepx.cn/xiju/7685631.htm)
+- [赵雷鸟巢演唱会](http://www.movie.hkepx.cn/xiju/7504816.htm)
+- [香飘飘筹备开9家线下门店](http://www.movie.hkepx.cn/xiju/1803085.htm)
+- [伊朗股市单日大涨逾15万点](http://www.daogukj.com/2496411)
+- [为什么酒店标间两张床的价格反而会低于一张床的大床房的价格，这背后的定价逻辑是什么？](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
+- [寻找“金砖温度”的答案](http://www.movie.hkepx.cn/xiju/0683615.htm)
+- [中国为何对菲律宾保持克制](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
+- [罗永浩称野人先生冰激凌很一般，野人先生该如何回应这场突发舆情？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
+- [莫雷加德4比1雨果夺男单冠军](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
+- [勇哥餐饮事件，博主线下调查发现火锅店实为两班倒，并非员工单人工作17小时，这一调查结果能否平息争议？](http://www.daogukj.com/2645900)
+- [什么是洲同学？洲同学就是洲同学！](http://www.daogukj.com/7346575)
+- [5分钟网页开发上线全流程 | 豆包工作和我的爱恨纠缠](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
+- [透过服贸会，外资抢抓三大新机遇](http://www.daogukj.com/8445802)
+- [货车卸货时溜车 司机跳车逃生](http://www.daogukj.com/4329793)
+- [胖东来又在做什么实验](http://www.movie.hkepx.cn/movie/9626163.htm)
+- [你喜欢自己做早餐还是外面买现成的?](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
+- [兰香如故热度破28000](http://www.daogukj.com/0966704)
 - [金砖国家领导人集体合影](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
-- [易中天说三国里最聪明的人是贾诩，而不是诸葛亮，是否有点过了？](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
-- [中国人能飞](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
-- [BLG对战AL](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
-- [情侣在演唱会求婚遭后排喊坐下](http://www.movie.hkepx.cn/movie/6145932.htm)
+- [张本美和赛季三连冠](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
+- [如何评价魔兽争霸3新出的酒馆英雄“被遗忘者圣骑士”？](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
+- [Hope五杀](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
+- [8年前的孙千](http://www.movie.hkepx.cn/movie/6145932.htm)
 - [如何看待于东来发文称胖东来再招员工都是学员性质，合同四年，不续签？意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
-- [谭松韵 扛剧](http://www.daogukj.com/rlrpcfej/)
-- [六小龄童做客安徽六安](http://www.movie.hkepx.cn/xiju/0327873.htm)
-- [为什么很多小孩要报班学跳绳、不会跳楼梯，和感统失调有关吗？现在玩耍跑跳的时间少了，会影响孩子发育吗？](http://www.movie.hkepx.cn/xiju/2370310.htm)
-- [名校硕士五轮面试全过却因第一学历专科遭拒，为何不能从一开始就说明学历要求？如此看重第一学历合理吗？](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
-- [河北医大二院工作人员先后收受贿赂46次，累计涉案1.84亿元，超30家药企长期行贿，哪些环节出了问题？](http://www.daogukj.com/1151497)
-- [“4月4日出生被事业编拒绝”系谣言](http://www.movie.hkepx.cn/xiju/3375315.htm)
-- [特朗普再次让英国难堪](http://www.daogukj.com/mzvmtnbb/)
-- [探访野生狗奶原产地，味道居然还不错](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
-- [伊朗局势外溢风险牵动中东安全局势](http://www.daogukj.com/oalgvxno/)
-- [iPhone 17大降价](http://www.daogukj.com/3022882)
-- [著名主持人敬一丹去世，曾主持《焦点访谈》20 余年，她对播音主持行业的贡献有多大？你对她有哪些记忆？](http://www.daogukj.com/1257732)
-- [北大图灵班](http://www.daogukj.com/swfyejft/)
-- [夏季的温馨碎片，重新剪到一起，准备再赚一次流量](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
-- [48岁上戏新生黄晓明开学报到](http://www.movie.hkepx.cn/movie/5720053.htm)
-- [陪看：陈熠vs张本美和](http://www.movie.hkepx.cn/xiju/4451738.htm)
-- [高糖VS戒糖14天！真的差别很大吗？](http://www.movie.hkepx.cn/xiju/8030216.htm)
-- [45岁后体检别省这项 能保命](http://www.daogukj.com/faxbfjmv/)
-- [为什么金砖国家合作对全球发展举足轻重](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
-- [预防脑出血 6个习惯赶紧改](http://www.movie.hkepx.cn/movie/4952543.htm)
-- [Anthropic 掌门人呼吁放缓 AI 模型迭代，马斯克、奥尔特曼响应，此举背后出于哪些考量？](http://www.movie.hkepx.cn/movie/3155966.htm)
-- [烧烤店被检查15次：系1人投诉116次](http://www.movie.hkepx.cn/xiju/6207511.htm)
-- [海陆回应暴瘦20斤变样了](http://www.daogukj.com/4160220)
+- [乐高拼的王一博](http://www.daogukj.com/rlrpcfej/)
+- [野人先生回应罗永浩说难吃](http://www.movie.hkepx.cn/xiju/0327873.htm)
+- [如何看待《崩坏：星穹铁道》翁法罗斯剧情号称整部游戏的大纲这一观点？](http://www.movie.hkepx.cn/xiju/2370310.htm)
+- [中国人能飞](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
+- [敬一丹抢救期间蔡磊疯狂钻研脑出血](http://www.daogukj.com/1151497)
+- [2026 年 WTT 澳门冠军赛，中国选手陈熠 3-4 日本选手张本美和，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/3375315.htm)
+- [谭松韵演技](http://www.daogukj.com/mzvmtnbb/)
+- [公职人员醉驾撞死夫妻 事发监控曝光](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
+- [“打塔人”在10层楼高树上打松塔](http://www.daogukj.com/oalgvxno/)
+- [Tarzan历时3015天夺得联赛首冠](http://www.daogukj.com/3022882)
+- [预感将被裁员且能力不足，该主动辞职吗？](http://www.daogukj.com/1257732)
+- [AL夺冠](http://www.daogukj.com/swfyejft/)
+- [男生去年考上北大医学部放弃，2026 年又考进北大图灵班，做到这点有多难？怎样看待他的选择？](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
+- [45岁后体检别省这项 能保命](http://www.movie.hkepx.cn/movie/5720053.htm)
+- [夏季的温馨碎片，重新剪到一起，准备再赚一次流量](http://www.movie.hkepx.cn/xiju/4451738.htm)
+- [国产电影投资逻辑转向，动画片增加，真人片成本两三千万，明星价值缩水，过亿项目锐减，如何解读这一变化？](http://www.movie.hkepx.cn/xiju/8030216.htm)
+- [网友住全季酒店半夜被蟑螂爬脸](http://www.daogukj.com/faxbfjmv/)
+- [服贸会十四年成绩单](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
+- [【假装讲电影】笑死！黑帮集体跳槽干物业！结果发现物业更黑啊！！！](http://www.movie.hkepx.cn/movie/4952543.htm)
+- [如何看待苹果宣布app可以直接获取iPhone Duo铰链开合角度？将此应用于开屏广告的前景如何？](http://www.movie.hkepx.cn/movie/3155966.htm)
+- [胖东来新招工准则：合同4年不续签](http://www.movie.hkepx.cn/xiju/6207511.htm)
+- [那个和我对话的衰小孩，不过是脑海幻想出来的罢了！](http://www.daogukj.com/4160220)
 - [《魔兽世界》：“无限”宣传动画 《崭新的天地》](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
-- [亲爱的拉瓦锡夫人，请让我再介绍你一次。](http://www.movie.hkepx.cn/xiju/3921462.htm)
+- [如何能获得高分?](http://www.movie.hkepx.cn/xiju/3921462.htm)
 - [【独家】牧神记 第100集 鬼上身](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
-- [加糖制作的红茶，能喝出来吗？](http://www.daogukj.com/7980452)
+- [探访野生狗奶原产地，味道居然还不错](http://www.daogukj.com/7980452)
 
 </details>
 
 ## 原始来源
 
-- [为什么酒店标间两张床的价格反而会低于一张床的大床房的价格，这背后的定价逻辑是什么？](https://www.zhihu.com/question/663413512)
+- [央视30秒视频悼念敬一丹](https://www.toutiao.com/trending/7684914989651512873/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227684914989651512873%22%2C%22hot_board_impr_id%22%3A%2220260913230511CE66039BD6B02F49258E%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6e862ebade04866f73e9 -->
+<!-- content-fingerprint: 2bf52ef11e5124b10061 -->
