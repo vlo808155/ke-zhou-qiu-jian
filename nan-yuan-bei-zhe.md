@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 于东来回应“四年合同制”
+# 如何看待东南大学电子学院预推免结果，高绩点保研本院失败，顶尖学院为何「看不上」自己培养的学生？
 
-> 来源：今日头条热榜 · 排名：第 9 位 · 热度：10231801 · 更新：2026-09-15T08:40:17+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：252 万热度 · 分类：问答 · 更新：2026-09-15T13:25:56+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“于东来回应“四年合同制””位列第 9 位，公开热度指标为 10231801。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待东南大学电子学院预推免结果，高绩点保研本院失败，顶尖学院为何「看不上」自己培养的学生？”位列第 9 位，公开热度指标为 252 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：有东南大学电子学院的学生公开爆料：学院绩点排名前20%的本校生，报名本院预推免，通过率不足一半。绩点前70名里28人报考本院，仅12人拿到优秀；绩点前40名里11位报考者，只通过5人。 注：东南大学电子类学科（电子科学与工程学院等相关学科）实力顶尖，在全国第四轮学科评估中获评 A+，在 2026 年 U.S.News 世界大学电气与电子工程学科排名中，高居全球第 3 位。 东南大学电院保研暴雷：成绩前20%保研本校失败，211/双非尖子生保研成功！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [Anthropic一研究员辞职示警称AI可能在未来十年内毁灭人类，巨头拿人类生命作赌，如何看待该观点？](mai-du-huan-zhu.md)
-- [自民党琉球狂胜 民众对日美的反抗要落幕了吗？](ye-gong-hao-long.md)
-- [AI降速呼声重挫芯片股](lan-yu-chong-shu.md)
-- [生逢其时](zi-xiang-mao-dun.md)
+- [新三国up锐评楚汉传奇18：我真是枉为我项梁啊！](mai-du-huan-zhu.md)
+- [国家卫健委呼吁大家要多锻炼](ye-gong-hao-long.md)
+- [2026亚运会乒乓球](lan-yu-chong-shu.md)
+- [伊朗称击毁一架MQ-1无人机](zi-xiang-mao-dun.md)
 
 ## 站内推荐
 
-- [推动健康中国建设取得决定性进展](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [当AI巨头开始要求减速](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [武契奇将辞去塞尔维亚总统职务](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [南昌地铁通报3人钻闸机逃票](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [短剧行业出现大量抄袭， AI 几分钟就能抄出一部剧，月薪几千的原创编剧还有未来吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [关键词解锁服贸会上的经济新机遇](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [「员工裸奔拉屎事件」起因是办离职时间没达成一致，为什么会在这一环节有矛盾？一般会走怎样的申诉沟通渠道？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [为什么 BLG 在 2026 总决赛上会输给刚刚零封的 AL？他们输在哪？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [日本年轻人开始流行“梅毒妆”：身上点满红斑，假装自己感染了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [最成功的“魔改”，恰恰背叛了原著？160年了，爱丽丝为什么总在被改写？【万字拉片】《爱丽丝梦游仙境》P1](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [公职人员醉驾致一对夫妻身亡，夫妻被判负次要责任引家属不满，如何从法律角度解读这一主次责任划分？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
-- [猕猴桃是全世界最团结的水果](http://www.movie.hkepx.cn/xiju/7685631.htm)
-- [终于知道为什么有人工作能力这么强](http://www.movie.hkepx.cn/xiju/7504816.htm)
-- [我来接受中国朋友们的挑战啦！](http://www.movie.hkepx.cn/xiju/1803085.htm)
-- [黑龙江三道鳞在上海身价暴涨一斤88元](http://www.daogukj.com/2496411)
-- [井柏然边界感](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
-- [未来五年民生健康重磅规划](http://www.movie.hkepx.cn/xiju/0683615.htm)
-- [饮用水报告：72%成年人未达适宜摄入量](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
-- [HYROX 外国选手比赛中失禁，主办方未叫停比赛、未进行罚时等处罚，对其他选手公平吗？怎样处理更合理？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
-- [日本为啥很少有米线之类的米加工品？](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
-- [花少3 陈柏霖](http://www.daogukj.com/2645900)
-- [最成功的“魔改”，恰恰背叛了原著？160年了，爱丽丝为什么总在被改写？【万字拉片】《爱丽丝梦游仙境》P1](http://www.daogukj.com/7346575)
-- [短剧行业出现大量抄袭， AI 几分钟就能抄出一部剧，月薪几千的原创编剧还有未来吗？](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
-- [推动健康中国建设取得决定性进展](http://www.daogukj.com/8445802)
-- [刘学义郑合惠子 cp感玄学](http://www.daogukj.com/4329793)
-- [驯化西瓜：一颗苦涩有毒的野瓜，如何成为世界顶流](http://www.movie.hkepx.cn/movie/9626163.htm)
-- [李一桐用8公斤水杯喝水](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
-- [郑合惠子一出场刘学义都变帅了](http://www.daogukj.com/0966704)
-- [全键盘版“阔直板”手机爆火](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
-- [当AI巨头开始要求减速](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
-- [Anthropic一研究员辞职示警称AI可能在未来十年内毁灭人类，巨头拿人类生命作赌，如何看待该观点？](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
-- [全球最大每周车展创始人车祸身亡](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
-- [《你以为的支教只教课时，但实际上...》](http://www.movie.hkepx.cn/movie/6145932.htm)
-- [女子拍到骇人巨型蜗牛引热议，它可能是哪种物种？会带来哪些潜在风险？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
-- [猫师傅进城第一天，没钱住店却遇见了一群好人](http://www.daogukj.com/rlrpcfej/)
-- [海南多地停课](http://www.movie.hkepx.cn/xiju/0327873.htm)
-- [时代峰峻](http://www.movie.hkepx.cn/xiju/2370310.htm)
-- [四川所有高校不许连放13天？不实](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
-- [胖东来“不续聘”违法吗？律师解读](http://www.daogukj.com/1151497)
-- [电信套餐送手机 网贷](http://www.movie.hkepx.cn/xiju/3375315.htm)
-- [广汽集团 资产重组](http://www.daogukj.com/mzvmtnbb/)
-- [程序员为干私活腾空间 17 小时删光公司 89TB 数据，获刑五年十个月，暴露出哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
-- [生逢其时](http://www.daogukj.com/oalgvxno/)
-- [面试完才懂关系户有多动人](http://www.daogukj.com/3022882)
-- [黑龙江黑河口岸今年出入境旅客破百万](http://www.daogukj.com/1257732)
-- [自称演唱会求婚事件当事人发声](http://www.daogukj.com/swfyejft/)
-- [于东来回应「胖东来新员工实行四年合同制」称未违反劳动法，此举是为培养更多懂健康生活的群体，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
-- [广汽集团发布公告，筹划购买一汽股份持有的某整车合资公司部分股权，会带来哪些影响？](http://www.movie.hkepx.cn/movie/5720053.htm)
-- [自民党琉球狂胜 民众对日美的反抗要落幕了吗？](http://www.movie.hkepx.cn/xiju/4451738.htm)
-- [Anthropic前研究员再谈AI风险](http://www.movie.hkepx.cn/xiju/8030216.htm)
-- [演唱会求婚当事人称已报警](http://www.daogukj.com/faxbfjmv/)
-- [中国人挖运河顺手造万亩良田](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.movie.hkepx.cn/movie/4952543.htm)
-- [多家企业限制使用Anthropic模型](http://www.movie.hkepx.cn/movie/3155966.htm)
-- [苹果回应iPhone 18 Pro破发](http://www.movie.hkepx.cn/xiju/6207511.htm)
-- [北京一独居者离世，无配偶、子女、兄弟姐妹，叔舅姑姨九人争遗产，法院判房产归国家，如何从法律角度解读？](http://www.daogukj.com/4160220)
+- [女子拍到骇人巨型蜗牛引热议，它可能是哪种物种？会带来哪些潜在风险？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
+- [微信AI 隐私](http://www.movie.hkepx.cn/xiju/7685631.htm)
+- [胡塞武装“接管”红海影响有多大](http://www.movie.hkepx.cn/xiju/7504816.htm)
+- [哈萨克斯坦执勤女警遭公主抱被开除](http://www.movie.hkepx.cn/xiju/1803085.htm)
+- [男子苦钓三天钓起118斤大青鱼](http://www.daogukj.com/2496411)
+- [中国厂商推出改造版 RTX5090 显卡，售价 2.6 万元，你觉得「良心」吗？](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
+- [外籍游客爱上中国秋日深度游](http://www.movie.hkepx.cn/xiju/0683615.htm)
+- [这4个瞬间父母务必站在孩子这边](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
+- [理想等车企加速「去宁化」，其背后原因是什么？对行业有何影响？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
+- [8岁女童被男孩推倒后用电话手表报警](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
+- [老板娘称被公职人员强奸最新进展](http://www.daogukj.com/2645900)
+- [“四川芬达”恶搞杨坤被判赔31.5万](http://www.daogukj.com/7346575)
+- [最成功的“魔改”，恰恰背叛了原著？160年了，爱丽丝为什么总在被改写？【万字拉片】《爱丽丝梦游仙境》P1](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
+- [关键词解锁服贸会上的经济新机遇](http://www.daogukj.com/8445802)
+- [中国女篮抵达亚运村：住宿一般](http://www.daogukj.com/4329793)
+- [樊振东登上亚运会海报](http://www.movie.hkepx.cn/movie/9626163.htm)
+- [如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
+- [汽车去掉轮子之后车企去干什么了](http://www.daogukj.com/0966704)
+- [塔克拉玛干沙漠发现大型地下水水源](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
+- [「员工裸奔拉屎事件」起因是办离职时间没达成一致，为什么会在这一环节有矛盾？一般会走怎样的申诉沟通渠道？](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
+- [新三国up锐评楚汉传奇18：我真是枉为我项梁啊！](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
+- [肖战孙菲菲 VOGUE银十](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
+- [独身女子离世 叔姑舅姨9人争遗产](http://www.movie.hkepx.cn/movie/6145932.htm)
+- [公职人员醉驾致一对夫妻身亡，夫妻被判负次要责任引家属不满，如何从法律角度解读这一主次责任划分？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
+- [关晓彤演白化病人眼球轻颤](http://www.daogukj.com/rlrpcfej/)
+- [美国首次承认具备太空进攻能力](http://www.movie.hkepx.cn/xiju/0327873.htm)
+- [Anthropic一研究员辞职示警称AI可能在未来十年内毁灭人类，巨头拿人类生命作赌，如何看待该观点？](http://www.movie.hkepx.cn/xiju/2370310.htm)
+- [刘翔口口声声说的“第三条路”到底是什么？](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
+- [研究：得糖尿病的人大多离不开这4点](http://www.daogukj.com/1151497)
+- [四川所有高校不许连放13天？不实](http://www.movie.hkepx.cn/xiju/3375315.htm)
+- [iOS27首批用户反馈](http://www.daogukj.com/mzvmtnbb/)
+- [什么是洲同学？洲同学就是洲同学！](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
+- [伊朗称击毁一架MQ-1无人机](http://www.daogukj.com/oalgvxno/)
+- [保险公司花钱雇人开会称为了报销](http://www.daogukj.com/3022882)
+- [卫龙进口魔芋粉检出二氧化硫超标，客服表示不合格原料已退回，对人体会产生什么影响？其环节存在哪些问题？](http://www.daogukj.com/1257732)
+- [涉嫌猎杀玳瑁中国籍教练发声](http://www.daogukj.com/swfyejft/)
+- [青钢影绝活哥复盘BLG第四局：最窒息的一集 感觉bin哥已经无欲无求了](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
+- [原来含糖饮料喝一瓶就超标](http://www.movie.hkepx.cn/movie/5720053.htm)
+- [国家卫健委呼吁大家要多锻炼](http://www.movie.hkepx.cn/xiju/4451738.htm)
+- [日本为啥很少有米线之类的米加工品？](http://www.movie.hkepx.cn/xiju/8030216.htm)
+- [女婴身亡月子中心产妇全部搬离](http://www.daogukj.com/faxbfjmv/)
+- [2026年国家网络安全宣传周](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
+- [《你以为的支教只教课时，但实际上...》](http://www.movie.hkepx.cn/movie/4952543.htm)
+- [网友称空管开始试点劳务派遣模式，是真的吗？会带来哪些潜在风险或影响？](http://www.movie.hkepx.cn/movie/3155966.htm)
+- [疑似演唱会求婚当事人称已报警](http://www.movie.hkepx.cn/xiju/6207511.htm)
+- [和五月天阿信见了他](http://www.daogukj.com/4160220)
 - [985本硕毕业后，30岁小伙重读本科，成功入住宿舍，跟大家介绍我的新家](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
-- [平陆运河挖出的土石方去哪了](http://www.movie.hkepx.cn/xiju/3921462.htm)
-- [全网首发！感谢大家参与！二周年彩蛋我们解出来啦！大战场篇完事！三角洲真的太阴了！](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
-- [有哪些演员错过了某个角色，让你倍感遗憾？](http://www.daogukj.com/7980452)
+- [10 年期美债突破「5% 收益率关口」，全球债市抛售潮是否将加速，加息预期下的市场何去何从？](http://www.movie.hkepx.cn/xiju/3921462.htm)
+- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
+- [亲证](http://www.daogukj.com/7980452)
 
 </details>
 
 ## 原始来源
 
-- [于东来回应“四年合同制”](https://www.toutiao.com/trending/7685354991527431726/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227685354991527431726%22%2C%22hot_board_impr_id%22%3A%2220260915084016FC67A93B883E70EEE9B5%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [如何看待东南大学电子学院预推免结果，高绩点保研本院失败，顶尖学院为何「看不上」自己培养的学生？](https://www.zhihu.com/question/2079359302301701322)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d3145e110e5fbaf9ff9a -->
+<!-- content-fingerprint: a6101acdd50b3e4418cd -->
