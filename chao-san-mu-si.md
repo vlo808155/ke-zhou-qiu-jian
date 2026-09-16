@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# “30岁以上老人吃面送荷包蛋”
+# 谭松韵演出生理性恐惧
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6755164 · 更新：2026-09-17T05:44:04+08:00
+> 来源：微博热搜 · 排名：第 12 位 · 热度：294659 · 分类：剧集 · 更新：2026-09-17T07:53:56+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，““30岁以上老人吃面送荷包蛋””位列第 11 位，公开热度指标为 6755164。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“谭松韵演出生理性恐惧”位列第 12 位，公开热度指标为 294659，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月15日，江苏一家猪蹄面馆推出“30岁以上老人吃面送荷包蛋”活动。面馆老板回应称，确有引流考虑，但自己也是三十多岁，这个年纪上有老下有小易忽略自己，希望大家能学会爱自己。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `剧集`
 
 ## 相关热点
 
-- [玻尿酸科普](dui-niu-tan-qin.md)
-- [聊天记录显示导师曾给坠亡学生转账关心](mang-ren-mo-xiang.md)
-- [南方医科大学一学生坠楼身亡，其二姐称「导师对弟弟很关心」，导师辟谣「不给批假」，哪些信息值得关注？](yuan-mu-qiu-yu.md)
-- [《锻刀大赛》锻造中国菜刀🔪！怎么锻着锻着变异了？](sha-ji-qu-luan.md)
+- [聊天记录显示导师曾给坠亡学生转账关心](dui-niu-tan-qin.md)
+- [伊朗单日击落 3 架美军 MQ-1 无人机，美军密集出动同一侦察机，想获取什么情报？还是试探伊朗防空？](mang-ren-mo-xiang.md)
+- [炽日将烬 // 2026无畏契约全球冠军赛主题曲](yuan-mu-qiu-yu.md)
+- [也门胡塞武装称击落沙特F-15战机](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
-- [折叠还是直板？iPhone 18 Pro&Duo深度视频](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [大禹看了沉默，愚公看了流泪](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [王曼昱回应首次登顶女单世界第一](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [第一批穿德训鞋的受害者出现了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [2岁幼童18楼坠亡警方认定意外](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [一车人都买错票车站 12306有新显示](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [美股三大指数集体收跌](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [特朗普称利率应降至1%或更低](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [邵子恒在韩国参加的选秀节目](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [适当饿一点好处竟然这么多](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女儿撮合离异母亲与丧偶公公结婚](http://www.daogukj.com/4141941)
-- [学生雨天打伞端饭盒回教室 校方回应](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [大禹看了沉默，愚公看了流泪](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [玻尿酸科普](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [让路人决定我的旅行，上来就让我徒步168km？？](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [立志成为恶兽第四集【up动画】【AI全民制作人】](http://www.daogukj.com/7265089)
-- [大一新生1000块一个月到底够花吗](http://www.daogukj.com/3085948)
-- [父亲遛狗2岁幼童从18楼坠亡](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [聊天记录显示导师曾给坠亡学生转账关心](http://www.daogukj.com/jtbnzsng/)
-- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [《锻刀大赛》锻造中国菜刀🔪！怎么锻着锻着变异了？](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [烂烂烂烂烂烂活](http://www.daogukj.com/5882217)
-- [妈妈忘接孩子 男孩淡定躺台阶吃东西](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [战火烧到波兰门口 乌还能撑多久](http://www.daogukj.com/0190432)
-- [父亲遛狗2岁幼童独留家中坠亡](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [【邓肯】“梅姨”案](http://www.daogukj.com/nzmqevzx/)
-- [南方医科大学一学生坠楼身亡，其二姐称「导师对弟弟很关心」，导师辟谣「不给批假」，哪些信息值得关注？](http://www.daogukj.com/qnzjxpsz/)
-- [中国十大消费县排行](http://www.daogukj.com/7347029)
-- [每天处理猫咪跟小小人类纠纷](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [南京博物院 徐湖平](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [曝国乒落地名古屋被困机场](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [男子酒驾发生事故主动报警“自首”](http://www.daogukj.com/4141941)
+- [儿子去世孙子非亲生 老人：断子绝孙了](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [美股三大指数集体收跌](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [聊天记录显示导师曾给坠亡学生转账关心](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [18.99万起售！方程S保姆级导购教程](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [这夜坝真讷啊](http://www.daogukj.com/7265089)
+- [曝国乒落地名古屋被困机场](http://www.daogukj.com/3085948)
+- [“民政部组织国盛民安补贴工程”不实](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [伊朗单日击落 3 架美军 MQ-1 无人机，美军密集出动同一侦察机，想获取什么情报？还是试探伊朗防空？](http://www.daogukj.com/jtbnzsng/)
+- [平陆运河“全能管家”有多硬核](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [也门胡塞武装称击落沙特F-15战机](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [老人手机130个流氓软件疯狂弹广告](http://www.daogukj.com/5882217)
+- [港中大（深圳）实行 9 个月工资制，并期望年轻教授 5 年内获诺奖，这会如何影响学术生态？](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [韩国 3000 元一针的「尸皮针」火了，把死人皮肤组织打进活人脸里真能抗衰老吗？会有安全和伦理风险吗？](http://www.daogukj.com/0190432)
+- [每天处理猫咪跟小小人类纠纷](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [中国女子板球队时隔12年重返亚运](http://www.daogukj.com/nzmqevzx/)
+- [炽日将烬 // 2026无畏契约全球冠军赛主题曲](http://www.daogukj.com/qnzjxpsz/)
+- [举手式睡姿是身体在求救](http://www.daogukj.com/7347029)
+- [非亲生案儿媳称老人起诉为霸占遗产](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [“豆包手机”正式发售](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [胡塞武装承诺不袭击美以船只](http://www.movie.hkepx.cn/xiju/8115054.htm)
 - [美联储宣布加息25个基点](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [伊朗单日击落 3 架美军 MQ-1 无人机，美军密集出动同一侦察机，想获取什么情报？还是试探伊朗防空？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [25岁小伙确诊全球罕见变异白血病](http://www.daogukj.com/2641155)
-- [野人先生在沉默数日后首度发声，「感谢大家长期以来对野人先生的关心和支持」，你觉得这波公关处理怎么样？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [中国男乒五战全败](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [中国男子涉嫌在印尼渔猎玳瑁并烹饪，离境时被拦接受调查，玳瑁是什么动物？若属实他将承担什么责任？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [80后富豪要掏30亿救哪吒汽车图什么](http://www.daogukj.com/3850819)
-- [9图读懂平陆运河核心看点](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [为什么QQ邮箱这么好用大家还是觉得它「档次不够高」？](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [为什么职场中乐于助人的人最后往往变成了 "老好人"，活变得越来越多？](http://www.daogukj.com/9307696)
-- [这夜坝真讷啊](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [性格决定命运这句话太残忍了](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [【何同学】很大胆。iPhone 18 Pro首发体验](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [为什么感觉江湖人士有内力就不做防护的和人打架很傻?](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [“豆包手机”正式发售](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [iPhone18Duo评测](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [超强厄尔尼诺将影响江苏](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [女演员心脏骤停康复5年后重新拍戏](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [港中大（深圳）实行 9 个月工资制，并期望年轻教授 5 年内获诺奖，这会如何影响学术生态？](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [亚运会开幕式中国代表团旗手确定](http://www.daogukj.com/6360237)
-- [官方辟谣国盛民安养老补贴惠民工程](http://www.daogukj.com/7781714)
-- [2岁幼童18楼坠亡警方认定意外](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [评论员：统一是解决台湾问题唯一途径](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [张一鸣成亚洲首富](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [崔天凯：一劳永逸解决台湾问题](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [父亲遛狗2岁幼童独留家中坠亡](http://www.daogukj.com/2641155)
+- [大禹看了沉默，愚公看了流泪](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [战火烧到波兰门口 乌还能撑多久](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [天津漫展手机事件](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [王鹤棣方称已就网传不实聊天记录报警并完成取证，静和医疗否认王鹤棣曾就诊，到底发生了什么？](http://www.daogukj.com/3850819)
+- [夏粮收购总量超1亿吨](http://www.movie.hkepx.cn/xiju/8710542.htm)
+- [英国：再不师华长技以制华我就成满清了](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [【邓肯】“梅姨”案](http://www.daogukj.com/9307696)
+- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [平陆运河改变了什么](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [大学毕业生举报资助人是间谍](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [⚡️请被欧拉吧DIO大人！⚡️【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [平陆运河开通了，真的能节约运费吗？](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [马斯克警告AI若控制核弹后果严重](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [学生党无力支付token费用怎么办？](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [南京博物院 徐湖平](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [中国男子涉嫌在印尼渔猎玳瑁并烹饪，离境时被拦接受调查，玳瑁是什么动物？若属实他将承担什么责任？](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [奢华限量版iPhone 18 Pro售5.1万起](http://www.daogukj.com/6360237)
+- [父亲遛狗2岁幼童从18楼坠亡](http://www.daogukj.com/7781714)
+- [适当饿一点好处竟然这么多](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [理想i9上市 售价36.98万元](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [国乒滞留名古屋机场画面曝光](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [南方医科大学一学生坠楼身亡，其二姐称「导师对弟弟很关心」，导师辟谣「不给批假」，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/3946221.htm)
 - [退休副省长家丢了243万元茅台名酒](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [天津漫展手机事件](http://www.movie.hkepx.cn/xiju/7034358.htm)
-- [美联储](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [iPhone 18 Pro 评测：献祭手感，换回超强性能和续航](http://www.daogukj.com/nlksxqaw/)
+- [大一新生1000块一个月到底够花吗](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [美联储预计年底前还将加息一次](http://www.movie.hkepx.cn/xiju/0218818.htm)
+- [80后富豪要掏30亿救哪吒汽车图什么](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [“30岁以上老人吃面送荷包蛋”](https://www.baidu.com/s?wd=%E2%80%9C30%E5%B2%81%E4%BB%A5%E4%B8%8A%E8%80%81%E4%BA%BA%E5%90%83%E9%9D%A2%E9%80%81%E8%8D%B7%E5%8C%85%E8%9B%8B%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [谭松韵演出生理性恐惧](https://s.weibo.com/weibo?q=%E8%B0%AD%E6%9D%BE%E9%9F%B5%E6%BC%94%E5%87%BA%E7%94%9F%E7%90%86%E6%80%A7%E6%81%90%E6%83%A7)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0af0af54fefda65b6153 -->
+<!-- content-fingerprint: ff0821f6c27adc886396 -->
