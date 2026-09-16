@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 医生建议生气时暂停3秒
+# 32岁教师因病去世 朋友圈留绝笔信
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7044936 · 更新：2026-09-16T13:05:20+08:00
+> 来源：百度热搜 · 排名：第 8 位 · 热度：7045725 · 更新：2026-09-16T17:58:53+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“医生建议生气时暂停3秒”位列第 8 位，公开热度指标为 7044936。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“32岁教师因病去世 朋友圈留绝笔信”位列第 8 位，公开热度指标为 7045725。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，河南省中医院脑病科医生表示，当你生气时暂停3秒，想想该不该生气，觉得实在还气再发火。
+来源公开摘要显示：9月14日，河北保定32岁中学地理教师王嘉新因恶性肿瘤不幸离世。其在朋友圈留下绝笔信，坦言抗争病魔的无奈并嘱托亲友代为尽孝，引发师生与网友悼念。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [优酷首个官宣告别信](yan-er-dao-ling.md)
-- [周鸿祎称不会再投资新能源汽车](nan-yuan-bei-zhe.md)
-- [华为、赛力斯合作模式改变后，赛力斯官宣“问界大饭店”回归，推出免费错峰洗车、餐饮等服务，你怎么看？](mai-du-huan-zhu.md)
-- [《上吊比赛》](ye-gong-hao-long.md)
+- [硕士考试第一名因专升本被取消资格](yan-er-dao-ling.md)
+- [赵家驹：从外卖小哥到世界冠军](nan-yuan-bei-zhe.md)
+- [钟薛高宣布重启，推出三种口味，零售价最低跌到 6.9 元一支，你看好钟薛高这次「复活」吗？](mai-du-huan-zhu.md)
+- [我疯了！挑战1比1还原海绵宝宝浴室，打造专属菠萝屋](ye-gong-hao-long.md)
 
 ## 站内推荐
 
-- [世纪工程4年完工](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [老人接到女儿离世噩耗 导游助其回家](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [平陆运河集齐多个“最硬核”标签](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [啄木鸟维修换1个开关收费2800](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
 - [不良信息一键举报 共建清朗空间](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [女子被高空抛物致死抛砖男被执行死刑](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [A股](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [网红姜乘澜带货能力太恐怖](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [多国奥委会批评日本](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [重播率百分百](http://www.movie.hkepx.cn/xiju/2843648.htm)
-- [据统计，番茄AI文占比74.5%，起点仅10%，数据可靠吗？起点会因手搓文技术落后而完蛋吗？](http://www.daogukj.com/0895296)
-- [如何看待解说米勒评价 BLG 犯下傲慢之罪引起粉丝不满？BLG 的失利真是因为「傲慢之罪」吗？](http://www.movie.hkepx.cn/xiju/3970296.htm)
-- [《上吊比赛》](http://www.movie.hkepx.cn/movie/5125967.htm)
-- [中国女子首尔商场出手打白人](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
-- [平陆运河正式通航，广西从此江海直连，这条设想了近百年的运河建设难度有多大？它能「带飞」中国西南吗？](http://www.movie.hkepx.cn/xiju/5735202.htm)
-- [我不得不把才华埋葬在昨天](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
-- [韩国尸皮针价格](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
-- [养老院89岁和69岁老人冲突 官方通报](http://www.daogukj.com/1682120)
+- [小沈阳一开口直接封神](http://www.movie.hkepx.cn/xiju/2843648.htm)
+- [崔天凯：一劳永逸解决台湾问题](http://www.daogukj.com/0895296)
+- [赵家驹夺得 2026 巨人之旅 TOR330 越野跑冠军，为亚洲首冠并打破赛道纪录，如何评价本次表现？](http://www.movie.hkepx.cn/xiju/3970296.htm)
+- [我疯了！挑战1比1还原海绵宝宝浴室，打造专属菠萝屋](http://www.movie.hkepx.cn/movie/5125967.htm)
+- [是什么让90后的各位感觉自己已经跟不上时代、落伍了的？](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
+- [南方医科大学疑有一名本博连读医学生坠亡，警方正跟进处理，具体情况如何？怎样看待背后折射的医学教育窘境？](http://www.movie.hkepx.cn/xiju/5735202.htm)
+- [巡视组正在南方医科大学开展工作](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
+- [知情人称南医大事件部分网传不属实](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
+- [经济学家：美联储本周恐触发股灾](http://www.daogukj.com/1682120)
 - [如何看待厂二代拍工厂宣传视频被网友评论区追问「职工福利如何」？为啥大家开始反感这类厂二代视频了？](http://www.daogukj.com/3781657)
-- [小伙手机余额超过￥1000000时，手机会自动…… 荣耀MagicOS11深度体验](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
-- [曝赛力斯每卖一辆车车价10%归华为](http://www.movie.hkepx.cn/xiju/8318389.htm)
-- [不良信息一键举报 共建清朗网络空间](http://www.movie.hkepx.cn/xiju/6056931.htm)
-- [恋人](http://www.movie.hkepx.cn/xiju/3703541.htm)
-- [曝许嵩冯禧结婚了](http://www.movie.hkepx.cn/xiju/8516838.htm)
-- [女子凌晨回家 客厅有戴口罩陌生男子](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
-- [野人先生创始人曾回应 38 元一个冰淇淋太贵，称自己的品牌把行业价格打下来了，客观来看这个定价合理吗？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
-- [陈建州突发心梗小S吓哭](http://www.movie.hkepx.cn/movie/7128560.htm)
-- [小伙211毕业卖手机第1个月赚3万](http://www.daogukj.com/3515190)
-- [董军出席北京香山论坛开幕式](http://www.daogukj.com/0169777)
-- [与印度人聊聊种姓制、恒河水、挂火车、仿制药、补习班、IT外包、彩礼嫁妆、干净又卫生……网络刻板印象是真是假？| 地球观察局EP01 【视频播客】](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
-- [赵露思自导自演新剧《告别信》](http://www.daogukj.com/4071713)
-- [是什么让90后的各位感觉自己已经跟不上时代、落伍了的？](http://www.daogukj.com/pjoqnyew/)
-- [退休副省长家丢了243万元茅台名酒](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
-- [警方回应南方医科大学疑有学生坠楼事件，称派出所在跟进中，具体情况如何？怎样看待背后折射的医学教育窘境？](http://www.movie.hkepx.cn/movie/5516169.htm)
-- [AI开始预测人类](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
-- [“我的人生被那道数学题毁了”](http://www.daogukj.com/pgdrxeea/)
-- [知名爱豆嫁给励志博主，竟是天龙人的绑架pua？夫妻人设割韭菜，到底能有多赚钱！](http://www.daogukj.com/7272013)
-- [一组数看我国经济澎湃动能](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
-- [南方医科大学工作人员回应](http://www.daogukj.com/3521407)
-- [祖国统一的大势滚滚向前 不可阻挡](http://www.daogukj.com/9982293)
-- [女儿撮合离异母亲与丧偶公公结婚](http://www.movie.hkepx.cn/xiju/3540024.htm)
-- [“订单绕了一圈还是回到中国”](http://www.movie.hkepx.cn/movie/9307027.htm)
-- [第一次坐公交坐崩溃了，忍不住哭了](http://www.movie.hkepx.cn/movie/7494540.htm)
-- [香港特区首个五年规划正式公布](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
-- [世纪工程4年完工](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
-- [老人接到女儿离世噩耗 导游助其回家](http://www.daogukj.com/4973551)
-- [南方医科大学 令人心动的offer](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
-- [《锻刀大赛》锻造中国菜刀🔪！怎么锻着锻着变异了？](http://www.daogukj.com/zirrjtcq/)
-- [一组数字解码平陆运河](http://www.daogukj.com/pvjkdvkl/)
-- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.movie.hkepx.cn/movie/8281799.htm)
-- [演员王凯在光明日报发文](http://www.movie.hkepx.cn/movie/4145451.htm)
-- [《原神》薇斯纳角色PV——「『风』行迷踪」](http://www.movie.hkepx.cn/xiju/5480896.htm)
-- [文章再现名梗哥哥我顺极了](http://www.movie.hkepx.cn/xiju/6192675.htm)
-- [领衔主演傅诗淇](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
-- [《鸣潮》动画短片 | 寻心](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
+- [《原神》薇斯纳角色PV——「『风』行迷踪」](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
+- [王毅：敦促早日开放霍尔木兹海峡](http://www.movie.hkepx.cn/xiju/8318389.htm)
+- [四川辟谣高校禁连放13天假](http://www.movie.hkepx.cn/xiju/6056931.htm)
+- [因为我用力过猛，导致中文版的体验感超越了原版！开玩笑～因为我太喜欢做这些有趣的东西了！希望大家喜欢这款游戏，我会尽力修复Bug进行优化的！](http://www.movie.hkepx.cn/xiju/3703541.htm)
+- [王鹤棣方已取证报警](http://www.movie.hkepx.cn/xiju/8516838.htm)
+- [中国男篮击败沙特晋级4强](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
+- [南京博物院相关受赠文物一事，南京博物院原院长被判有期徒刑三年，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
+- [媒体人：健康的崔永熙价值越来越大](http://www.movie.hkepx.cn/movie/7128560.htm)
+- [大葱，小葱，京葱，香葱，洋葱，红葱头，韭菜，大蒜，它们之间有什么联系？](http://www.daogukj.com/3515190)
+- [男子欠500余万靠亲子转移躲债获刑](http://www.daogukj.com/0169777)
+- [我当面问了 Craig：为什么 iPhone 死活不让从右边返回？（散装英语最勇敢的一集）](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
+- [昔日“彩电大王”要退市了](http://www.daogukj.com/4071713)
+- [一点点 施压员工爷爷奶奶](http://www.daogukj.com/pjoqnyew/)
+- [第一批穿德训鞋的受害者出现了](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
+- [平陆运河正式通航，广西从此江海直连，这条设想了近百年的运河建设难度有多大？它能「带飞」中国西南吗？](http://www.movie.hkepx.cn/movie/5516169.htm)
+- [研究发现每天吃够豆类高血压风险降低](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
+- [周柯宇新手司机历险记](http://www.daogukj.com/pgdrxeea/)
+- [《女生VS男生》](http://www.daogukj.com/7272013)
+- [公积金扩围撬动万亿消费新活力](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
+- [井柏然孙千 二搭](http://www.daogukj.com/3521407)
+- [张一鸣成亚洲首富](http://www.daogukj.com/9982293)
+- [亚运会男篮淘汰赛伊朗队晋级半决赛](http://www.movie.hkepx.cn/xiju/3540024.htm)
+- [曝许嵩冯禧结婚了](http://www.movie.hkepx.cn/movie/9307027.htm)
+- [一家三口打赏650万全赖女儿身上](http://www.movie.hkepx.cn/movie/7494540.htm)
+- [优酷](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
+- [平陆运河集齐多个“最硬核”标签](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
+- [啄木鸟维修换1个开关收费2800](http://www.daogukj.com/4973551)
+- [新加坡总理已经是全球收入最高的政府首脑，为什么还要给自己涨64%的工资？](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
+- [时速最少160以上飞过去了](http://www.daogukj.com/zirrjtcq/)
+- [解码世纪工程的硬核实力](http://www.daogukj.com/pvjkdvkl/)
+- [《鸣潮》动画短片 | 寻心](http://www.movie.hkepx.cn/movie/8281799.htm)
+- [宁德时代上半年营收利润双增股价却大跌，车企「去宁德化」如何影响其未来？](http://www.movie.hkepx.cn/movie/4145451.htm)
+- [烂烂烂烂烂烂活](http://www.movie.hkepx.cn/xiju/5480896.htm)
+- [11 年了，终于上王者了](http://www.movie.hkepx.cn/xiju/6192675.htm)
+- [韩国美容针 尸皮针](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
+- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
 - [不良信息一键举报 共建清朗空间](http://www.movie.hkepx.cn/movie/8224566.htm)
-- [优酷首个官宣告别信](http://www.daogukj.com/rdjgxawo/)
-- [南方医大 医学生培养压力](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
-- [迎接崭新的融合超级机枪豌豆！【bilibilionly同人扶持计划】](http://www.daogukj.com/4280554)
+- [硕士考试第一名因专升本被取消资格](http://www.daogukj.com/rdjgxawo/)
+- [于东来骑张雪机车园区“遛弯”](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
+- [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](http://www.daogukj.com/4280554)
 
 </details>
 
 ## 原始来源
 
-- [医生建议生气时暂停3秒](https://www.baidu.com/s?wd=%E5%8C%BB%E7%94%9F%E5%BB%BA%E8%AE%AE%E7%94%9F%E6%B0%94%E6%97%B6%E6%9A%82%E5%81%9C3%E7%A7%92&sa=fyb_news&rsv_dl=fyb_news)
+- [32岁教师因病去世 朋友圈留绝笔信](https://www.baidu.com/s?wd=32%E5%B2%81%E6%95%99%E5%B8%88%E5%9B%A0%E7%97%85%E5%8E%BB%E4%B8%96+%E6%9C%8B%E5%8F%8B%E5%9C%88%E7%95%99%E7%BB%9D%E7%AC%94%E4%BF%A1&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 70aea74d5c972ee20fb4 -->
+<!-- content-fingerprint: 35dd6b29acd7a15ebe7f -->
