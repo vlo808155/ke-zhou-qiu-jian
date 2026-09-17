@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 字节跳动被曝上半年营收大涨 30%但因 AI 投资致净利同比下滑，净利润率降至 16.7%，如何解读？
+# 香港特区首个五年规划正式公布，哪些信息值得关注？
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：110 万热度 · 分类：问答 · 更新：2026-09-17T07:53:56+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：168 万热度 · 分类：问答 · 更新：2026-09-17T11:58:47+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“字节跳动被曝上半年营收大涨 30%但因 AI 投资致净利同比下滑，净利润率降至 16.7%，如何解读？”位列第 11 位，公开热度指标为 110 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“香港特区首个五年规划正式公布，哪些信息值得关注？”位列第 11 位，公开热度指标为 168 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：澎湃新闻消息，9月15日晚间，据外媒报道，由于加大了在人工智能领域的投资，字节跳动2026年上半年净利润同比出现下降。同时，受TikTok等海外业务推动，字节跳动上半年营收同比增长30%，海外收入占比再创新高。 外媒报道称，尽管抖音仍贡献了字节跳动的大部分收入，但TikTok为主的海外业务在字节跳动整体营收中的占比正稳步提升，2024年为25%，2025年占比提升至30%。 对此，字节跳动方面没有回应。字节跳动被曝上半年因AI投资致净利同比下滑，净利润率降至16.7%_10%公司_澎湃新闻-The Paper
+来源公开摘要显示：香港特区政府16日正式公布《香港特别行政区经济和社会发展第一个五年规划(2026-2030年)》。香港特区首个五年规划正式公布-中新网
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [5.0L大V8，如今是否还能打？](han-dan-xue-bu.md)
-- [张一鸣成亚洲首富](qi-ren-you-tian.md)
-- [谭松韵演出生理性恐惧](chao-san-mu-si.md)
-- [聊天记录显示导师曾给坠亡学生转账关心](dui-niu-tan-qin.md)
+- [《异环》1.4版本前瞻特别节目回顾](han-dan-xue-bu.md)
+- [国乒被困日本机场 孙颖莎直接开练](qi-ren-you-tian.md)
+- [范玮琪7年6大失言争议](chao-san-mu-si.md)
+- [胡塞在击落F15废墟前高喊打倒以色列](dui-niu-tan-qin.md)
 
 ## 站内推荐
 
-- [美联储宣布加息25个基点](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [拆迁查户口发现父亲有个16岁私生子](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [南方医科大学一学生坠楼身亡，其二姐称「导师对弟弟很关心」，导师辟谣「不给批假」，哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [中国男子涉嫌在印尼渔猎玳瑁并烹饪，离境时被拦接受调查，玳瑁是什么动物？若属实他将承担什么责任？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [1000万现金，引出两起命案，3条故事线，五路人马，揭开人性暗黑面！过度解读经典港片《夺命金》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [影视飓风Tim反掰iPhoneDuo被质疑](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [儿子突然的离世父亲的天塌了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [美联储预计年底前还将加息一次，12 位官员预计今年还将加息 25 个基点，这次加息周期会有多长？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [三年之期已到，恭迎世一上归位！【第9集】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [英国：再不师华长技以制华我就成满清了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [特朗普称利率应降至1%或更低](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
-- [假警察收礼14万捞人 受害人也是骗子](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
-- [胡塞武装承诺不袭击美以船只](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
-- [一车人都买错票车站 12306有新显示](http://www.movie.hkepx.cn/movie/5991338.htm)
-- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.daogukj.com/lxoougkn/)
-- [1000万现金，引出两起命案，3条故事线，五路人马，揭开人性暗黑面！过度解读经典港片《夺命金》](http://www.daogukj.com/8326428)
-- [“如”字泛滥 “锦”字刷屏](http://www.movie.hkepx.cn/xiju/5072880.htm)
-- [平陆运河“全能管家”有多硬核](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
-- [伊朗单日击落 3 架美军 MQ-1 无人机，美军密集出动同一侦察机，想获取什么情报？还是试探伊朗防空？](http://www.daogukj.com/1022614)
-- [为什么感觉现在的教育工作者都在吐槽小孩越来越笨了？究竟是个别现象被当普遍现象还是真的如此？](http://www.movie.hkepx.cn/xiju/7621812.htm)
-- [大一新生1000块一个月到底够花吗](http://www.movie.hkepx.cn/movie/2413887.htm)
-- [中国体操队在机场等了6小时](http://www.movie.hkepx.cn/xiju/7532931.htm)
-- [谭松韵演出生理性恐惧](http://www.daogukj.com/kbhgllhh/)
-- [王鹤棣方称已就网传不实聊天记录报警并完成取证，静和医疗否认王鹤棣曾就诊，到底发生了什么？](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
-- [时隔3年多 美联储加息25个基点](http://www.daogukj.com/1222828)
-- [《鸣潮》动画短片 | 寻心](http://www.daogukj.com/ttvulxwh/)
-- [野人先生在沉默数日后首度发声，「感谢大家长期以来对野人先生的关心和支持」，你觉得这波公关处理怎么样？](http://www.movie.hkepx.cn/xiju/9490112.htm)
-- [男子酒驾发生事故主动报警“自首”](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
-- [适当饿一点好处竟然这么多](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
-- [奢华限量版iPhone 18 Pro售5.1万起](http://www.daogukj.com/qxdtupzr/)
-- [大禹看了沉默，愚公看了流泪](http://www.movie.hkepx.cn/xiju/3795229.htm)
-- [韩国 3000 元一针的「尸皮针」火了，把死人皮肤组织打进活人脸里真能抗衰老吗？会有安全和伦理风险吗？](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
-- [华为赛力斯改为轻资产合作模式，对赛力斯而言有哪些机会和挑战？](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
-- [曼联2-3遭布莱顿逆转](http://www.daogukj.com/8473621)
-- [儿子用豆包选下葬母亲黄道吉日，因葬礼后亲戚遇车祸重伤决定起诉豆包，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
-- [学生党无力支付token费用怎么办？](http://www.movie.hkepx.cn/xiju/0754538.htm)
-- [80后富豪要掏30亿救哪吒汽车图什么](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
-- [60后老妈深度豆包手机助手半个月!表示真香!](http://www.daogukj.com/nddpfxtw/)
-- [曝国乒落地名古屋被困机场](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
-- [老人手机130个流氓软件疯狂弹广告](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
-- [这夜坝真讷啊](http://www.daogukj.com/0923785)
-- [美联储预计年底前还将加息一次](http://www.daogukj.com/ytapmyxr/)
-- [iPhone18Duo评测](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
+- [小朋友什么行为显得没家教](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
+- [沙特为何打不过胡塞“拖鞋军”](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
+- [举手式睡姿是身体在求救](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
+- [折叠还是直板？iPhone 18 Pro&Duo深度视频](http://www.movie.hkepx.cn/movie/5991338.htm)
+- [硕士人才引进考试第一因专升本被取消资格，官方称前期审核失误，处理方式合理吗？审核失误责任该由谁承担？](http://www.daogukj.com/lxoougkn/)
+- [英国：再不师华长技以制华我就成满清了](http://www.daogukj.com/8326428)
+- [大禹看了沉默，愚公看了流泪](http://www.movie.hkepx.cn/xiju/5072880.htm)
+- [天津漫展手机事件](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
+- [百度搜索为什么没落了？](http://www.daogukj.com/1022614)
+- [《鸣潮》动画短片 | 寻心](http://www.movie.hkepx.cn/xiju/7621812.htm)
+- [车市上演“疯狂星期三”](http://www.movie.hkepx.cn/movie/2413887.htm)
+- [中国女子板球队未战淘汰](http://www.movie.hkepx.cn/xiju/7532931.htm)
+- [范玮琪7年6大失言争议](http://www.daogukj.com/kbhgllhh/)
+- [为什么有些人喝一点酒就脸红？不脸红就代表更能分解酒精吗？](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
+- [日本高市内阁全体阁僚提交辞呈](http://www.daogukj.com/1222828)
+- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.daogukj.com/ttvulxwh/)
+- [各地多措并举护航粮食稳产增收](http://www.movie.hkepx.cn/xiju/9490112.htm)
+- [为什么很多小说或电视剧里都是镇北侯，怎么没有镇南侯？](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
+- [山东菏泽首位女市长李春英辞职](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
+- [美联储加息对日本有何影响](http://www.daogukj.com/qxdtupzr/)
+- [儿子用豆包选下葬母亲黄道吉日，因葬礼后亲戚遇车祸重伤决定起诉豆包，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/3795229.htm)
+- [高市内阁全体阁僚提交辞呈](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
+- [最近川渝方言「耍起」爆火，网友总结出「幸福者耍起」等口号，为啥这个梗火了？反映了怎样的生活态度？](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
+- [张博恒名古屋饿12个小时肚子](http://www.daogukj.com/8473621)
+- [影视飓风Tim回应反掰iPhone Duo](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
+- [特朗普发文称美国利率应当降至 1%或更低，这一利率对美国意味着什么？能实现吗？](http://www.movie.hkepx.cn/xiju/0754538.htm)
+- [南医大坠亡事件导师学生聊天记录](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
+- [手搓电影《目不转睛》](http://www.daogukj.com/nddpfxtw/)
+- [男子遭蜂群围攻 全身残留近千根毒刺](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
+- [各省的刻板印象这一块](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
+- [一车人都买错票车站 12306有新显示](http://www.daogukj.com/0923785)
+- [胡歌被排到了第八位](http://www.daogukj.com/ytapmyxr/)
+- [芒果一口气推出89部大剧](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
 - [“民政部组织国盛民安补贴工程”不实](http://www.daogukj.com/3735760)
-- [平陆运河改变了什么](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
-- [美国房贷利率突破7%](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
-- [父亲遛狗2岁幼童从18楼坠亡](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
-- [平陆运河开通了，真的能节约运费吗？](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
-- [邵子恒在韩国参加的选秀节目](http://www.daogukj.com/0437875)
-- [国乒被困亚运机场只给水不给饭](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
-- [英国：再不师华长技以制华我就成满清了](http://www.movie.hkepx.cn/xiju/4010771.htm)
-- [天津漫展手机事件](http://www.daogukj.com/cvgkgyqv/)
-- [南京博物院 徐湖平](http://www.daogukj.com/afffhqsf/)
-- [港中大（深圳）实行 9 个月工资制，并期望年轻教授 5 年内获诺奖，这会如何影响学术生态？](http://www.movie.hkepx.cn/movie/4359740.htm)
-- [举手式睡姿是身体在求救](http://www.daogukj.com/zaudsbpz/)
-- [美股三大指数集体收跌](http://www.daogukj.com/riicnlnn/)
-- [拆迁查户口发现父亲有个16岁私生子](http://www.movie.hkepx.cn/movie/3461436.htm)
-- [坠亡幼童父亲被妻子打后扬言要报警](http://www.movie.hkepx.cn/xiju/6388091.htm)
-- [一个真正能做科研的AI应该长什么样](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
-- [儿子去世孙子非亲生 老人：断子绝孙了](http://www.daogukj.com/9288361)
+- [倪萍写信告别敬一丹](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
+- [曹骏徐正溪领衔主演何不同舟渡](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
+- [小雪删除互动回复](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
+- [为什么星星没有绿色或者紫色的呢？](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
+- [美联储突然加息意味着什么](http://www.daogukj.com/0437875)
+- [井柏然第一次收官发女主](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
+- [【邓肯】“梅姨”案](http://www.movie.hkepx.cn/xiju/4010771.htm)
+- [HYROX 就「选手失禁夺冠」一事道歉并给下午场赛事运动员全额退费，你认为这次道歉＋退费能挽回口碑吗？](http://www.daogukj.com/cvgkgyqv/)
+- [Tim反向掰一下iPhoneDuo后出现闪屏](http://www.daogukj.com/afffhqsf/)
+- [有哪些演员让你觉得第一眼惊为天人，后面觉得很普通，甚至怪怪的？](http://www.movie.hkepx.cn/movie/4359740.htm)
+- [美联储加息 黄金](http://www.daogukj.com/zaudsbpz/)
+- [烂烂烂烂烂烂活](http://www.daogukj.com/riicnlnn/)
+- [儿子突然的离世父亲的天塌了](http://www.movie.hkepx.cn/movie/3461436.htm)
+- [天哪这就1000块了](http://www.movie.hkepx.cn/xiju/6388091.htm)
+- [军训新生遇接亲车队 新郎下车送喜糖](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
+- [国羽被困机场 贾一凡带队自救](http://www.daogukj.com/9288361)
 
 </details>
 
 ## 原始来源
 
-- [字节跳动被曝上半年营收大涨 30%但因 AI 投资致净利同比下滑，净利润率降至 16.7%，如何解读？](https://www.zhihu.com/question/2083335175057028860)
+- [香港特区首个五年规划正式公布，哪些信息值得关注？](https://www.zhihu.com/question/2083512520640353090)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1c875d50c5bde90fb15a -->
+<!-- content-fingerprint: 907465a56377f35e83e2 -->
