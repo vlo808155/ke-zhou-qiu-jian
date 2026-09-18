@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 全球陷入「抢钨大战」，两年时间价格上涨了约 9 倍，为啥会疯涨？钨这种稀有金属的战略价值体现在哪里？
+# 10分钟内2次！菲船故意冲撞中方
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：155 万热度 · 分类：问答 · 更新：2026-09-18T14:41:44+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6951382 · 更新：2026-09-18T19:52:48+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“全球陷入「抢钨大战」，两年时间价格上涨了约 9 倍，为啥会疯涨？钨这种稀有金属的战略价值体现在哪里？”位列第 9 位，公开热度指标为 155 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“10分钟内2次！菲船故意冲撞中方”位列第 9 位，公开热度指标为 6951382。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：两年时间，国际市场钨产业链中间产品价格上涨约9倍。近期，美国、英国、越南、津巴布韦等国相继调整钨相关政策，全球钨资源争夺正在升温。 钨是什么？ 钨，是一种熔点极高的稀有金属，熔点达到3422℃，是自然界熔点最高的金属。凭借硬度大、耐高温、抗腐蚀的特性，它被形象叫作“工业牙齿”。钨是国防军工、半导体、AI算力领域里不可替代的关键矿产。 标普全球在上月发布的一份报告中指出，全球钨需求（按三氧化钨计）在2025年约为16.2万吨，预计未来每年增长约2%，到2030年将超18万吨，2035年进一步升至20.2万吨。 钨到底有多“紧俏”？ 作为钨产业链核心中间产品
+来源公开摘要显示：9月18日，中国海警局新闻发言人表示，当天中国海警在南沙群岛仙宾礁附近海域开展维权执法行动。菲船无视中方多次严正警告，在10分钟内两次故意调整航向、加速斜插中方海警艇，导致发生擦碰，挑衅意味明显。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [俺叫蔓小迪，一坨立誓成为”救世主“的泡沫💪！](ye-gong-hao-long.md)
-- [《欢迎来龙餐馆》918日本上映](lan-yu-chong-shu.md)
-- [我们来了 刘雯](zi-xiang-mao-dun.md)
-- [住建部：房地产进入存量时代](bei-gong-she-ying.md)
+- [月入9000夫妻办婚礼只花1.6万](ye-gong-hao-long.md)
+- [A股开始反攻了吗](lan-yu-chong-shu.md)
+- [孙悟空为什么被压前叫“泼猴”，出来后都喊“大圣”？](zi-xiang-mao-dun.md)
+- [【年会不能停！2】刘马组合升职无限流](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [如何看待「快递小哥救助摔倒老人反被索赔超 92 万」一案，终审驳回全部诉求 ？法律怎样降低救人的风险？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [为什么麦当劳在中国不如肯德基？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [印度央行强制塔塔控股公司上市，或成印度史上最大 IPO，为什么还有强制上市的情况？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [生娃失明失聪女子原本是英语老师](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [小时候最害怕的事情还是发生了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [第二赛季更新前瞻PV「奥托皮亚·地下之王」](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [男子买下1层4户把公共走廊圈进家](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [人民网评罗永浩说野人先生难吃](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [印度央行强制塔塔控股公司上市，或成印度史上最大 IPO，为什么还有强制上市的情况？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [都说雄性激素会让毛囊萎缩导致脱发，那为什么同样激素水平，有的人秃顶，有的人却发量浓密？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待华为突破冯诺依曼「单机」架构？](http://www.daogukj.com/9193901)
-- [司机偶遇东北虎妈带4只幼崽路边玩耍](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [每个中国人都不能忘记九一八](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [甄姬：没见第一波线，第二波直接来8个？！](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [越来越多的女生开始穿男装](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [天津漫展手机事件](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [为什么麦当劳在中国不如肯德基？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [我们还需要菜市场吗](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [宁德时代：会造车的不一定会造电池](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [《欢迎来龙餐馆》918日本上映](http://www.daogukj.com/1877942)
-- [穴居人晚上去哪里拉屎？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [iPhone18Pro新配色](http://www.daogukj.com/nuqwxjlx/)
-- [生娃失明失聪女子原本是英语老师](http://www.daogukj.com/4054231)
-- [广东清远通报“硫磺熏蒸麻竹笋”](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [水滴筹服务费上涨至8%](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [宇树科技大涨重回500元，总市值重返2000亿元，当下是触底反弹还是下跌中继？谁在500元下方接盘？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [听说你最近一段时间一直在找我？【AI全民制作人】](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [阿祖从军记（二）](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [佟丽娅否认陈思诚家暴传闻](http://www.daogukj.com/ygpoeeya/)
-- [沈鼓](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [抹黑英雄必受严惩 歪曲历史绝不容忍](http://www.daogukj.com/9246627)
-- [上门女婿创业翻身改儿子姓氏起争议](http://www.daogukj.com/2490072)
-- [住建部：4楼及以上住宅都要加装电梯](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [第二赛季更新前瞻PV「奥托皮亚·地下之王」](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [【1931.9.18-2026.9.18】九一八事变爆发95周年，请留一分钟](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [【年会不能停！2】刘马组合升职无限流](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [小时候最害怕的事情还是发生了](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [这里只有一个是真的张起灵](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [于东来建议给家人花钱不超 3 成收入，呼吁员工「为自己而活」，如何看待这一观点？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [原来百家讲坛是真的在教东西](http://www.daogukj.com/8715491)
-- [我只是想煮一个鸡蛋，互联网却想教我做人❤️](http://www.daogukj.com/4788107)
-- [网传浙江师范大学强制新生填写父母工作单位、月收入等12项隐私信息，为啥要填这么详细？真的有必要吗？](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [美国务院批准向沙特出售48架F-35战机](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [宁德时代正在经历至暗时刻](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [曝甲醛白菜的博主渔猎齐哥再曝广东清远「硫磺竹笋」，当地发布通报称情况属实，哪些信息值得关注？](http://www.daogukj.com/3872248)
-- [公司每周上班3天半 月薪平均7000元](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [我们来了 刘雯](http://www.daogukj.com/sguhnydl/)
-- [日本经济为何一团糟](http://www.daogukj.com/6123602)
-- [住建部：房地产进入存量时代](http://www.daogukj.com/7243934)
-- [媒体称美国大模型已被日本错误历史观污染，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [广西孙子无血缘案奶奶听证后晕倒](http://www.daogukj.com/fgkxwaik/)
-- [揭秘硫磺竹笋，二氧化硫含量惊人，这样的竹笋能吃吗？恳请当地彻查硫磺竹笋，保障食品安全](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [张本智和：日本男团夺冠概率高于中国](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [LadyGaga 代孕](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [冲奖剧怎么了](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [陈建州有一条血管完全塞住](http://www.daogukj.com/4800229)
-- [沈鼓集团暴涨250% 市值突破2000亿元](http://www.daogukj.com/1329201)
-- [诬告小孩者被滴滴司机反告](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [创业板指大涨逾3%](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [印度央行强制塔塔控股公司上市，或成印度史上最大 IPO，为什么还有强制上市的情况？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [感受下被冰霜螃蟹配的恐惧吧！！](http://www.daogukj.com/9193901)
+- [反骨娘娘团：胖橘宜修出门，娘娘团放肆嗨](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [中国先进制造接连“上新”](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [王俊杰拼了](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [听说你最近一段时间一直在找我？【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [九一八事变95周年市民街头表达爱国情](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [男子买下1层4户把公共走廊圈进家](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [大禹看了沉默，愚公看了流泪](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [穴居人晚上去哪里拉屎？](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [A股开始反攻了吗](http://www.daogukj.com/1877942)
+- [谁在纵容维修刺客](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [【鬼谷闲谈】猫头鹰脑袋可以360°旋转吗？](http://www.daogukj.com/nuqwxjlx/)
+- [印度央行强制塔塔控股公司上市，或成印度史上最大 IPO，为什么还有强制上市的情况？](http://www.daogukj.com/4054231)
+- [住建部：支持老旧房屋原拆原建](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [辽宁省委：坚决拥护党中央决定](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [绵阳一养猪场单日死亡500头猪不实](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [“亏了一个月 今天翻身了”](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [专家：日本右翼所作所为值得高度警惕](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [男子30层高空作业绳子被2楼老人剪断](http://www.daogukj.com/ygpoeeya/)
+- [住建部：4楼及以上住宅都要加装电梯](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [印度媒体吐槽名古屋亚运会「要是换成印度这么干，早就被骂翻成全球丑闻了」，对此你怎么看？](http://www.daogukj.com/9246627)
+- [佟丽娅回应离婚对儿子的影响，称儿子现在还不知道父母离婚，孩子真的感受不到吗？如何看待她直面争议的态度？](http://www.daogukj.com/2490072)
+- [办公楼进来条蛇，我被惊吓后把它打死了，事后发现这是国家保护动物，我需要负法律责任吗？](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [女孩确诊小脑萎缩决定死后捐献器官](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [姚安娜恐吓言论 P图](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [男子高空作业绳子被2楼老人剪断](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [都说雄性激素会让毛囊萎缩导致脱发，那为什么同样激素水平，有的人秃顶，有的人却发量浓密？](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [硬核突破！中国先进制造接连“上新”](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [《虱子大开口》](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [很多老师称现在批改作业不能用×，要换成◯、△，是为了保护学生吗？真的有用吗？打×本身有问题吗？](http://www.daogukj.com/8715491)
+- [日本女生否认侵华历史被怼破防](http://www.daogukj.com/4788107)
+- [“报告 孩子身上的伤不对”](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [退休副省长家丢了 243 万元茅台等名酒，管家因盗窃罪获刑10年半，哪些细节值得关注？](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [亚运会日本运动员被安排男女同住](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [花少8 无聊](http://www.daogukj.com/3872248)
+- [中国海警回应菲船只碰撞我海警艇，正告菲方立即停止一切侵权挑衅行径，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [孙悟空为什么被压前叫“泼猴”，出来后都喊“大圣”？](http://www.daogukj.com/sguhnydl/)
+- [比亚迪召回18.32万辆汽车](http://www.daogukj.com/6123602)
+- [【年会不能停！2】刘马组合升职无限流](http://www.daogukj.com/7243934)
+- [大头博士直播取消](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [永和豆浆被指擦边，400 万粉授权账号播黑丝、洗澡内容，这算品牌营销的一次「翻车」吗？](http://www.daogukj.com/fgkxwaik/)
+- [曝蔡卓妍疑似怀孕](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [威龙带娃日记5：哈基蜂你这家伙竟如此富有](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [“当确实型人格遇上反驳型人格”](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [揭秘硫磺竹笋，二氧化硫含量惊人，这样的竹笋能吃吗？恳请当地彻查硫磺竹笋，保障食品安全](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [米哈游HR的信何以让网友“破防”](http://www.daogukj.com/4800229)
+- [佟丽娅在发小的新疆餐厅招待鲁豫](http://www.daogukj.com/1329201)
+- [其实王者账号是有耐久的，没耐久就玩不了了](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [今年前8个月全国上线微短剧43万部，其中AI剧占比超九成，广电总局表示要大力扶持真人剧，透露哪些信号？](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [人民网评罗永浩说野人先生难吃](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [全球陷入「抢钨大战」，两年时间价格上涨了约 9 倍，为啥会疯涨？钨这种稀有金属的战略价值体现在哪里？](https://www.zhihu.com/question/2082873227517359039)
+- [10分钟内2次！菲船故意冲撞中方](https://www.baidu.com/s?wd=10%E5%88%86%E9%92%9F%E5%86%852%E6%AC%A1%EF%BC%81%E8%8F%B2%E8%88%B9%E6%95%85%E6%84%8F%E5%86%B2%E6%92%9E%E4%B8%AD%E6%96%B9&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 72a03d81ee384875df5c -->
+<!-- content-fingerprint: fb5f888a0f7c6d77d4c1 -->
