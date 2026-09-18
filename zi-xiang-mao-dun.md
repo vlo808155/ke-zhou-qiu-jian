@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 手机升级个系统，多出 37G 空间？是鸿蒙 7 超空间存储技术！
+# 我们来了 刘雯
 
-> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：633117 · 分类：数码 · 更新：2026-09-18T09:35:48+08:00
+> 来源：微博热搜 · 排名：第 10 位 · 热度：381406 · 分类：综艺 · 更新：2026-09-18T14:41:44+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“手机升级个系统，多出 37G 空间？是鸿蒙 7 超空间存储技术！”位列第 10 位，公开热度指标为 633117，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“我们来了 刘雯”位列第 10 位，公开热度指标为 381406，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026下半年AI基建疯投，存储涨成「金条」，厂商成本爆增。我们之前聊过鸿蒙应对存储危机，今天再来说说鸿蒙7靠超空间存储技术最高省109G，从根上解容量焦虑。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
+`微博热搜` `实时热搜` `热点资讯` `综艺`
 
 ## 相关热点
 
-- [网传“外卖员向餐食吐口水”系摆拍](bei-gong-she-ying.md)
-- [我们来了 刘雯](jing-gong-zhi-niao.md)
-- [外卖员向餐食吐口水摆拍案细节披露](hu-jia-hu-wei.md)
-- [如何看待 GPT-6-Astra 刷新信息学竞赛题复杂度记录？](yu-mu-hun-zhu.md)
+- [住建部：房地产进入存量时代](bei-gong-she-ying.md)
+- [宇树科技大涨重回500元，总市值重返2000亿元，当下是触底反弹还是下跌中继？谁在500元下方接盘？](jing-gong-zhi-niao.md)
+- [【年会不能停！2】刘马组合升职无限流](hu-jia-hu-wei.md)
+- [抹黑英雄必受严惩 歪曲历史绝不容忍](yu-mu-hun-zhu.md)
 
 ## 站内推荐
 
-- [为什么麦当劳在中国不如肯德基？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [义乌开始卖载人飞碟飞行器了，单笔订单卖出 1.2 亿元，离普通人还有多远？商业化还要解决哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [动态视频｜3天拍完？影视飓风的iPhone评测是怎么拍的？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [友：时长越长观看越少。 我：但这里是B站诶！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [人机大战](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [人民币升破6.7](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [原来百家讲坛是真的在教东西](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [诬告小孩者被滴滴司机反告](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [TES 拿下 LPL 三号种子席位挺进 S16，如何评价他们本次季后赛表现？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [曝甲醛白菜的博主渔猎齐哥再曝广东清远「硫磺竹笋」，当地发布通报称情况属实，哪些信息值得关注？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [iPhoneDuo维修费8000](http://www.movie.hkepx.cn/movie/6811296.htm)
-- [广东惠州公安查获42公斤散装柴油](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
-- [南京博物院引发关注的画作中，仍有 1 幅下落不明，可能去哪儿了？还能追回来吗？](http://www.movie.hkepx.cn/movie/3422828.htm)
-- [【边狱巴士】“今天，我杀了妈妈...”丨 主线第10章汉化（施工中）](http://www.daogukj.com/ydwohxdl/)
-- [烫伤女童称妈妈我痛死了我医不好了](http://www.movie.hkepx.cn/xiju/2720207.htm)
-- [才意识到一台苹果手机能换一万斤粮食](http://www.movie.hkepx.cn/movie/8905156.htm)
-- [巴基斯坦表态了 这是一个重要信号](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
-- [桂林铁匠救下红军 两家情谊延续至今](http://www.movie.hkepx.cn/movie/6751227.htm)
-- [棣棣和耀文蹦极太酷了](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
-- [新疆阿勒泰34万只羊排队洗香香](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
-- [学生称同济大学痛经请假需脱裤检查，校医院称检查由医生视情况决定，学校有权这么做吗？有更好解决办法吗？](http://www.movie.hkepx.cn/movie/6134002.htm)
-- [义乌开始卖载人飞碟飞行器了，单笔订单卖出 1.2 亿元，离普通人还有多远？商业化还要解决哪些问题？](http://www.movie.hkepx.cn/xiju/5097281.htm)
-- [亚运会半决赛中国男篮对阵日本](http://www.movie.hkepx.cn/xiju/1723334.htm)
-- [我只是想煮一个鸡蛋，互联网却想教我做人❤️](http://www.daogukj.com/8560862)
-- [张一鸣身家突破 1050 亿美元首次成亚洲首富，如何评价其商业成就？](http://www.movie.hkepx.cn/movie/0534103.htm)
-- [胡歌直言做综艺压力很大](http://www.daogukj.com/egppjxgx/)
-- [母女扔掉装存单黄金床头柜 民警帮找回](http://www.daogukj.com/kdnhmkcj/)
-- [我们来了](http://www.daogukj.com/khgfsqiu/)
-- [苹果最贵手机还没开售就翻车了吗](http://www.movie.hkepx.cn/xiju/9522986.htm)
-- [中式魅魔挑战（你能闯到第几关？）](http://www.daogukj.com/sygihuae/)
-- [「一点点」否认威胁员工家人，「提着牛奶上门，当时沟通进展顺利」，哪些信息值得关注？](http://www.daogukj.com/sucemorm/)
-- [沈阳全城点亮大屏缅怀先烈](http://www.movie.hkepx.cn/xiju/6593136.htm)
-- [【独家】时光代理人 第三季 PartOne 第7集 唐人街探案【8月国创】](http://www.daogukj.com/pencausq/)
-- [宁德时代正在经历至暗时刻](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
-- [日本亚运会住宿条件遭吐槽，真实情况如何？原因是什么？](http://www.daogukj.com/2517745)
-- [如何看待 GPT-6-Astra 刷新信息学竞赛题复杂度记录？](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
-- [于东来建议给家人花钱不超 3 成收入，呼吁员工「为自己而活」，如何看待这一观点？](http://www.movie.hkepx.cn/xiju/5387412.htm)
-- [统派：中国人不打中国人“台独”例外](http://www.movie.hkepx.cn/movie/2763004.htm)
+- [【纪录片】生命奇观2 01 内蒙古高原](http://www.movie.hkepx.cn/movie/6811296.htm)
+- [越来越多的女生开始穿男装](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
+- [梅毒被称为皮肤性病科模仿大师](http://www.movie.hkepx.cn/movie/3422828.htm)
+- [穴居人晚上去哪里拉屎？](http://www.daogukj.com/ydwohxdl/)
+- [小时候最害怕的事情还是发生了](http://www.movie.hkepx.cn/xiju/2720207.htm)
+- [揭秘硫磺竹笋，二氧化硫含量惊人，这样的竹笋能吃吗？恳请当地彻查硫磺竹笋，保障食品安全](http://www.movie.hkepx.cn/movie/8905156.htm)
+- [Tim反掰iPhone Duo出现闪屏 苹果称人为损坏不保修](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
+- [广西孙子无血缘案奶奶听证后晕倒](http://www.movie.hkepx.cn/movie/6751227.htm)
+- [互相求婚？美国女孩和我为什么要这样做](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
+- [创业板指大涨逾3%](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
+- [于东来建议给家人花钱不超 3 成收入，呼吁员工「为自己而活」，如何看待这一观点？](http://www.movie.hkepx.cn/movie/6134002.htm)
+- [原来百家讲坛是真的在教东西](http://www.movie.hkepx.cn/xiju/5097281.htm)
+- [一个智能药盒卖3900元](http://www.movie.hkepx.cn/xiju/1723334.htm)
+- [退休副省长家丢了 243 万元茅台等名酒，管家因盗窃罪获刑10年半，哪些细节值得关注？](http://www.daogukj.com/8560862)
+- [日本“自卫”谎言还要骗多久](http://www.movie.hkepx.cn/movie/0534103.htm)
+- [松岛辉空说发挥50%也能赢国乒](http://www.daogukj.com/egppjxgx/)
+- [只说给到6500绝口不提怎么拿](http://www.daogukj.com/kdnhmkcj/)
+- [印度央行强制塔塔控股公司上市，或成印度史上最大 IPO，为什么还有强制上市的情况？](http://www.daogukj.com/khgfsqiu/)
+- [如果能预知20年人生，你还会选择出生吗？](http://www.movie.hkepx.cn/xiju/9522986.htm)
+- [司机偶遇东北虎妈带4只幼崽路边玩耍](http://www.daogukj.com/sygihuae/)
+- [江西男子称两孩非亲生妻子转移1400万](http://www.daogukj.com/sucemorm/)
+- [沈鼓集团暴涨250% 市值突破2000亿元](http://www.movie.hkepx.cn/xiju/6593136.htm)
+- [子弟兵：大好河山寸土不让](http://www.daogukj.com/pencausq/)
+- [美国务院批准向沙特出售48架F-35战机](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
+- [网传2026湾区升明月节目单](http://www.daogukj.com/2517745)
+- [抹黑英雄必受严惩 歪曲历史绝不容忍](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
+- [中国先进制造接连“上新”](http://www.movie.hkepx.cn/xiju/5387412.htm)
+- [俺叫蔓小迪，一坨立誓成为”救世主“的泡沫💪！](http://www.movie.hkepx.cn/movie/2763004.htm)
 - [听说你最近一段时间一直在找我？【AI全民制作人】](http://www.movie.hkepx.cn/xiju/8265001.htm)
-- [中国和俄罗斯投下反对票](http://www.daogukj.com/pbivxwuy/)
-- [陈建州拜托大家3件事](http://www.daogukj.com/msnbkunl/)
-- [勿忘“九一八”：历史不容虚无](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
-- [网传“外卖员向餐食吐口水”系摆拍](http://www.movie.hkepx.cn/movie/3294285.htm)
-- [前人欠债凭啥我还？市委书记错在哪](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
-- [金庸为何对杨佩佩工作室魔改的98版神雕侠侣深恶痛绝？](http://www.daogukj.com/7751528)
-- [夏粮旺季收购基本结束](http://www.movie.hkepx.cn/xiju/5949359.htm)
-- [人民日报评南医大导师被造谣](http://www.movie.hkepx.cn/movie/9383605.htm)
-- [英特尔市值一夜暴涨2729亿元](http://www.daogukj.com/0705031)
-- [UFO高速飞过墨西哥城上空](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
-- [见证“勿忘九一八”撞钟鸣警仪式](http://www.daogukj.com/iaxbxgkd/)
-- [“勿忘九一八”撞钟鸣警仪式](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
-- [教父的政治资源只属于教父一人，并不属于柯里昂家族，所以柯里昂家族是不是很脆弱？](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
-- [曼德海峡附近激战 制高点几度易手](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
-- [平陆运河激活西部“新动脉”](http://www.movie.hkepx.cn/xiju/9594303.htm)
-- [男子标记沉陷井盖被城管要求清除](http://www.daogukj.com/3727264)
-- [国际大花李冰冰国民女主白鹿对应照片](http://www.movie.hkepx.cn/movie/8918029.htm)
-- [婚服29.9元婚车自家车 极简婚礼火了](http://www.daogukj.com/5225618)
-- [小不列颠联合不起来王国现在是真快亡国了](http://www.daogukj.com/7483927)
-- [九一八事变爆发95周年](http://www.daogukj.com/hmowpwmp/)
-- [外卖员向餐食吐口水摆拍案细节披露](http://www.movie.hkepx.cn/movie/8474409.htm)
+- [很多老师称现在批改作业不能用×，要换成◯、△，是为了保护学生吗？真的有用吗？打×本身有问题吗？](http://www.daogukj.com/pbivxwuy/)
+- [男子称儿女都非亲生 妻子转移1400万](http://www.daogukj.com/msnbkunl/)
+- [iPhone18Pro新配色](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
+- [住建部：房地产进入存量时代](http://www.movie.hkepx.cn/movie/3294285.htm)
+- [如何评价名古屋亚运会的奖牌设计，以及其理念「破碎与重组」？](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
+- [《欢迎来龙餐馆》918日本上映](http://www.daogukj.com/7751528)
+- [这里只有一个是真的张起灵](http://www.movie.hkepx.cn/xiju/5949359.htm)
+- [宁德时代 至暗时刻](http://www.movie.hkepx.cn/movie/9383605.htm)
+- [阿祖从军记（二）](http://www.daogukj.com/0705031)
+- [“当确实型人格遇上反驳型人格”](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
+- [广东清远通报“硫磺熏蒸麻竹笋”](http://www.daogukj.com/iaxbxgkd/)
+- [【1931.9.18-2026.9.18】九一八事变爆发95周年，请留一分钟](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
+- [冯绍峰脸怎么了](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
+- [第二赛季更新前瞻PV「奥托皮亚·地下之王」](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
+- [每个中国人都不能忘记九一八](http://www.movie.hkepx.cn/xiju/9594303.htm)
+- [冲奖剧怎么了](http://www.daogukj.com/3727264)
+- [上门女婿创业翻身改儿子姓氏起争议](http://www.movie.hkepx.cn/movie/8918029.htm)
+- [为什么麦当劳在中国不如肯德基？](http://www.daogukj.com/5225618)
+- [佟丽娅回应离婚对儿子的影响，称儿子现在还不知道父母离婚，孩子真的感受不到吗？如何看待她直面争议的态度？](http://www.daogukj.com/7483927)
+- [黄牛称iPhone 18 Pro没人要](http://www.daogukj.com/hmowpwmp/)
+- [【年会不能停！2】刘马组合升职无限流](http://www.movie.hkepx.cn/movie/8474409.htm)
 
 </details>
 
 ## 原始来源
 
-- [手机升级个系统，多出 37G 空间？是鸿蒙 7 超空间存储技术！](https://b23.tv/BV1r6Yi64EkV)
+- [我们来了 刘雯](https://s.weibo.com/weibo?q=%E6%88%91%E4%BB%AC%E6%9D%A5%E4%BA%86%20%E5%88%98%E9%9B%AF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9c7a51f416f34e4dda95 -->
+<!-- content-fingerprint: 09c2b0279c2eca2a00fb -->
