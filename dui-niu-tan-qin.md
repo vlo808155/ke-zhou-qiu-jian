@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 张凯毅前夫被曝称当网红像耍猴
+# 特朗普称美国将获得对格陵兰岛安全「永久控制权」，丹麦称下周签署协议，保留主权，这是变相拿下格陵兰了吗？
 
-> 来源：微博热搜 · 排名：第 12 位 · 热度：232425 · 分类：艺人 · 更新：2026-09-19T14:35:15+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：121 万热度 · 分类：问答 · 更新：2026-09-19T19:35:16+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“张凯毅前夫被曝称当网红像耍猴”位列第 12 位，公开热度指标为 232425，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“特朗普称美国将获得对格陵兰岛安全「永久控制权」，丹麦称下周签署协议，保留主权，这是变相拿下格陵兰了吗？”位列第 12 位，公开热度指标为 121 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：特朗普：美国将获得对格陵兰岛安全“永久控制权” 当地时间9月18日，美国总统特朗普在社交媒体上发文称，美国已与丹麦及其自治领地格陵兰岛达成一项协议，将获得对格陵兰岛安全及所有其他相关事务的“永久控制权”，美方无需为此支付费用。 特朗普称，这是一份无限期协议，确保美国永远拥有在格陵兰岛采取必要行动、保障格陵兰岛及美国自身安全的完整权力。未经美方书面许可，美方敌对势力不得在格陵兰岛设立军事基地、保持军事存在或进行敏感投资。 特朗普还称，美方将在格陵兰岛合适区域建立大规模军事存在，并同当地民众合作开展相关开发建设。 丹麦：协议预计下周签署 以加强安全 当地时间
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [张雪机车发布5款新车 最高售价13.8万](mang-ren-mo-xiang.md)
-- [为什么英文称中国为 China，而不是按照中文读音叫 Zhongguo？](yuan-mu-qiu-yu.md)
-- [实景英语 | 地铁站里的日常表达](sha-ji-qu-luan.md)
-- [舒畅脸部状态](yin-zhen-zhi-ke.md)
+- [新番时光机！十年前的观众都在看什么？「2016年7月篇」泛式](mang-ren-mo-xiang.md)
+- [日本小提琴家穿中式礼服登台演奏](yuan-mu-qiu-yu.md)
+- [调休 不是让人休息是拉动消费](sha-ji-qu-luan.md)
+- [毛东东访朝在毛岸英烈士铜像前祭酒](yin-zhen-zhi-ke.md)
 
 ## 站内推荐
 
-- [女子吐槽吃魏家凉皮牛肉堡像喝油](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [新疆人第一次见自己的馕发霉震惊了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [于东来正被自己的人设绑架](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [贾国龙 西贝](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [于正官宣杨蓉出演朝玉阶](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [多家银行上调存款利率](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [泰国方面吐槽亚运会「选手在官方餐厅吃不饱，只能去外面吃吉野家」，本届亚运会的草台程度还能再上新高度？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [排泄为什么会给人带来舒服的感觉？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [为什么这两年加多宝彻底销声匿迹了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [西贝回应“彻底倒闭”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [iPhone 18 Pro首销，门店排长队，Pro Max加价抢，Pro破发无人收，为什么差距这么大？](http://www.daogukj.com/7783346)
-- [女生撞脸张柏芝火了 本人回应](http://www.movie.hkepx.cn/xiju/0144340.htm)
-- [如何看待智谱就上传用户本地仓库数据道歉，称已修复，将开源 ZCode？](http://www.movie.hkepx.cn/xiju/5872465.htm)
-- [局长被查 家人花300万找了个政治骗子](http://www.daogukj.com/xyupryli/)
-- [中国开放红利持续释放](http://www.daogukj.com/6352765)
-- [我有王一博微信 想加](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
-- [林芳正改组前夜就预感会出局](http://www.movie.hkepx.cn/xiju/6435292.htm)
-- [人民网评罗永浩说野人先生难吃](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
-- [AI女演员访谈卡壳后突然飙粤语](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
-- [肉包不吃肉 没有给过餐饮授权](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
-- [18岁女儿高一退学坚持出嫁](http://www.daogukj.com/1493456)
-- [“错换人生28年”姚策的生父去世](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
-- [iPhone18Pro1TB采用QLC](http://www.daogukj.com/wecagjke/)
-- [于正官宣杨蓉出演朝玉阶](http://www.daogukj.com/8911687)
-- [女子吐槽吃魏家凉皮牛肉堡像喝油](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [亚运会大巴迷路，司机打开纸质地图找方向，韩国选手吐槽「传奇司机」，日本不至于连导航都没普及吧？](http://www.movie.hkepx.cn/xiju/6645788.htm)
-- [菲律宾918当天挑衅需掂量后果](http://www.movie.hkepx.cn/xiju/9394899.htm)
-- [《虱子大开口》](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
-- [男童被独留家中坠楼12分钟发生了什么](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [周鸿祎称 「吃过一次亏，不会再投资新能源车」，他在新能源赛道踩了什么坑？其投资逻辑发生了哪些转变？](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [林珍娜替身](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
-- [256G变512G再变1T，手机存储为什么永远不够？【差评君】](http://www.daogukj.com/sfshhzje/)
-- [微信私聊传播153部淫秽视频被判有罪](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [复仇者联盟内心独白belike](http://www.daogukj.com/6469340)
-- [70万新车出现异响 要求换车被拒](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [《镜头之后#7》——老八](http://www.movie.hkepx.cn/xiju/6637455.htm)
-- [为什么这两年加多宝彻底销声匿迹了？](http://www.daogukj.com/ezqthdyk/)
-- [舒畅脸部状态](http://www.movie.hkepx.cn/movie/8362403.htm)
-- [被判活不过3岁的女孩已上高三](http://www.daogukj.com/blmliwwv/)
-- [沈鼓集团上市 2 日 4 次触发临停，盘中涨近 300%，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
-- [郭士强下课冲上热搜](http://www.daogukj.com/6808681)
-- [花少8 无聊](http://www.daogukj.com/8913120)
-- [毛东东访朝在毛岸英烈士铜像前祭酒](http://www.daogukj.com/8931072)
-- [泰国方面吐槽亚运会「选手在官方餐厅吃不饱，只能去外面吃吉野家」，本届亚运会的草台程度还能再上新高度？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [蒸十笼包子，最上面的先熟还是最下面的先熟？](http://www.movie.hkepx.cn/xiju/2847418.htm)
-- [媒体：菲律宾918当天挑衅需掂量后果](http://www.daogukj.com/nrrtwuij/)
-- [张雪机车发布5款新车 最高售价13.8万](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
-- [女子看短剧发现演员是游戏骗子](http://www.daogukj.com/emrfuprm/)
-- [轿车在高铁站停了近7年 车主回应](http://www.movie.hkepx.cn/movie/7899876.htm)
-- [舒畅 脸](http://www.movie.hkepx.cn/xiju/7135879.htm)
-- [公积金功能有大变化](http://www.daogukj.com/obfbkvuj/)
-- [为什么英文称中国为 China，而不是按照中文读音叫 Zhongguo？](http://www.movie.hkepx.cn/xiju/2876935.htm)
-- [女装到底怎么了](http://www.movie.hkepx.cn/xiju/8438607.htm)
-- [大禹看了沉默，愚公看了流泪](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
-- [沙特首都利雅得遭空袭](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
-- [向国旗敬礼](http://www.daogukj.com/8210319)
-- [如何解读住建部「4楼及以上住宅都要加装电梯，解决老年群体上下楼问题 」？具体实施存在什么难点？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [我是美国穷人家的孩子啊啊啊啊 !](http://www.movie.hkepx.cn/xiju/1710411.htm)
-- [啥是“好房子” 怎样建设](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
-- [变 形 强 强 【B站笑点大赛】](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
+- [张雪机车发布5款新车 最高售价13.8万](http://www.daogukj.com/7783346)
+- [啄木鸟维修换1个开关收费2800](http://www.movie.hkepx.cn/xiju/0144340.htm)
+- [西贝门店称工资推迟10天发放](http://www.movie.hkepx.cn/xiju/5872465.htm)
+- [张雪回应被称为最寒酸的亿万富翁](http://www.daogukj.com/xyupryli/)
+- [【100抽联动共鸣道具免费领】《无限暖暖》小王子联动PV](http://www.daogukj.com/6352765)
+- [名古屋亚运会预算暴增、住宿条件差，多家赞助商撤资，这反映出日本怎样的办赛理念？](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
+- [王俊凯演唱会](http://www.movie.hkepx.cn/xiju/6435292.htm)
+- [天下无双！](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
+- [G8烧了，用刀割，这样真能稳定吗](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
+- [iPhone 18 Pro首销，门店排长队，Pro Max加价抢，Pro破发无人收，为什么差距这么大？](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
+- [《镜头之后#7》——老八](http://www.daogukj.com/1493456)
+- [舍友把宿舍改造成飞机](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
+- [我们拍到了大翅鲸！](http://www.daogukj.com/wecagjke/)
+- [西贝回应“彻底倒闭”](http://www.daogukj.com/8911687)
+- [多家银行上调存款利率](http://www.movie.hkepx.cn/movie/7897439.htm)
+- [专家怒斥尸皮针：救命材料拿去做医美](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [讲价给我讲好的啊](http://www.movie.hkepx.cn/xiju/9394899.htm)
+- [亚运会开幕式 诡异](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
+- [人民日报评“前面欠的债我凭什么还”](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
+- [之前一直不过敏 为什么突然就过敏了](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [正颌手术做反当事人已清空作品，称达成和解，网友曝正颌手术并未做反，是术后拒绝正畸导致问题，具体咋回事？](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [女子4次起诉离婚均被驳回](http://www.daogukj.com/sfshhzje/)
+- [《潜伏》里站长这样一个反面角色，为什么会受到如此广泛的欢迎？](http://www.movie.hkepx.cn/xiju/2060263.htm)
+- [让路人决定我的旅行，上来就让我徒步168km？？](http://www.daogukj.com/6469340)
+- [9月17日](http://www.movie.hkepx.cn/movie/8131985.htm)
+- [兰香如故](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [昨天放错国歌 今天直接不放了](http://www.daogukj.com/ezqthdyk/)
+- [毛东东访朝在毛岸英烈士铜像前祭酒](http://www.movie.hkepx.cn/movie/8362403.htm)
+- [为什么说穷人家孩子晚熟十年？](http://www.daogukj.com/blmliwwv/)
+- [普京就阿斯塔尼娜身亡发声](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
+- [【纪录片】中国救护2 01 在抵达之前](http://www.daogukj.com/6808681)
+- [网红哈士奇贝贝离世](http://www.daogukj.com/8913120)
+- [出大问题！房车抛锚！差点渴死在沙漠里！](http://www.daogukj.com/8931072)
+- [“不得报销烟酒、扑克牌”](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
+- [新高一学生 不愿意住校](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [【变奏群像篇】第一期 原来你是这样的小熊头！](http://www.daogukj.com/nrrtwuij/)
+- [新番时光机！十年前的观众都在看什么？「2016年7月篇」泛式](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
+- [12306已拒绝出票133.1万张](http://www.daogukj.com/emrfuprm/)
+- [父女在商场遭人围堵4岁女儿被吓哭](http://www.movie.hkepx.cn/movie/7899876.htm)
+- [蜘蛛竟然不是昆虫，为什么呢，那蜘蛛属于什么？](http://www.movie.hkepx.cn/xiju/7135879.htm)
+- [亚运会开幕式](http://www.daogukj.com/obfbkvuj/)
+- [日本小提琴家穿中式礼服登台演奏](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [什么东西被发明出来后，莫名其妙地违背了它的用途？](http://www.movie.hkepx.cn/xiju/8438607.htm)
+- [iPhone 18 Pro 被曝高价版用 QLC 闪存，这会对用户体验带来多大影响？](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
+- [特厨探店｜广州到底把做饭研究的多明白？](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
+- [湖南航空一航班下机时旅客携带充电宝起火，舱内烟雾弥漫，为何安检拦住非3C 充电宝还会有这种事故？](http://www.daogukj.com/8210319)
+- [十部门出台规划 更好保障百姓药箱](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
+- [陈都灵方称会和剧组继续争取](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [一组数据看中国经济活力迸发](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
+- [肉包不吃肉 猫耳](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
 </details>
 
 ## 原始来源
 
-- [张凯毅前夫被曝称当网红像耍猴](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%87%AF%E6%AF%85%E5%89%8D%E5%A4%AB%E8%A2%AB%E6%9B%9D%E7%A7%B0%E5%BD%93%E7%BD%91%E7%BA%A2%E5%83%8F%E8%80%8D%E7%8C%B4)
+- [特朗普称美国将获得对格陵兰岛安全「永久控制权」，丹麦称下周签署协议，保留主权，这是变相拿下格陵兰了吗？](https://www.zhihu.com/question/2084546841962603642)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 935541cda4348861852c -->
+<!-- content-fingerprint: 3dfea67e9c1fbf9429fb -->
