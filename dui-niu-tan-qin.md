@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# “卧薪尝胆”棒棒糖走红
+# 正视
 
-> 来源：今日头条热榜 · 排名：第 12 位 · 热度：2513783 · 分类：新事件上榜 · 更新：2026-09-20T15:55:48+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：243396 · 分类：影视剪辑 · 更新：2026-09-20T21:01:04+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，““卧薪尝胆”棒棒糖走红”位列第 12 位，公开热度指标为 2513783，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“正视”位列第 12 位，公开热度指标为 243396，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：夜神月 #富江 #跨次元剧场 #oc原创季 ps：非官方剧情，自己为爱发电二创剧情
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
 
 ## 相关热点
 
-- [亚运会男足小组赛，中国 U23 0-0 伊朗 U23，如何评价本场比赛？](mang-ren-mo-xiang.md)
-- [坐在购物车里狂奔！懒虫：荣耀购物车](yuan-mu-qiu-yu.md)
-- [许嵩冯禧伴手礼细节曝光](sha-ji-qu-luan.md)
-- [金秀贤 金赛纶](yin-zhen-zhi-ke.md)
+- [60岁产妇生下女儿 2年前生下儿子](mang-ren-mo-xiang.md)
+- [茶花开了听哭了](yuan-mu-qiu-yu.md)
+- [国乒女团3-1中国澳门 孙颖莎独得2分](sha-ji-qu-luan.md)
+- [疑谷歌 Gemini4Pro 「偷跑」上线，网传碾压 GPT-6Astra，如何评价？](yin-zhen-zhi-ke.md)
 
 ## 站内推荐
 
-- [中使馆：中国公民不要拍摄军事行动](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [一家7口人点8道菜只花了60元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [中国连夺3金](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [GLM-5.3-FlashX上线，如何评价该模型？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [佟丽娅拒绝参与行业奖项评选，不愿承受获奖后非议，如何看待这一选择？作品口碑能否替代奖项认可？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [潘展乐赢了0.04秒](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [如何看待《我的朋友很少》作者平坂读因财富自由宣布退休，不再写轻小说？你对其作品有哪些记忆和评价？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [如何看待2026年9月20日，ZCode承诺开源超过1天但还没开源？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [我的大脑变大枣](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [名古屋亚运会漏算中国首金](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [赵家驹否认背包里有裹尸布：家人误解](http://www.daogukj.com/7783346)
-- [45岁配音演员赵然因病离世](http://www.movie.hkepx.cn/xiju/0144340.htm)
-- [安徽一对新人叫“尔康”“紫薇”](http://www.movie.hkepx.cn/xiju/5872465.htm)
-- [【微电影】星河外卖员：平台战争](http://www.daogukj.com/xyupryli/)
-- [我国硬核科技与重大工程捷报频传](http://www.daogukj.com/6352765)
-- [公积金新规正式施行](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
-- [关于老库出桌宠这档事？眩晕瘫坐，仿佛看见原子弹爆炸](http://www.movie.hkepx.cn/xiju/6435292.htm)
-- [6连胜之后必输的魔咒，必输局，直接来吧](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
-- [陌生的女人，竟在我家偷偷住了二十年....](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
-- [字节跳动将飞书并入豆包，创始人张一鸣称「史上最大押注」意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
-- [为什么沙漠地区的人在极热的环境下，反而穿更多的衣服？](http://www.daogukj.com/1493456)
-- [银行存款的春天回来了吗](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
-- [60岁产妇生女2年前因失独生下儿子](http://www.daogukj.com/wecagjke/)
-- [佟丽娅拒绝参与行业奖项评选，不愿承受获奖后非议，如何看待这一选择？作品口碑能否替代奖项认可？](http://www.daogukj.com/8911687)
-- [中使馆：中国公民不要拍摄军事行动](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [董建华公祭仪式在港举行](http://www.movie.hkepx.cn/xiju/6645788.htm)
-- [郑丽文：100%把握让国民党2028上台](http://www.movie.hkepx.cn/xiju/9394899.htm)
-- [60岁产妇生下女儿 2年前生下儿子](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
-- [莎拉做好接任总统准备？菲总统府回应](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [王楚钦王曼昱身陷“死亡半区”](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [湖北省博卧薪尝胆棒棒糖走红](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
-- [小米18Pro星河蓝](http://www.daogukj.com/sfshhzje/)
-- [新西兰军舰过航台海 解放军跟监警戒](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [男子一掌拍碎隐翅虫后全身溃烂](http://www.daogukj.com/6469340)
-- [日本地面电视不播亚运开幕式](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [司机好心补路、拉绳警示，导致路过女子被绳索勒颈身亡，被以过失致人死亡罪逮捕，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/6637455.htm)
-- [如何看待《我的朋友很少》作者平坂读因财富自由宣布退休，不再写轻小说？你对其作品有哪些记忆和评价？](http://www.daogukj.com/ezqthdyk/)
-- [金秀贤 金赛纶](http://www.movie.hkepx.cn/movie/8362403.htm)
-- [老乡鸡董事长嫁女](http://www.daogukj.com/blmliwwv/)
-- [张一山：我也想当一天大老板](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
-- [西餐对大多数中国人来说，真的好吃吗？](http://www.daogukj.com/6808681)
-- [香港学生：国家强大了但我们不能松懈](http://www.daogukj.com/8913120)
-- [中国队夺金速度太快](http://www.daogukj.com/8931072)
-- [宁波夜市砸瓜事件，双方已签订调解协议书，动手一方赔偿西瓜摊主 6 万多元，怎样看待这一结果？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [U23国足战平伊朗](http://www.movie.hkepx.cn/xiju/2847418.htm)
-- [iG GEN](http://www.daogukj.com/nrrtwuij/)
-- [亚运会男足小组赛，中国 U23 0-0 伊朗 U23，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
-- [60岁产妇生女 两年前失独生下儿子](http://www.daogukj.com/emrfuprm/)
-- [交个朋友 西贝](http://www.movie.hkepx.cn/movie/7899876.htm)
-- [为什么很多过了35岁的女性会突然拼命想要孩子？](http://www.movie.hkepx.cn/xiju/7135879.htm)
-- [中国队夺金速度也太快了](http://www.daogukj.com/obfbkvuj/)
-- [坐在购物车里狂奔！懒虫：荣耀购物车](http://www.movie.hkepx.cn/xiju/2876935.htm)
-- [秦始皇陵水银来源被找到](http://www.movie.hkepx.cn/xiju/8438607.htm)
-- [中国U23男足亚运小组赛1胜1平](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
-- [单依纯 尤长靖](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
-- [从数据里读懂中国经济韧性](http://www.daogukj.com/8210319)
-- [老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [那英13年前对调休发出的疑惑](http://www.movie.hkepx.cn/xiju/1710411.htm)
-- [水产捕捞田间秋收齐上线](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
-- [王曼昱vs朱雨玲](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
+- [遇到不懂业务的领导，如何向上管理推动项目？](http://www.daogukj.com/7783346)
+- [媒体人：中国男篮帮助伊朗重拾信心](http://www.movie.hkepx.cn/xiju/0144340.htm)
+- [王曼昱：对比赛场馆比较适应](http://www.movie.hkepx.cn/xiju/5872465.htm)
+- [如何看多家银行上调存款利率](http://www.daogukj.com/xyupryli/)
+- [【逐影集趣】DP全关卡攻略 摆完挂机 简单好抄](http://www.daogukj.com/6352765)
+- [2026湾区升明月节目单](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
+- [“大车”的红利期结束了吗](http://www.movie.hkepx.cn/xiju/6435292.htm)
+- [窦靖童开场](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
+- [湾区升明月 真唱](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
+- [莫斯科地区遭大规模无人机袭击](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
+- [女童在动物园禁停地点下车被鹿撞飞](http://www.daogukj.com/1493456)
+- [宁波夜市砸瓜事件，双方已签订调解协议书，动手一方赔偿西瓜摊主 6 万多元，怎样看待这一结果？](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
+- [采访了刘慈欣](http://www.daogukj.com/wecagjke/)
+- [名古屋亚运会漏算中国首金](http://www.daogukj.com/8911687)
+- [潘展乐赢了0.04秒](http://www.movie.hkepx.cn/movie/7897439.htm)
+- [窦靖童献唱《湾》致敬王菲](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [汪顺夺男子200米个人混合泳铜牌](http://www.movie.hkepx.cn/xiju/9394899.htm)
+- [两年挣6.8亿神秘艺人疑为许嵩](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
+- [清华毕业生38岁上北大 同学已是教授](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
+- [广东：重大突发事件24小时内开发布会](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [许嵩与冯禧官宣结婚，女方是其多年粉丝且两人相差 14 岁，你如何看待这对「偶像与粉丝」的结合？](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [为什么沙漠地区的人在极热的环境下，反而穿更多的衣服？](http://www.daogukj.com/sfshhzje/)
+- [陌生的女人，竟在我家偷偷住了二十年....](http://www.movie.hkepx.cn/xiju/2060263.htm)
+- [烟盒战队-复抽者！](http://www.daogukj.com/6469340)
+- [中学男教师多次骚扰女学生 官方通报](http://www.movie.hkepx.cn/movie/8131985.htm)
+- [生育13个孩子的父亲发声](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [周深 音响没问题你们唱吧](http://www.daogukj.com/ezqthdyk/)
+- [疑谷歌 Gemini4Pro 「偷跑」上线，网传碾压 GPT-6Astra，如何评价？](http://www.movie.hkepx.cn/movie/8362403.htm)
+- [《潜伏》中，晚秋最后也去了台湾，和余则成假扮夫妻，站长不会怀疑吗？](http://www.daogukj.com/blmliwwv/)
+- [北大复旦校长警告 AI 依赖，对教育意味着什么？该如何应对过度依赖 AI 导致的知识虚假掌握？](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
+- [刘某是真的觉得可以申请专利的！！](http://www.daogukj.com/6808681)
+- [朝鲜射击队弹药未被批准 无法参赛](http://www.daogukj.com/8913120)
+- [中国队一天11枚金牌](http://www.daogukj.com/8931072)
+- [亚运会男篮铜牌赛，中国男篮 70-79 伊朗男篮，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
+- [男篮主帅郭士强回应输球](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [当我开始研究“女生男相”，初恋非说我整容了……](http://www.daogukj.com/nrrtwuij/)
+- [60岁产妇生下女儿 2年前生下儿子](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
+- [10分钟做6道菜？我们挑战世界大赛的硬核真题！](http://www.daogukj.com/emrfuprm/)
+- [名古屋亚运会为啥办得这么抠搜？是真没钱，还是背后有啥心思？](http://www.movie.hkepx.cn/movie/7899876.htm)
+- [评分9.3！长大能有多苦涩？重温野比大雄的人生！咋和童年看着不一样？【瓶子君152】](http://www.movie.hkepx.cn/xiju/7135879.htm)
+- [人民日报评“第一学历歧视”](http://www.daogukj.com/obfbkvuj/)
+- [茶花开了听哭了](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [湾区升明月](http://www.movie.hkepx.cn/xiju/8438607.htm)
+- [KPL十周年宣传片：《保持纯粹的热爱》](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
+- [坐在购物车里狂奔！懒虫：荣耀购物车](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
+- [老板患上了AI狂热症，连决策都让AI来做，感觉公司快完蛋了，员工该怎么办？](http://www.daogukj.com/8210319)
+- [依旧获得优先择偶权](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
+- [如何评价中国男篮不敌伊朗无缘奖牌，以亚运会第4名惨淡收官，创历史第二差成绩？中国男篮的问题到底出在哪？](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [我国制造业高端化转型加速](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
+- [下周A股行情会迎来突破吗](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
 </details>
 
 ## 原始来源
 
-- [“卧薪尝胆”棒棒糖走红](https://www.toutiao.com/trending/7687460217412239411/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227687460217412239411%22%2C%22hot_board_impr_id%22%3A%2220260920155544BC8FE0A1659FB217A5C9%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [正视](https://b23.tv/BV11kev6cEhk)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 446aa845a1e5bb1daebf -->
+<!-- content-fingerprint: f63a89ec235902003d94 -->
