@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 王俊凯回复王源用了波浪号
+# 张家齐的存款大概率被爸妈花完了
 
-> 来源：微博热搜 · 排名：第 11 位 · 热度：377836 · 分类：艺人 · 更新：2026-09-22T09:22:14+08:00
+> 来源：微博热搜 · 排名：第 11 位 · 热度：468875 · 分类：艺人 · 更新：2026-09-22T14:33:00+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“王俊凯回复王源用了波浪号”位列第 11 位，公开热度指标为 377836，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“张家齐的存款大概率被爸妈花完了”位列第 11 位，公开热度指标为 468875，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [秦始皇陵水银来源被找到，指向陕西旬阳三处先秦朱砂遗址，这一发现有何意义？](dong-shi-xiao-pin.md)
-- [《原神》角色预告-「薇斯纳：春之晨舞」](han-dan-xue-bu.md)
-- [16岁少年与14岁女孩发生关系获刑3年](qi-ren-you-tian.md)
-- [吴尊晒NeiNei穿婚服](chao-san-mu-si.md)
+- [张展硕接力分段为1:42.92，超越孙杨为历史最快成绩，比队友快近 4 秒，如何评价他的超级大逆转？](dong-shi-xiao-pin.md)
+- [廉颇推塔竟然这么快，这还玩啥六耳啊](han-dan-xue-bu.md)
+- [教授：至少三分之一的人不适合结婚](qi-ren-you-tian.md)
+- [王玉雯 杨玏](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [豪华燃油车集体“腰斩式”降价](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [盛夏晴朗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [中国女排vs日本女排决赛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [柬埔寨“8号电诈园区”内部曝光](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [媒体：中国男篮需纠错再出发](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [微信上新2大功能](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [退休年龄怎么认？何时退最划算](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [日本选手被张展硕逆转后破防](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [平陆运河通航对广西意味着什么](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [名古屋亚运会颁奖典礼上准备奖品的工作人员全是老头老太太，为什么不用年轻姑娘小伙呢？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [燃油车没可能回到过去了吗](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [又放假了](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [吴尊晒NeiNei穿婚服](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [网友呼吁归还配料表中的白砂糖，它为啥重回白月光？食品饮料为何用果葡糖浆替代白砂糖？前者会影响健康吗？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [炒菜锅洗拖把致50名幼儿集体呕吐](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [媒体：中国男篮需纠错再出发](http://www.daogukj.com/4734416)
-- [杭州市财政局拟废止《支持低空经济若干措施》，是何考量？将对低空经济发展产生哪些影响？](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [穿越冰岛无人区，我遇到了百年一遇的奇观……](http://www.daogukj.com/eujljnlh/)
-- [亚运会之后，郭士强会下课吗？](http://www.daogukj.com/3484796)
-- [中国女排vs日本女排决赛](http://www.daogukj.com/6840289)
-- [员工餐自助打饭，超美味四点金，牛肋排，红烧肉！](http://www.daogukj.com/8544186)
-- [记者七进七出“地下化妆品工厂”](http://www.daogukj.com/4262842)
-- [盛夏晴朗](http://www.movie.hkepx.cn/movie/0136106.htm)
-- [商品消费扩容升级的三重机制](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [柬埔寨“8号电诈园区”内部曝光](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [秦始皇陵水银来源被找到，指向陕西旬阳三处先秦朱砂遗址，这一发现有何意义？](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [为啥顾客明明是消费者，有些商家在拉群的时候却叫「XXX 店粉丝群」，打折的时候叫「给粉丝送福利」？](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [新一期LPR公布，1年期为3.0%，5年期以上为3.5%，均连续16个月保持不变，如何解读？](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [驯化咖啡：一种植物武器，为什么被人类喝了六百年](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [差价6000万倍！不同价位风洞有什么区别？](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [国家电网传来重磅突破](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [储户约8万存款疑遭盗刷 银行回应](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [他罗斯有步坦协同，但我金朝有超位魔法！【帝国时代4】](http://www.daogukj.com/4133568)
-- [《乌贼食宴》 问题壹](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [保健品行业“烂”透了?](http://www.daogukj.com/0480016)
-- [iPhone18Pro吐槽](http://www.daogukj.com/4561506)
-- [TheShy如今状态为何下滑这么严重？](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [10次打开软件 8次跳转到某平台](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [苹果18第一批“受害者”来了吗](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [美心月饼打六折卖](http://www.daogukj.com/jbdvxipc/)
-- [对一千块钱的概念越来越模糊了](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [美多架F-16战机飞往格陵兰岛意味啥](http://www.daogukj.com/awgjjjvg/)
-- [现货黄金收跌0.84%](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [女子马来西亚旅游遭男子闯入脱衣](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [AI真成了大学里的洪水猛兽吗](http://www.daogukj.com/ditzbwwz/)
-- [你去过最离谱的景区是什么？](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [多地禁产“老头乐”](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [美媒称特朗普下令空袭胡塞后又变卦](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [西贝倒闭传闻再上热搜：我真理解不了为什么总整幺蛾子。](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [28万金手链戴了三四小时就丢了](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [不打折的山姆月饼反而卖爆了](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [三年之期已到，恭迎世一上归位！【第10集】](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [王玉雯 杨玏](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [如何评价小米 MIMO V2.6登上AA开源榜第一名？](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [曝一患者闯产科门诊向医生扔粪便，这是真的吗？网传该患者在此院分娩后出现阴道瘘并、会阴裂伤，这有多严重？](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](http://www.daogukj.com/4734416)
+- [29.9元月饼为何能卖出200万单](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [狼王传奇系列1-11集合集【AI全民制作人】](http://www.daogukj.com/eujljnlh/)
+- [中国女篮主教练：争取在决赛中打好](http://www.daogukj.com/3484796)
+- [日本选手被张展硕逆转后破防](http://www.daogukj.com/6840289)
+- [大一新生军训跑去旅游，网传学校报警寻人、教官被取消留役资格，校方回应该生正办理退学手续，如何看待此事？](http://www.daogukj.com/8544186)
+- [共享充电宝同品牌隔几米价格差25%](http://www.daogukj.com/4262842)
+- [退休年龄怎么认？何时退最划算](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [共赴技能之约 同筑匠心之基](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
+- [平陆运河通航对广西意味着什么](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [张展硕接力分段为1:42.92，超越孙杨为历史最快成绩，比队友快近 4 秒，如何评价他的超级大逆转？](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [大满贯得主张继科独家为国乒加油](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [如何评价凡人修仙传动画导演动态回应最近舆论？](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [易烊千玺审美天才设计天才创意天才](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [《曾经的梦想》](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [“谢广坤”销售的东北酸菜被检不合格](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [月租1500元起 酒店巨头抢公寓生意](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [如何看待国际奥委会主席考察名古屋亚运住宿称「空间略紧凑，但比我住过的部分奥运村还要好」？现实环境如何？](http://www.daogukj.com/4133568)
+- [伊朗U23男足教练赛后阴阳中国队「球风粗野，只想着守平，裁判也不吹」，如何评价他的表态？](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [【毕导】这个X你肯定见过，但它其实根本不存在](http://www.daogukj.com/0480016)
+- [我想走路完赛马拉松，基本0基础得大约多久能实现？](http://www.daogukj.com/4561506)
+- [记性不好是正常衰老还是痴呆前兆](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [张家齐职业生涯收入盘点](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [又放假了](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [月饼 卖不动](http://www.daogukj.com/jbdvxipc/)
+- [曝王玉雯杨玏曾结婚又离婚](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [雷军现在只能偷偷吃早餐](http://www.daogukj.com/awgjjjvg/)
+- [越过山丘，才发现奥迪瓦罐有多香？](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [朴信惠二胎产女](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [马龙喊话大家关注亚运会](http://www.daogukj.com/ditzbwwz/)
+- [如何看待理记称「贾国龙说罗永浩下跪才和解」，罗永浩辟谣称理记「拿了钱还祸害甲方」？为啥双方要在此争论？](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [刘冲说肖战无需介绍](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [A股接连上涨 新一轮行情要来了吗](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [86版《西游记》道具展出 金箍棒开裂](http://www.movie.hkepx.cn/movie/4964698.htm)
 - [如果赵丽蓉活着，赵本山还会独大吗？](http://www.daogukj.com/aqmuomii/)
-- [许嵩我们的感情没问题](http://www.daogukj.com/phjdnbun/)
-- [美股半导体股深夜飙涨](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [让村民们自己发展6个小时，回来后我竟然被架空了](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [手机厂商大乱斗 闲鱼的双11](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [A股反弹窗口有望延续](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [雷军澄清早餐被骂装](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [中国队夺亚运会男子 4×200 米自由泳接力金牌，最后一棒张展硕上演大逆转，怎样评价他们的表现？](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [不二之臣转发金允植](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [《原神》角色预告-「薇斯纳：春之晨舞」](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [煤企为抄近道在明长城挖了个口子](http://www.daogukj.com/phjdnbun/)
+- [三条人类](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [超格向粉笔致歉](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [青春没有售价，桂A直达南美天空之镜！](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [周雨谈张本兄妹对国乒的威胁](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [怪不得我们都喜欢睡觉盖被子](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [有网友称华为中秋礼盒的月饼吃完后拉肚子，这是真的吗？月饼造成拉肚子的原因可能是什么？](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [潘展乐称张展硕是奇迹之子](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [廉颇推塔竟然这么快，这还玩啥六耳啊](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [王俊凯回复王源用了波浪号](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%BF%8A%E5%87%AF%E5%9B%9E%E5%A4%8D%E7%8E%8B%E6%BA%90%E7%94%A8%E4%BA%86%E6%B3%A2%E6%B5%AA%E5%8F%B7)
+- [张家齐的存款大概率被爸妈花完了](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%AE%B6%E9%BD%90%E7%9A%84%E5%AD%98%E6%AC%BE%E5%A4%A7%E6%A6%82%E7%8E%87%E8%A2%AB%E7%88%B8%E5%A6%88%E8%8A%B1%E5%AE%8C%E4%BA%86)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 11453f36bfd4a6bedffa -->
+<!-- content-fingerprint: 81410c5c1b638e220696 -->
