@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 网友称睡觉喜欢盖被子并非只是怕冷，而是一种深层心理安全感的生理性寻求，真的是这样吗？你有这种感觉吗？
+# 父亲照顾五保户大爷爷10年，父亲意外去世后，叔叔要求我们"对账补齐"，该怎么处理？
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：103 万热度 · 分类：问答 · 更新：2026-09-22T20:01:26+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：72 万热度 · 分类：问答 · 更新：2026-09-23T00:51:08+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“网友称睡觉喜欢盖被子并非只是怕冷，而是一种深层心理安全感的生理性寻求，真的是这样吗？你有这种感觉吗？”位列第 9 位，公开热度指标为 103 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“父亲照顾五保户大爷爷10年，父亲意外去世后，叔叔要求我们"对账补齐"，该怎么处理？”位列第 9 位，公开热度指标为 72 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：[2 张图片]
+来源公开摘要显示：大爷爷是我爷爷的哥哥，今年93岁，无儿无女，是村里的五保户（特困供养人员）。 从2016年开始，他就住在我家，由我爸妈照顾，整整10年。 这10年里我妈做的事情：一日三餐做好端到他跟前，送得慢一点就被骂大爷爷耳朵背，小声说他说”你不理我”，大声说他又被说凶夜里尿床拉屎，我妈舍不得扔那些衣物和床单，水手洗再放洗衣机 今年4个多月前，我爸车祸意外去世，什么都没来得及交代。 我爸生前一直管理着大爷爷的补助金（政府每年打卡）。最近我叔叔提出要”对账”：要带大爷爷去银行，把10年的流水全部打出来，算算一共补进去多少、花了多少。如果钱少了，要我们娘三用我爸爸去世的赔
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《柯洁围棋入门课》](ye-gong-hao-long.md)
-- [凤头鹰闯入养殖场 1400余只鸡遭殃](lan-yu-chong-shu.md)
-- [羽毛球男团](zi-xiang-mao-dun.md)
-- [张博恒这枚金牌让日本媒体沉默了](bei-gong-she-ying.md)
+- [复仇者联盟](ye-gong-hao-long.md)
+- [中国发现超大型铜金矿](lan-yu-chong-shu.md)
+- [黄子弘凡 声幻奇境音乐节](zi-xiang-mao-dun.md)
+- [中秋国庆调休和高速政策提醒](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [秦始皇陵水银来源被找到，指向陕西旬阳三处先秦朱砂遗址，这一发现有何意义？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [Meta旗下智能体Muse火爆，股价单日暴涨11%，市值暴增1900亿美元，Muse核心优势是什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [曝一患者闯产科门诊向医生扔粪便，这是真的吗？网传该患者在此院分娩后出现阴道瘘并会阴裂伤，这有多严重？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [贾国龙恳请监管部门厘清高流量网络账号的言论边界，区分正常舆论监督和商业诋毁等，哪些信息值得关注？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [一家三口打赏650万赖到女儿身上，要求以未成年人身份退款，真相是如何找到的？反映出家庭教育哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [如何看待钟薛高创始人力挺西贝，说西贝要是倒了，是中国餐饮行业的倒退？你认同这一评价吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [怎样才能把猪肉片或肉丝炒得很嫩？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [‌NPD 最明显的特征有哪些呢？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [《穷亲戚》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [去宁德化论调要不得](http://www.daogukj.com/9193901)
-- [日本亚运会被骂史上最差后甩锅法国](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [原来这些技能也有世界冠军](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [【硬核】俄乌打了四年多，到底谁在买单？](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [低山臭水遇知音！](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [无锡21家企业入围中国民企500强榜单](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [差价6000万倍！不同价位风洞有什么区别？](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [伊朗官方统计称受战争影响，该国经济萎缩 10% ，这对伊朗经济意味着什么？伊朗还能撑多久？](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [凤头鹰闯入养殖场 1400余只鸡遭殃](http://www.daogukj.com/1877942)
-- [兰香如故](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [师徒PK最后一舞，谁输了谁改名！我将拿出我最伟大的作品。](http://www.daogukj.com/nuqwxjlx/)
-- [曝一患者闯产科门诊向医生扔粪便，这是真的吗？网传该患者在此院分娩后出现阴道瘘并会阴裂伤，这有多严重？](http://www.daogukj.com/4054231)
-- [“压力最大超市”](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [沙特遭遇“至暗时刻”谁会伸出援手](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [美股纳指创新高，科技股无视美联储鹰声，AMD市值破1万亿，原油黄金下跌，你怎么看，科技行情会延续吗？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [《原神》角色预告-「沃雅妮莎：此夜共沦」](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [天安门广场巨型花篮亮相了](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [杨幂李现Prada秀场同框](http://www.daogukj.com/9193901)
+- [普京所属政党大获全胜意味着什么](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [高质量发展中国行](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [噢Ω就这啊α - 向上｜上海全球冠军赛 特别节目](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [他不认识兰香但兰香记得退婚书每个字](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [中国女排十冠王](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [如何看待钟薛高创始人力挺西贝，说西贝要是倒了，是中国餐饮行业的倒退？你认同这一评价吗？](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [男子称因超龄被当赠品卖进电诈园区](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [曝一患者闯产科门诊向医生扔粪便，这是真的吗？网传该患者在此院分娩后出现阴道瘘并会阴裂伤，这有多严重？](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [中国发现超大型铜金矿](http://www.daogukj.com/1877942)
+- [我国发现超大型规模铜金矿](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [和同父异母的妹妹去旅游会发生什么？](http://www.daogukj.com/nuqwxjlx/)
+- [‌NPD 最明显的特征有哪些呢？](http://www.daogukj.com/4054231)
+- [多家银行存款利息涨了](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [4国房价泡沫见底时间每次都一样](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [孩子总说被同学「冷落」，家长该介入还是让他自己解决？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [《柯洁围棋入门课》](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [很多中层领导非常无能，水平极低、干啥啥不行、心眼子小、算计第一名，为什么大领导还任命他为中层领导呢？](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
 - [中国队两次让东道主日本沉默](http://www.daogukj.com/ygpoeeya/)
-- [林诗栋2比3普里查扬](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [王楚钦谈林诗栋不敌16岁小将](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
 - [编造“创始人不喝自家饮料”被拘](http://www.daogukj.com/9246627)
-- [如果删掉LOL纳尔怒气值，改为按R变大的同时释放技能，变大形态持续时间和现在相同，是变强还是变弱？](http://www.daogukj.com/2490072)
-- [受贿1.48亿 宋朝华一审被判死缓](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [热播剧《兰香如故》里的南京元素](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [日本亚运会一片乱象日媒“甩锅”](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [当大大小姐偷偷隐藏在小小职场](http://www.daogukj.com/2490072)
+- [11岁男孩一口流利英语帮邻居谈下大单](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [亚运会女排决赛，中国女排3-0完胜日本队，成就亚运「十冠王」，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [OPPO发了一款别在领口的AI新硬件](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
 - [财神窦占龙 第8集 同舟【8月国创】](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [贾国龙恳请监管部门厘清高流量网络账号的言论边界，区分正常舆论监督和商业诋毁等，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [《穷亲戚》](http://www.movie.hkepx.cn/movie/6846982.htm)
 - [比电影更夸张？专业保镖到底在做什么？](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [官方通报「南京一幼儿园发生集体呕吐，监控发现食堂用炒菜锅洗拖把」，11名责任人被处理，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [张展硕1500自由泳金牌](http://www.daogukj.com/8715491)
-- [狼王传奇系列1-11集合集【AI全民制作人】](http://www.daogukj.com/4788107)
-- [父亲照顾五保户大爷爷10年，父亲意外去世后，叔叔要求我们"对账补齐"，该怎么处理？](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [完胜日本队！中国女排亚运会三连冠](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [纽约时代广场千人排队买中国相机](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [柯沁沁亚运体操全能摘银](http://www.daogukj.com/3872248)
-- [如何辨别AI生成的伪史料？](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [羽毛球男团](http://www.daogukj.com/sguhnydl/)
-- [“你不能拿资助你上学的钱去抽烟”](http://www.daogukj.com/6123602)
-- [张博恒这枚金牌让日本媒体沉默了](http://www.daogukj.com/7243934)
-- [姿态银行卡余额](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [花40000买个金丝楠乌木，三年后锯开竟然变成这样，做成手串扇子是亏还是赚？](http://www.daogukj.com/fgkxwaik/)
-- [浙江两名女高中生坐顺风车半路被司机赶下车，如何保障未成年人乘车安全？](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [月饼暴利时代彻底结束了吗](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [刘耀文生日直播延期](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [廉颇推塔竟然这么快，这还玩啥六耳啊](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [杨利伟：那一刻我以为要牺牲了](http://www.daogukj.com/4800229)
-- [驯化咖啡：一种植物武器，为什么被人类喝了六百年](http://www.daogukj.com/1329201)
-- [张家齐退役仅8天就开始直播带货](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [中路爆破能力对于一个足球运动员来说很罕见吗？我看不少球员集锦，他们都能做到啊，为什么只有卡卡被吹捧？](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [Meta旗下智能体Muse火爆，股价单日暴涨11%，市值暴增1900亿美元，Muse核心优势是什么？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [林诗栋 2-3 爆冷输泰国 16 岁小将提塔帕-普里查扬，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [林诗栋称输球是自己问题](http://www.daogukj.com/8715491)
+- [9000个名字刻在墙上，这座边境小城经历了什么？OPPO Find X10 ProMax](http://www.daogukj.com/4788107)
+- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [还有一批超级工程即将改变中国](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [博主：A股这轮牛市远没结束](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [贾国龙恳请监管部门厘清高流量网络账号的言论边界，区分正常舆论监督和商业诋毁等，哪些信息值得关注？](http://www.daogukj.com/3872248)
+- [潘玮柏自曝病情 公开感谢王心凌](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [黄子弘凡 声幻奇境音乐节](http://www.daogukj.com/sguhnydl/)
+- [99岁奶奶回应玩消消乐闯9562关](http://www.daogukj.com/6123602)
+- [中秋国庆调休和高速政策提醒](http://www.daogukj.com/7243934)
+- [越南为何向美国承诺严查中国商品转运](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [《原神》角色预告-「沃雅妮莎：此夜共沦」](http://www.daogukj.com/fgkxwaik/)
+- [iPhone17正常使用，能用几年？](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [张展硕1500米自由泳夺冠](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [杨幂回复李现](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [师徒PK最后一舞，谁输了谁改名！我将拿出我最伟大的作品。](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [南京地铁 黄鼠狼](http://www.daogukj.com/4800229)
+- [【硬核】俄乌打了四年多，到底谁在买单？](http://www.daogukj.com/1329201)
+- [迪丽热巴男粉握手后捂脸跑下台](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [廉颇推塔竟然这么快，这还玩啥六耳啊](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [怎样才能把猪肉片或肉丝炒得很嫩？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [网友称睡觉喜欢盖被子并非只是怕冷，而是一种深层心理安全感的生理性寻求，真的是这样吗？你有这种感觉吗？](https://www.zhihu.com/question/2085683276736198394)
+- [父亲照顾五保户大爷爷10年，父亲意外去世后，叔叔要求我们"对账补齐"，该怎么处理？](https://www.zhihu.com/question/2083123476710347831)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d6372846548b934b88eb -->
+<!-- content-fingerprint: 91d04596a0da3b62c530 -->
