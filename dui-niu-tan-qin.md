@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# iPhone 18系列第一批受害者来了
+# A股反弹窗口有望延续
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6752262 · 更新：2026-09-22T06:50:19+08:00
+> 来源：今日头条热榜 · 排名：第 12 位 · 热度：5341665 · 更新：2026-09-22T09:22:14+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“iPhone 18系列第一批受害者来了”位列第 11 位，公开热度指标为 6752262。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“A股反弹窗口有望延续”位列第 12 位，公开热度指标为 5341665。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月21日，针对网友吐槽iPhone 18 Pro系列频繁死机重启，杭州数码市场经营户回应称该情况概率极低，官方渠道可换，授权店激活后不换。此前9月18日该机发售后，国内外多名用户反映在使用Face ID或特定操作时触发死机重启。经营户提醒消费者激活前需仔细验机。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [罗永浩已取证将起诉](mang-ren-mo-xiang.md)
-- [远离高血压等慢病从这7个好习惯开始](yuan-mu-qiu-yu.md)
-- [一医院被曝不给实习生放中秋假，遭网络曝光后疑医院职工称要「整死」爆料者，哪些信息值得关注？](sha-ji-qu-luan.md)
-- [【万字合集】午夜梦回，恶灵古堡！爆发夜之前重温《生化危机》系列！丧尸题材千千万，它才是我心中的红月光~](yin-zhen-zhi-ke.md)
+- [闲鱼回应「暗藏涉黄产业链，涉大量未成年」，称已成立专项小组，情况有多严重？应怎样加强监管？](mang-ren-mo-xiang.md)
+- [高质量睡眠](yuan-mu-qiu-yu.md)
+- [储户约8万存款疑遭盗刷 银行回应](sha-ji-qu-luan.md)
+- [Meta市值一夜暴增1.29万亿](yin-zhen-zhi-ke.md)
 
 ## 站内推荐
 
-- [中国队已夺23金10银5铜](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [大爷钓到1.6米长大鳡鱼 扛着就跑](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [英特尔暴涨13%](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [众擎T800机器人一脚踢翻人类拳手](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [旧手机怎么处理最安全](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [雷军回应“打新宇树赚了100多亿”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [国家电网传来重磅突破](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [刘雨昕帮谢金燕发声](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [美媒称特朗普下令空袭胡塞后又变卦](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [苹果18第一批“受害者”来了吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [这些食物可能是结节的“催化剂”](http://www.daogukj.com/7783346)
-- [妹妹送哥哥入伍上一秒微笑下一秒大哭](http://www.movie.hkepx.cn/xiju/0144340.htm)
-- [为啥部分消费者抱着非宁德不选心态](http://www.movie.hkepx.cn/xiju/5872465.htm)
-- [「白鸽归乡」哥伦比娅花样滑冰短片【HoYoFair x bilibilionly】](http://www.daogukj.com/xyupryli/)
+- [让村民们自己发展6个小时，回来后我竟然被架空了](http://www.daogukj.com/7783346)
+- [潘展乐 我最菜所以我第三棒](http://www.movie.hkepx.cn/xiju/0144340.htm)
+- [穿越冰岛无人区，我遇到了百年一遇的奇观……](http://www.movie.hkepx.cn/xiju/5872465.htm)
+- [深圳市委：坚决拥护党中央决定](http://www.daogukj.com/xyupryli/)
 - [当前我国粮食市场保持总体平稳](http://www.daogukj.com/6352765)
 - [潘展乐 张展硕](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
-- [Lisa疑似与blue谈恋爱了](http://www.movie.hkepx.cn/xiju/6435292.htm)
-- [张佳宁机场都要人扶着走](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
-- [AI或可替代教师只需一个班主任](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
-- [中国女排将与日本女排争冠](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
-- [上海一居民家阳台惊现白化蟒蛇](http://www.daogukj.com/1493456)
-- [豪华燃油车集体“腰斩式”降价](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
-- [曝金鹰奖最佳男女主](http://www.daogukj.com/wecagjke/)
-- [旧手机怎么处理最安全](http://www.daogukj.com/8911687)
-- [中国队已夺23金10银5铜](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [徐嘉余：甲鱼未来可期](http://www.movie.hkepx.cn/xiju/6645788.htm)
-- [《反乌托邦Pt2》，但是反驳型人格](http://www.movie.hkepx.cn/xiju/9394899.htm)
-- [闲鱼回应「暗藏涉黄产业链，涉大量未成年」，称已成立专项小组，情况有多严重？应怎样加强监管？](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
-- [91岁奶奶认不出子女却记得89年前的歌](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [雷军回应“打新宇树赚了100多亿”](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [超7成肺癌病例不吸烟无粉尘暴露](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
-- [现在纯牛奶每100毫升的蛋白质含量，怎么越来越高了？高的牛奶已经到4.0了?](http://www.daogukj.com/sfshhzje/)
-- [后续就是还有高手](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [如何看待ZCode于0921开源并关闭issue？](http://www.daogukj.com/6469340)
-- [采访了刘慈欣](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [如何看待米哈游26年9月21日的反舞弊通报？](http://www.movie.hkepx.cn/xiju/6637455.htm)
-- [大一新生军训跑去旅游，网传学校报警寻人、教官被取消留役资格，校方回应该生正办理退学手续，如何看待此事？](http://www.daogukj.com/ezqthdyk/)
-- [【万字合集】午夜梦回，恶灵古堡！爆发夜之前重温《生化危机》系列！丧尸题材千千万，它才是我心中的红月光~](http://www.movie.hkepx.cn/movie/8362403.htm)
-- [雷军回应“武汉街头吃热干面”争议](http://www.daogukj.com/blmliwwv/)
-- [中国女排亚运会从未跌出前三](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
-- [名古屋亚运会游泳](http://www.daogukj.com/6808681)
-- [仅5.87MB？全新重构Bongocat，推荐所有人使用！](http://www.daogukj.com/8913120)
-- [美多架F-16战机飞往格陵兰岛意味啥](http://www.daogukj.com/8931072)
-- [网友呼吁归还配料表中的白砂糖，它为啥重回白月光？食品饮料为何用果葡糖浆替代白砂糖？前者会影响健康吗？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [乌克兰无人机为何能突袭莫斯科腹地](http://www.movie.hkepx.cn/xiju/2847418.htm)
-- [潘展乐张展硕接力逆转](http://www.daogukj.com/nrrtwuij/)
-- [罗永浩已取证将起诉](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
-- [小 时 候 害 怕 的 事](http://www.daogukj.com/emrfuprm/)
-- [让村民们自己发展6个小时，回来后我竟然被架空了](http://www.movie.hkepx.cn/movie/7899876.htm)
-- [AMD总市值首次突破1万亿美元](http://www.movie.hkepx.cn/xiju/7135879.htm)
-- [多地宣布结婚发钱](http://www.daogukj.com/obfbkvuj/)
-- [远离高血压等慢病从这7个好习惯开始](http://www.movie.hkepx.cn/xiju/2876935.htm)
-- [16岁少年与14岁女孩发生关系判3年](http://www.movie.hkepx.cn/xiju/8438607.htm)
-- [为什么现在掀起了对古早影视剧的吐槽热潮，比如步步惊心，如懿传之类的影视作品？](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
-- [鹿晗养头发的痛](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
+- [为啥顾客明明是消费者，有些商家在拉群的时候却叫「XXX 店粉丝群」，打折的时候叫「给粉丝送福利」？](http://www.movie.hkepx.cn/xiju/6435292.htm)
+- [iPhone18 Pro涨价后，现在还坚持一步到位买大容量内存的，是否在为品牌溢价买单？](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
+- [中国队夺亚运会男子 4×200 米自由泳接力金牌，最后一棒张展硕上演大逆转，怎样评价他们的表现？](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
+- [闲鱼回应涉黄](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
+- [媒体：中国男篮需纠错再出发](http://www.daogukj.com/1493456)
+- [潘展乐称张展硕是奇迹之子](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
+- [一块月饼为何能看懂中国消费巨变](http://www.daogukj.com/wecagjke/)
+- [苹果18第一批“受害者”来了吗](http://www.daogukj.com/8911687)
+- [雷军回应“打新宇树赚了100多亿”](http://www.movie.hkepx.cn/movie/7897439.htm)
+- [TheShy如今状态为何下滑这么严重？](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [iPhone18Pro吐槽](http://www.movie.hkepx.cn/xiju/9394899.htm)
+- [16岁少年与14岁女孩发生关系获刑3年](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
+- [为什么很多国人喜欢把手机和电脑的系统语言设置成英文？](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
+- [曝一患者闯产科门诊向医生扔粪便，这是真的吗？网传该患者在此院分娩后出现阴道瘘并、会阴裂伤，这有多严重？](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [AI或可替代教师只需一个班主任](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [10次打开软件 8次跳转到某平台](http://www.daogukj.com/sfshhzje/)
+- [曝某S加女主片酬从几千万降至100万](http://www.movie.hkepx.cn/xiju/2060263.htm)
+- [中国女足5比1击败菲律宾女足](http://www.daogukj.com/6469340)
+- [鹿晗养头发的痛](http://www.movie.hkepx.cn/movie/8131985.htm)
+- [Mac mini M6性能测试：核心更多了，性能强多少？](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [三年之期已到，恭迎世一上归位！【第10集】](http://www.daogukj.com/ezqthdyk/)
+- [Meta市值一夜暴增1.29万亿](http://www.movie.hkepx.cn/movie/8362403.htm)
+- [盛夏晴朗](http://www.daogukj.com/blmliwwv/)
+- [驯化咖啡：一种植物武器，为什么被人类喝了六百年](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
+- [美多架F-16战机飞往格陵兰岛意味啥](http://www.daogukj.com/6808681)
+- [苹果硬件负责人称看到 iPhone 贴膜就浑身不自在，这反映了厂商与用户之间怎样的理念冲突？](http://www.daogukj.com/8913120)
+- [国际油价21日显著下跌](http://www.daogukj.com/8931072)
+- [网购燃气灶防风罩一月后妻儿中毒死亡，该产品为何会导致如此严重的事故？是否该全面禁售？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
+- [亚运会之后，郭士强会下课吗？](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [钟南山团队发现71%肺结节患者不吸烟](http://www.daogukj.com/nrrtwuij/)
+- [闲鱼回应「暗藏涉黄产业链，涉大量未成年」，称已成立专项小组，情况有多严重？应怎样加强监管？](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
+- [代孕机构16万贩卖多余婴儿](http://www.daogukj.com/emrfuprm/)
+- [吴尊晒NeiNei穿婚服](http://www.movie.hkepx.cn/movie/7899876.htm)
+- [柬埔寨“8号电诈园区”内部曝光](http://www.movie.hkepx.cn/xiju/7135879.htm)
+- [豪华燃油车集体“腰斩式”降价](http://www.daogukj.com/obfbkvuj/)
+- [高质量睡眠](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [美心月饼打六折卖](http://www.movie.hkepx.cn/xiju/8438607.htm)
+- [旧手机怎么处理最安全](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
+- [为什么现在大家对月饼不感兴趣了](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
 - [两部门紧急拨付2亿支持4省救灾](http://www.daogukj.com/8210319)
-- [网购燃气灶防风罩一月后妻儿中毒死亡，该产品为何会导致如此严重的事故？是否该全面禁售？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [中国队夺亚运会男子 4×200 米自由泳接力金牌，最后一棒张展硕上演大逆转，怎样评价他们的表现？](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [网友呼吁归还配料表中的白砂糖，它为啥重回白月光？食品饮料为何用果葡糖浆替代白砂糖？前者会影响健康吗？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
+- [记者七进七出“地下化妆品工厂”](http://www.movie.hkepx.cn/xiju/1710411.htm)
 - [商品消费扩容升级的三重机制](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
-- [浙江女子散步时被蝙蝠撞脸未发现伤口，医生称只要直接接触按 III 级暴露处置，这是为什么？](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
+- [女子马来西亚旅游遭男子闯入脱衣](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
 </details>
 
 ## 原始来源
 
-- [iPhone 18系列第一批受害者来了](https://www.baidu.com/s?wd=iPhone+18%E7%B3%BB%E5%88%97%E7%AC%AC%E4%B8%80%E6%89%B9%E5%8F%97%E5%AE%B3%E8%80%85%E6%9D%A5%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [A股反弹窗口有望延续](https://www.toutiao.com/trending/7687393781334900779/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227687393781334900779%22%2C%22hot_board_impr_id%22%3A%2220260922092211D86F1B0D28754C4F2F5A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 855e56a32226fea1497c -->
+<!-- content-fingerprint: f075df7acecab5bab8ab -->
