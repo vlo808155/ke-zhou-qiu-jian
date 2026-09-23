@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 骁龙8 Elite Extreme Gen6前瞻上手：高通新旗舰手机来啦！
+# 为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：657865 · 分类：数码 · 更新：2026-09-23T14:12:31+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：147 万热度 · 分类：问答 · 更新：2026-09-23T19:47:07+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“骁龙8 Elite Extreme Gen6前瞻上手：高通新旗舰手机来啦！”位列第 9 位，公开热度指标为 657865，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？”位列第 9 位，公开热度指标为 147 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：高通新一代旗舰手机芯片——骁龙8 Elite Extreme Gen 6终于来啦！除了这个长得离谱的名字外，这代旗舰手机还有哪些有趣的新特性？8EE6的架构升级大吗？能效如何？今天我们就用QRD工程机来上手体验一下吧……
+来源公开摘要显示：我不造啊，反正我的芳心已经被我家小茂密俘获了
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [“老屋枣树今犹在 孩童早已去无踪”](ye-gong-hao-long.md)
-- [张博恒 体操男子团体决赛](lan-yu-chong-shu.md)
-- [刘纪鹏相信A股会重回4000点](zi-xiang-mao-dun.md)
-- [为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？](bei-gong-she-ying.md)
+- [《异环》黑羽角色短片丨救世主的祭宴](ye-gong-hao-long.md)
+- [困在桌游房间里的女孩](lan-yu-chong-shu.md)
+- [WMA微博音乐盛典](zi-xiang-mao-dun.md)
+- [“河南最爱发钱老板”中秋又要发钱了](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [沃尔玛中国、山姆中国首席采购官双双换人，美国山姆高管空降执掌山姆采购，这次人事调整释放了哪些战略信号？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [【剧情】大理石厅谋杀案（2026）01【莱丝利·曼维尔 / 蒂姆·迈克穆兰】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [这是啥户型啊？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [敬一丹个人账号“节气”系列继续更新](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [陪看U23国足vsU23阿联酋](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [山上明明没有水库，为什么溪水一年到头流不完？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [高市早苗在联合国大会呼吁删除「敌国条款」，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [复仇者联盟](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [借给路人手机被塞1条中华1盒月饼](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [马克龙：加沙场景令所有人蒙羞](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [周也《一瓯春》片段被群嘲出圈，演技遭质疑，不少观众觉得她很多表演观感别扭，问题根源在哪？](http://www.daogukj.com/9193901)
-- [欧盟要求中国「自愿限制」汽车出口，会如何影响中欧贸易关系？](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [文化中国行秋分节气](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [国庆将至 各地节日氛围陆续“上线”](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [陈翔 毛晓彤](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [琵琶曲‖ 决战重制版【re0】](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [【剧情】大理石厅谋杀案（2026）01【莱丝利·曼维尔 / 蒂姆·迈克穆兰】](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [孙尚香农射一](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [23岁女子吃完外卖后肾损伤](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [张博恒 体操男子团体决赛](http://www.daogukj.com/1877942)
-- [如何评价《生化危机：爆发夜》开分烂番茄98%，成了媒体评分最高的游戏改编电影？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [杭州火灾](http://www.daogukj.com/nuqwxjlx/)
-- [敬一丹个人账号“节气”系列继续更新](http://www.daogukj.com/4054231)
-- [黄大发被判死刑立即执行](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [为什么建议35岁就要开始控糖](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [财神窦占龙 第8集 同舟【8月国创】](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [多家银行存款利息涨了](http://www.daogukj.com/9193901)
+- [全国中秋假期天气地图](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [中国人端稳中国饭碗](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [这是啥户型啊？](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [iPhone Duo 整机组装良率仅六成多，供应链在等苹果决定是否放宽质量要求，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [9月26日，全新干员研究外观【牧羊人-安魂】登场！](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [高市早苗在联合国大会呼吁删除「敌国条款」，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [油价将大幅调整，全国95号汽油或全面迈入9元时代逼近年内最高价，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [小伙阳台养鸡鸭肺部长出“空洞”](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [困在桌游房间里的女孩](http://www.daogukj.com/1877942)
+- [居民反映看完广告才能进家门](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [全女综我们喜欢你](http://www.daogukj.com/nuqwxjlx/)
+- [借给路人手机被塞1条中华1盒月饼](http://www.daogukj.com/4054231)
+- [徐嘉余 中国亚运历史金牌王](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [业内：A股还在避险](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [12306 回应国庆假期高铁涨价，「不同日期优惠折扣不同，并非涨价」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
 - [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [和同父异母的妹妹去旅游会发生什么？](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [iPhone Duo 整机组装良率仅六成多，供应链在等苹果决定是否放宽质量要求，哪些信息值得关注？](http://www.daogukj.com/ygpoeeya/)
-- [闲鱼公布调查结果](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [高市早苗要求删除敌国条款](http://www.daogukj.com/9246627)
-- [伊朗外长与美特使在纽约会晤](http://www.daogukj.com/2490072)
-- [肖战和男大有什么区别](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [带着豆包去买瓜](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [老板买了10只海胆没卖出去，下班给它做成海胆水饺偷吃了，韭菜摊鸡蛋，铁板鱿鱼](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [0添加等于更安全、更健康吗](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [陪看U23国足vsU23阿联酋](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [《异环》黑羽角色短片丨救世主的祭宴](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [酒店推出「月租房」抢租客，相较传统租房有何优劣？月租最低1500元起、配备品牌家电等，你会选择入住吗？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [秋分节气有什么特点](http://www.daogukj.com/8715491)
-- [《柯洁围棋入门课》](http://www.daogukj.com/4788107)
-- [比电影更夸张？专业保镖到底在做什么？](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [2天内6省份省委书记调整](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [日本已没有举办大型赛事的能力了吗](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [老员工比新员工干的多，工资却被倒挂？为什么会有薪资倒挂？怎么办？](http://www.daogukj.com/3872248)
-- [叔侄同校只差五岁 课间小叔总去串门](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [刘纪鹏相信A股会重回4000点](http://www.daogukj.com/sguhnydl/)
-- [多家银行存款利息涨了释放何信号](http://www.daogukj.com/6123602)
-- [为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？](http://www.daogukj.com/7243934)
-- [自驾旅行的费用是全程AA，还是谁开车谁少出一点更合适？](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [骁龙新一代旗舰AI到底有多强](http://www.daogukj.com/fgkxwaik/)
-- [台当局称小红书文化侵略 国台办回应](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [38 岁清华毕业生三战高考考上北大医学部，称「希望在热爱的领域做一点有意义的事」，如何看待他的选择？](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [0添加等于更安全更健康？假的](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [隐翅虫](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [雾里青的尺度](http://www.daogukj.com/4800229)
-- [兰香如故](http://www.daogukj.com/1329201)
-- [都说肯德基、华莱士等大品牌有无可比拟的低价进货渠道，那那些小的杂牌汉堡店是怎么生存下来的？](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [女子过敏就诊被护士公主抱进抢救室](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [这是啥户型啊？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [迈克尔·许家印《朋友的酒DJ》史上经典演唱会开场！人生必看的现场](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [班主任在群聊发准考证致 7 人志愿被改，篡改他人志愿的学生被判一年六个月，班主任不承担责任，如何解读？](http://www.daogukj.com/ygpoeeya/)
+- [王楚钦vs林昀儒](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [“民惠通APP可发高龄补贴”不实](http://www.daogukj.com/9246627)
+- [秋分开始要尽量少大声说话](http://www.daogukj.com/2490072)
+- [白鹿直播](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [兰香如故有总冠名了](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [亚运会男足小组赛，中国 U23 0-0 战平阿联酋，小组头名晋级 8 强，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [【时代少年团】2026年生日企划《年年岁岁》——刘耀文篇](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [马克龙：加沙场景令所有人蒙羞](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [暗区突围X少女前线2：追放 联动访谈实录](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [沃尔玛中国、山姆中国首席采购官双双换人，美国山姆高管空降执掌山姆采购，这次人事调整释放了哪些战略信号？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [张展硕恐怖如斯](http://www.daogukj.com/8715491)
+- [【泽元电台】加强上路？利好换线？一年一度的世界赛版本又来了！](http://www.daogukj.com/4788107)
+- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [中美元首半年内实现互访](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [好久不见啊，佐助](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [打车关门时手指突然飙血 发现4个刀片](http://www.daogukj.com/3872248)
+- [中秋节前股市怎么走](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [WMA微博音乐盛典](http://www.daogukj.com/sguhnydl/)
+- [菲弹劾法庭改规则 莎拉定罪门槛降低](http://www.daogukj.com/6123602)
+- [“河南最爱发钱老板”中秋又要发钱了](http://www.daogukj.com/7243934)
+- [怎么看待《金融时报》报道俄罗斯已经摧毁了乌克兰全国超过一半，即210万平方米的仓储设施？](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [甘肃景区免票只限中国国籍老人](http://www.daogukj.com/fgkxwaik/)
+- [比电影更夸张？专业保镖到底在做什么？](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [智耕沃野慧启未来](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [肖战新剧差点被姜妍一电炮呼死](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [国乒女团 变阵](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [于子迪：3金到手 亚运告一段落](http://www.daogukj.com/4800229)
+- [闲鱼公布涉黄调查结果](http://www.daogukj.com/1329201)
+- [林诗栋蒯曼淘汰奥运会亚军](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [马斯克说上海工厂成功靠的是中国员工](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [复仇者联盟](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [骁龙8 Elite Extreme Gen6前瞻上手：高通新旗舰手机来啦！](https://b23.tv/BV17uhW6VE2R)
+- [为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？](https://www.zhihu.com/question/2039459450818404540)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0330a6faae024b3533b0 -->
+<!-- content-fingerprint: fcc288939aa4e43cccb3 -->
