@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 33岁女演员确诊癌症 家人公开求助
+# 腾讯放弃AI元宝全力押注WorkBuddy，这次战略转型算成功吗？
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6754587 · 更新：2026-09-23T19:47:07+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：136 万热度 · 分类：问答 · 更新：2026-09-23T23:50:42+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“33岁女演员确诊癌症 家人公开求助”位列第 11 位，公开热度指标为 6754587。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“腾讯放弃AI元宝全力押注WorkBuddy，这次战略转型算成功吗？”位列第 12 位，公开热度指标为 136 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月18日，安徽安庆33岁黄梅戏女演员朱建晴的家人首次向社会公开求助。朱建晴确诊脑胶质瘤后已失去自理能力，仍念叨“想活下去，想回去唱戏”。此前，她于2024年10月确诊，先后在上海、杭州等地手术及放化疗，花费五六十万元。
+来源公开摘要显示：从跟风做通用聊天AI，到深耕办公差异化赛道，避开豆包、千问正面内卷，腾讯的打法够聪明吗？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [白鹿直播](dui-niu-tan-qin.md)
-- [林诗栋蒯曼淘汰奥运会亚军](mang-ren-mo-xiang.md)
-- [中国机床出口都超过德国了，东南亚工厂也在换中国设备，那国产机床到底行不行？有没有过来人说说真实体验？](yuan-mu-qiu-yu.md)
-- [比电影更夸张？专业保镖到底在做什么？](sha-ji-qu-luan.md)
+- [带着豆包去买瓜](dui-niu-tan-qin.md)
+- [广东一酒店温泉池惊现一条蛇](mang-ren-mo-xiang.md)
+- [小米电视](yuan-mu-qiu-yu.md)
+- [王楚钦：抱着必胜信念面对决赛](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
-- [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [带着豆包去买瓜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [《异环》黑羽角色短片丨救世主的祭宴](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [2026海峡两岸中秋晚会](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [管泽元一年一度的世界赛版本又来了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [【逆水寒×盗墓笔记】新角色「张起灵」登场！实机试玩与联动关卡演示](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [「小白」关于小米18 Pro/Pro Max 你想看的都在这！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [徐嘉余中国亚运历史金牌王](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [为什么越是维护过老系统的程序员，越不敢让 AI 直接改代码？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [兰香如故](http://www.daogukj.com/4141941)
-- [陈翔 毛晓彤](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [带着豆包去买瓜](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [白鹿直播](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [打车关门时手指突然飙血 发现4个刀片](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [如何评价腾讯新游《粒粒的小人国》二测表现？](http://www.daogukj.com/7265089)
-- [徐嘉余 中国亚运历史金牌王](http://www.daogukj.com/3085948)
-- [“民惠通APP可发高龄补贴”不实](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [林诗栋蒯曼淘汰奥运会亚军](http://www.daogukj.com/jtbnzsng/)
-- [暗区突围X少女前线2：追放 联动访谈实录](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [比电影更夸张？专业保镖到底在做什么？](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [【独家】镇魂街第五季 王国纷争篇定档12月11日！](http://www.daogukj.com/5882217)
-- [和同父异母的妹妹去旅游会发生什么？](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [月饼市场遇冷山姆却卖爆了](http://www.daogukj.com/0190432)
-- [闲鱼公布涉黄调查结果](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [【硬核】俄乌打了四年多，到底谁在买单？](http://www.daogukj.com/nzmqevzx/)
-- [中国机床出口都超过德国了，东南亚工厂也在换中国设备，那国产机床到底行不行？有没有过来人说说真实体验？](http://www.daogukj.com/qnzjxpsz/)
-- [张展硕亚运男子200自夺冠](http://www.daogukj.com/7347029)
-- [全系L3架构启境GX7上市](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [好日子里品丰收](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [王楚钦vs林昀儒](http://www.movie.hkepx.cn/xiju/8115054.htm)
-- [习近平离京对美国进行国事访问](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [如何看待赛力斯董事长回应与华为合作生变，称是全球通行做法？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [当美院人玩涂鸦躲猫猫真人版](http://www.daogukj.com/2641155)
-- [闲鱼称「涉未成年人淫秽」不实，已就引流行为报案，这算反转了吗？「来自其他平台」的违规截图是谁的责任？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [全女综我们喜欢你](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [山上明明没有水库，为什么溪水一年到头流不完？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [媒体人热议亚运男足：安东尼奥牛不牛](http://www.daogukj.com/3850819)
-- [中国人端稳中国饭碗](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [如何评价GPT-6 Sol 和 Luna？](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [亚运会开幕以来，中国代表团目前一半以上奖牌都来自游泳，中国游泳近几年是如何崛起的？](http://www.daogukj.com/9307696)
-- [亚运会男足小组赛，中国 U23 0-0 战平阿联酋，小组头名晋级 8 强，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [困在桌游房间里的女孩](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [西贝员工称因长期被镜头曝光，一线员工承受巨大心理压力甚至离职，持续曝光对普通店员的心理健康影响有多大？](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [WMA微博音乐盛典](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [于子迪：3金到手 亚运告一段落](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [菲弹劾法庭改规则 莎拉定罪门槛降低](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [【剧情】大理石厅谋杀案（2026）01【莱丝利·曼维尔 / 蒂姆·迈克穆兰】](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [2天内6省份省委书记调整](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [一个细胞最后能长成完整的人，它怎么知道哪里该是眼睛、哪里该是心脏？](http://www.daogukj.com/6360237)
-- [【时代少年团】2026年生日企划《年年岁岁》——刘耀文篇](http://www.daogukj.com/7781714)
-- [管泽元一年一度的世界赛版本又来了](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [小米发布会](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [第一届《汽车运动会》！！！](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [张展硕200米自金牌](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [iPhone Duo 整机组装良率仅六成多，供应链在等苹果决定是否放宽质量要求，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [兰香如故有总冠名了](http://www.movie.hkepx.cn/xiju/7034358.htm)
-- [工位上最伟大的单品出现了](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [9月26日，全新干员研究外观【牧羊人-安魂】登场！](http://www.daogukj.com/nlksxqaw/)
+- [小米发布会](http://www.daogukj.com/4141941)
+- [同等条件下白砂糖比果葡糖浆更安全](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [「小白」关于小米18 Pro/Pro Max 你想看的都在这！](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [带着豆包去买瓜](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [四年级男孩车间熟练打包](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [杨幂把麦克风拿反了](http://www.daogukj.com/7265089)
+- [《兰香如故》在台爆火](http://www.daogukj.com/3085948)
+- [暗区突围X少女前线2：追放 联动访谈实录](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [广东一酒店温泉池惊现一条蛇](http://www.daogukj.com/jtbnzsng/)
+- [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [王楚钦：抱着必胜信念面对决赛](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [《三国杀·烽烟策》实机PV首曝 | 10月8日一测·卧龙出山](http://www.daogukj.com/5882217)
+- [琵琶曲‖ 决战重制版【re0】](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [小米18Pro价格](http://www.daogukj.com/0190432)
+- [亚运会乒乓球男团半决赛，中国队 3-0 中国台北队，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [檀健次孟子义同赴FENDI秀场](http://www.daogukj.com/nzmqevzx/)
+- [小米电视](http://www.daogukj.com/qnzjxpsz/)
+- [打一针管数月的降压疫苗要来了](http://www.daogukj.com/7347029)
+- [中国女排夺冠 香港记者激动落泪](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [丰收开新局 实干促振兴](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [国乒将与日本争冠](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [小米18ProMax透明版上手](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
+- [山上明明没有水库，为什么溪水一年到头流不完？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [2天内6省份省委书记调整](http://www.daogukj.com/2641155)
+- [华人藏家花费 2400 万元追回疑似圆明园龙首，此事具有哪些意义？](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [西贝员工称因长期被镜头曝光，一线员工承受巨大心理压力甚至离职，持续曝光对普通店员的心理健康影响有多大？](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [亚运会乒乓球男团半决赛，王楚钦 3-2 险胜林昀儒，怎样评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [中国最著名的离别曲，朴树都觉得死而无憾的词到底好在哪？](http://www.daogukj.com/3850819)
+- [中国教育普及程度居世界前列](http://www.movie.hkepx.cn/xiju/8710542.htm)
+- [“亚洲第一长洞”有新发现](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [月饼市场从“面子”回归“里子”](http://www.daogukj.com/9307696)
+- [日本男团3比0晋级决赛](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [如何评价《原神》7.1版本【往冥府的安魂歌】剧情?](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [实拍王楚钦3比2林昀儒后庆祝](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [燃气聚能环别再用了](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [小米18 Pro系列上手体验：骁龙8E6有惊喜？！](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [兰香如故](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [这是啥户型啊？](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [教育部回应“13岁于子迪亚运夺2金”](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [食品企业为什么开始换糖](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [每周至少半天校外实践教学将在全国推行，哪些信息值得关注？](http://www.daogukj.com/6360237)
+- [高市早苗在联合国大会呼吁删除「敌国条款」，哪些信息值得关注？](http://www.daogukj.com/7781714)
+- [为什么越是维护过老系统的程序员，越不敢让 AI 直接改代码？](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [全球量产最快充电速度](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [“世事起伏多折，历尽方得华章.”【Shadow Of The Sun-降调】【坚韧不拔の小曲】](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [凤凰传奇的玲花为什么不参加浪姐？](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [海信最新RGB 技术再拉高画质上限，将引领行业技术主线怎样发展？](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [丁程鑫发过贺峻霖喵喵舞](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [小米手环11](http://www.movie.hkepx.cn/xiju/0218818.htm)
+- [亚运会冠军发了朱志鑫娃娃](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [33岁女演员确诊癌症 家人公开求助](https://www.baidu.com/s?wd=33%E5%B2%81%E5%A5%B3%E6%BC%94%E5%91%98%E7%A1%AE%E8%AF%8A%E7%99%8C%E7%97%87+%E5%AE%B6%E4%BA%BA%E5%85%AC%E5%BC%80%E6%B1%82%E5%8A%A9&sa=fyb_news&rsv_dl=fyb_news)
+- [腾讯放弃AI元宝全力押注WorkBuddy，这次战略转型算成功吗？](https://www.zhihu.com/question/2081698141351555724)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7640242dde4d72af0c5d -->
+<!-- content-fingerprint: f4b73e772a29d285b9de -->
