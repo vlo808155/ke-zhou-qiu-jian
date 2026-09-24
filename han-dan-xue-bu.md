@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 高市早苗在联合国大会呼吁删除「敌国条款」，哪些信息值得关注？
+# 林诗栋：日本队的厚度当今最强
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：91 万热度 · 分类：问答 · 更新：2026-09-24T08:45:56+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6752487 · 更新：2026-09-24T13:41:21+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“高市早苗在联合国大会呼吁删除「敌国条款」，哪些信息值得关注？”位列第 11 位，公开热度指标为 91 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“林诗栋：日本队的厚度当今最强”位列第 11 位，公开热度指标为 6752487。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据俄媒报道，当地时间9月22日，高市早苗在第81届联合国大会发言时表示，联合国应从其宪章中删除“敌国”一词。高市早苗说，早在2005年联合国世界首脑会议就通过一项决议，决心从《联合国宪章》中删除有关“敌国”的表述。高市早苗称，“根据该决议，这些表述应当删除”。 她强调，日本为近70年来对联合国事业所作的贡献，以及为促进和平与繁荣所作的努力，感到自豪。 日本预计将于今年晚些时候公布新的有关计划，包括在未来十年内将国防开支提高到GDP的3.5%左右——是目前水平的两倍多，与美国其他盟友保持一致。 早在2025年11月21日，日本首相高市早苗曾公然发表涉台露骨
+来源公开摘要显示：9月23日，林诗栋赛后接受采访谈及明日与日本队的决赛，他表示将在对方主场放低姿态去拼对手。他评价称，日本队人员实力强，整体厚度是当今最强队伍，松岛、户上等选手都非常有实力。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [现在人的价值观都怎么了？为什么这种视频会有这么多人点赞？](qi-ren-you-tian.md)
-- [蒙古游泳运动员身材](chao-san-mu-si.md)
-- [美科技股集体大跌](dui-niu-tan-qin.md)
-- [高市早苗联大演讲会场空荡荡](mang-ren-mo-xiang.md)
+- [郭宇欣否认违约](qi-ren-you-tian.md)
+- [美方战机飞越致敬](chao-san-mu-si.md)
+- [怎么评价 GPT 6 Sol 泄露的 Codex Desktop 系统提示词？](dui-niu-tan-qin.md)
+- [《异环》黑羽EP丨Timetrial](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
-- [习近平抵美 特朗普夫妇热情迎接](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [中美元首半年内实现互访](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [丰收开新局 实干促振兴](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [任正非与东风汽车总经理冯长军会面，重申华为不造车，释放出哪些信号？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [如何看待日本艺人水桥舞(美依礼芽)离婚一事?](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [习近平：中美应成为伙伴而不是对手](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [日媒称日本青年把吃饭变成「可取消项目」，近四成人每周至少跳过一餐，为啥这会成为一种潮流？会影响健康吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [美方现场鸣放礼炮 战机飞越致敬](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [前NBA球员马布里用“安宁”形容中国](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [沿途人群唱起《我的祖国》欢迎习主席](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [特朗普夫妇机场迎接](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [美科技股集体大跌](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [这家米线店未经允许用我的画进行商业宣传，我要找他麻烦！！](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [王楚钦孙颖莎将对阵张本美和松岛辉空](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [游客山西游玩拍到限定“古风美女”](http://www.daogukj.com/qaspagub/)
-- [Coser 兔娘称不希望粉丝为了签售名额产生没必要的大额消费（买手机），你怎么看？](http://www.daogukj.com/vbdopqig/)
-- [小米18ProMax透明版上手](http://www.daogukj.com/gkqacstr/)
-- [央视解说吐槽「想格斗可以别的项目报名」，如何评价亚运男足中国vs阿联酋下半场对手和裁判的表现？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [打一针管数月的降压疫苗要来了](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [在华盛顿遇见中美人民友谊使者](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [全网最爱发钱老板中秋宴忆母落泪](http://www.daogukj.com/qkmfzgih/)
-- [习近平：中国和美国都是伟大的国家](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [怎么评价 GPT 6 Sol 泄露的 Codex Desktop 系统提示词？](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [马克龙急了](http://www.daogukj.com/pgcqzahm/)
-- [智力越高数值越低，为啥连他都逃不过被削弱的命运？](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [61岁董事长被妻子起诉离婚](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
-- [一张物流网跑出中国加速度](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [福建一中学新规定引发争议「走读生手机不能放家里，也要上交学校」，如何看待此事？学校要求是否合理？](http://www.daogukj.com/5083848)
-- [懒人低成本 快速提高幸福指数的几个冷门思路](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [多家银行存款利息涨了](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [整治物价](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [儿子10岁三年级上学期，写作业出奇的慢，大人也很痛苦，请教各位，我们应该怎么做才能帮助到他？](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [姚明做了7年篮协主席，无法改变中国男篮，中国男篮的病灶到底有多深？未来谁来破局？](http://www.daogukj.com/5655258)
-- [小米18 Pro系列上手体验：骁龙8E6有惊喜？！](http://www.daogukj.com/5414627)
-- [特朗普挥手并目送习近平专车离开](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [LPL 上单杰斯遭遇 11 连败，为何职业战队仍频繁选用？](http://www.daogukj.com/4208506)
-- [专家称美国总统接机非常罕见](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [习近平：中美应成为伙伴而不是对手](http://www.daogukj.com/7752186)
-- [花60W买燃油性能车还有价值吗？奥迪S5 Avant山路测试！](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [“亚洲第一长洞”有新发现](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [一个视频解决所有铁锅粘锅问题](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [医生：不易长结节的人有4个特征](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [王源为了拍汪苏泷同框也是绞尽脑汁](http://www.movie.hkepx.cn/movie/4507886.htm)
-- [习近平抵美 特朗普夫妇热情迎接](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [高市早苗联合国首秀：硬生生给我看笑了](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
-- [腾讯 AI 放弃元宝，全力押注 WorkBuddy 了吗？这次战略转型算成功吗？](http://www.daogukj.com/plfvnmnj/)
-- [蒙古游泳运动员身材](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [『飙马野郎 JOJO的奇妙冒险』 OP Kroi 「SPIN」](http://www.daogukj.com/5346308)
-- [如何看待日本艺人水桥舞(美依礼芽)离婚一事?](http://www.daogukj.com/mwxqddka/)
-- [教育部回应“13岁于子迪亚运夺2金”](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [中美元首半年内实现互访](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [张展硕200自破亚洲纪录夺冠](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [内塔尼亚胡联大演讲多国代表纷纷离场](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [“世事起伏多折，历尽方得华章.”【Shadow Of The Sun-降调】【坚韧不拔の小曲】](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [丰收开新局 实干促振兴](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [跨越太平洋的历史性握手](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [好久不见啊，佐助](http://www.daogukj.com/ictnjmqu/)
-- [中美关系三个没有变](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [怎么看 DeepSeek 的梁文锋署名的Agent 训练论文 DSec？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [豆包员工感慨豆包成边缘产品](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [特朗普遗憾欢迎晚宴座位不够多](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [怎么评价 GPT 6 Sol 泄露的 Codex Desktop 系统提示词？](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [郭宇欣公司长期拖欠演艺报酬](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [新一轮国内油价调整将至](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [这是什么符咒？](http://www.daogukj.com/qaspagub/)
+- [国羽击败日本 时隔12年再获女团冠军](http://www.daogukj.com/vbdopqig/)
+- [暗区突围X少女前线2：追放 联动访谈实录](http://www.daogukj.com/gkqacstr/)
+- [多家车企陆续「分手」宁德并自研电池，这场「供应链突围」是为了压缩造车成本？还是争夺产业话语权？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [特朗普夫人说美方要拿出最高礼遇](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [王楚钦孙颖莎将对阵张本美和松岛辉空](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [六亿七小电驴环游大陆 ep129 以为高级软卧会很舒服，结果一晚上没消停！台湾人坐火车穿越新疆](http://www.daogukj.com/qkmfzgih/)
+- [特朗普夫妇机场迎接](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [打一针管数月的降压疫苗要来了](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [如何看待日本艺人水桥舞(美依礼芽)离婚一事?](http://www.daogukj.com/pgcqzahm/)
+- [A股](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [谭咏麟刘德华李克勤合唱《朋友》](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [卫星互联网低轨26组卫星成功发射](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
+- [特朗普说各领域领军人物都想来欢迎宴会](http://www.daogukj.com/5083848)
+- [篮球佐助技能初爆料！杨瀚森携佐助球风来袭](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
+- [人生第一次骑行4000米海拔！遭遇冰雹大雨幸亏当地居民救我一命！](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [王亚飞属于是巧妇遇到了五常大米了](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [高端酒水为何卖不动了](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [退伍女兵“走路带风”视频爆火](http://www.daogukj.com/5655258)
+- [众星悼念游本昌](http://www.daogukj.com/5414627)
+- [升糖最快的主食不是米饭而是这6种](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [双节假期“菜篮子”有保障](http://www.daogukj.com/4208506)
+- [智力越高数值越低，为啥连他都逃不过被削弱的命运？](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [美总统亲赴机场迎接释放何种讯息](http://www.daogukj.com/7752186)
+- [学者：“敌国条款”删不得也不会删](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [为什么我家的猫每次拉完屎都要跑酷？](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [福建一中学新规定引发争议「走读生手机不能放家里，也要上交学校」，如何看待此事？学校要求是否合理？](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [“世事起伏多折，历尽方得华章.”【Shadow Of The Sun-降调】【坚韧不拔の小曲】](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [8月份疯狂回血111万，峰哥是如何成功自救的？](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [习近平：中美应成为伙伴而不是对手](http://www.movie.hkepx.cn/movie/4528248.htm)
+- [诺贝尔奖好像能保研](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [人民日报评「第一学历歧视」，为何这一现象长期存在？对教育和个人发展有何影响？](http://www.daogukj.com/plfvnmnj/)
+- [美方战机飞越致敬](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [《未眠野》18分钟实机演示](http://www.daogukj.com/5346308)
+- [沿途人群唱起《我的祖国》欢迎习主席](http://www.daogukj.com/mwxqddka/)
+- [游本昌女儿：父亲睡着就去了](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [日媒称日本青年把吃饭变成「可取消项目」，近四成人每周至少跳过一餐，为啥这会成为一种潮流？会影响健康吗？](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [BanG Dream! Our Notes 国际服上线纪念｜Abracadabra – Cover by Ave Mujica](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [射手牢玩家通常非常低调，前期根本不发力](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [9月26日，全新干员研究外观【牧羊人-安魂】登场！](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [美方现场鸣放礼炮 战机飞越致敬](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [日本球迷直言希望王曼昱取胜](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [官网跟不上中国队夺金速度](http://www.daogukj.com/ictnjmqu/)
+- [如何看待《金融时报》指出，乌克兰境内的所有钢铁工业已经被俄罗斯摧毁？](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [『飙马野郎 JOJO的奇妙冒险』 OP Kroi 「SPIN」](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [上海男子长期高血压确诊血管性痴呆，大脑萎缩如80岁，这真的是由熬夜导致的吗？为什么会造成相关损伤？](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [高市早苗在联合国大会呼吁删除「敌国条款」，哪些信息值得关注？](https://www.zhihu.com/question/2086074591688876992)
+- [林诗栋：日本队的厚度当今最强](https://www.baidu.com/s?wd=%E6%9E%97%E8%AF%97%E6%A0%8B%EF%BC%9A%E6%97%A5%E6%9C%AC%E9%98%9F%E7%9A%84%E5%8E%9A%E5%BA%A6%E5%BD%93%E4%BB%8A%E6%9C%80%E5%BC%BA&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6022b9358e8a6931bc9f -->
+<!-- content-fingerprint: a98fc4739ed769733ef2 -->
