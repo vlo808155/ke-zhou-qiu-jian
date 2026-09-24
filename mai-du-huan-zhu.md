@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 很多人只上公立学校，不补课，每年教育预算不到3千，照样考985，照样考清北，你支持“躺平式培养”吗？
+# 我国接受过高等教育的人口达 2.7 亿，这意味着什么？哪些信息值得关注？
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：162 万热度 · 分类：问答 · 更新：2026-09-24T18:31:36+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：128 万热度 · 分类：问答 · 更新：2026-09-24T23:29:01+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“很多人只上公立学校，不补课，每年教育预算不到3千，照样考985，照样考清北，你支持“躺平式培养”吗？”位列第 9 位，公开热度指标为 162 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“我国接受过高等教育的人口达 2.7 亿，这意味着什么？哪些信息值得关注？”位列第 9 位，公开热度指标为 128 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：在国务院新闻办公室今天（23日）举行的“开局起步‘十五五’”系列主题新闻发布会上，教育部相关负责人介绍，目前，我国已建成世界上规模最大且有质量的教育体系，教育普及和公平程度居世界前列。 基础教育达到高收入国家平均水平，学前教育毛入园率达92.9%、义务教育巩固率达96.1%、高中阶段毛入学率达92%，中小学生每天综合体育活动2小时、课间15分钟全面推行，总体近视率连续5年下降。 高等教育服务科技自主创新和人才自主培养能力有效提升，加快培养了一大批国家战略和产业急需的拔尖创新人才，2025年度国家科技三大奖通用项目中高校牵头获奖占3/4，职业教育为现代产业
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [『飙马野郎 JOJO的奇妙冒险』 OP Kroi 「SPIN」](ye-gong-hao-long.md)
-- [纯牛奶里倒出透明液体 董事长道歉](lan-yu-chong-shu.md)
-- [温瑞博vs张本智和](zi-xiang-mao-dun.md)
-- [王楚钦 让二追三](bei-gong-she-ying.md)
+- [《未眠野》18分钟实机演示](ye-gong-hao-long.md)
+- [黑芝麻糊检出霉菌超标27倍 维维回应](lan-yu-chong-shu.md)
+- [早田希娜招架不住被孙颖莎打笑了](zi-xiang-mao-dun.md)
+- [美方战机飞越致敬](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [如何评价腾讯「龙虾」QClaw将正式停止运营，用户可申请退款，也可将数据迁移至WorkBuddy？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [都江堰上空现不明飞行物，气象部门已明确排除系气象探空气球的可能，最有可能是什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [直播间购买的马三三纯牛奶，拆开却是清水，品牌称是测试样品混入，你相信这个解释吗？这算是食品安全事故吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [THE9全员给谢可寅新剧打call](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [王祉怡冲刺拥抱陈雨菲](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [亚运乒乓女团决赛，中国 3-0 横扫日本，豪取亚运六连冠，如何评价本场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [如何评价大伟哥在米哈游2027校园招聘宣讲会上海交通大学专场的演讲？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [什么是教科书级别的饮食？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [中国之队锦标赛友谊赛，中国男足 3-0 马尔代夫，如何评价本场比赛？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [为什么游戏的制作组明明知道玩家不喜欢“通马桶”任务，还要用这类任务塞满游戏？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [《奇遇动物城》游戏首曝PV丨搬进动物城，遇见无限可能](http://www.daogukj.com/9193901)
-- [美方战机飞越致敬](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [美国青年读懂真实立体的中国](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [还在肝破译点数？究极焚决！直接送1w破译点！挟持哈夫克网站！拿满奖励！](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [胡歌发文送别游本昌](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [国家对成品油价格实施调控](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [都江堰上空现不明飞行物，气象部门已明确排除系气象探空气球的可能，最有可能是什么？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [张子宇12投10中](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [荣耀Magic9价格公布](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [纯牛奶里倒出透明液体 董事长道歉](http://www.daogukj.com/1877942)
-- [《缅北讲师》](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [赛力斯回应何时推出问界轿车](http://www.daogukj.com/nuqwxjlx/)
-- [THE9全员给谢可寅新剧打call](http://www.daogukj.com/4054231)
-- [温瑞博1比3张本智和](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [四个直辖市命名的大学，为什么只有上海大学不是985？](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [如何看待《无职转生》第三季第十三集的老鲁迪乌斯剧情，引发了巨大争议？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [《未眠野》18分钟实机演示](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [大学生双节旅游攻略吓退网友](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [特朗普遗憾欢迎宴会座位不够多](http://www.daogukj.com/9193901)
+- [特朗普遗憾欢迎晚宴座位不够多](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [跨越太平洋的青春之桥](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [【逆水寒×盗墓笔记】新角色「张起灵」登场！实机试玩与联动关卡演示](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [热烈欢迎易立竞！看看高智感的易老师在工作中和工作外的好东西！（期待我的笔上易老师的节目🙏](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [张展硕半小时2金](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [如何评价大伟哥在米哈游2027校园招聘宣讲会上海交通大学专场的演讲？](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [篮球佐助技能初爆料！杨瀚森携佐助球风来袭](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [Anthropic 称 Claude 发现类 CRISPR 新型酶系统，这项研究具有哪些意义？](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [黑芝麻糊检出霉菌超标27倍 维维回应](http://www.daogukj.com/1877942)
+- [樊振东中国之壁](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [超市里已经……没有人类了……](http://www.daogukj.com/nuqwxjlx/)
+- [中国之队锦标赛友谊赛，中国男足 3-0 马尔代夫，如何评价本场比赛？](http://www.daogukj.com/4054231)
+- [大熊猫“平平”“福双”将赴美](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [王曼昱3比2逆转张本美和](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [亚运会羽毛球男团决赛，中国 2-3 不敌印尼，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [在家破解¥300一块的上海最贵炸鸡，成本只要...](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [车企的电池供应链到底在怎么变](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
 - [别被这些关于月饼的谣言误导](http://www.daogukj.com/ygpoeeya/)
-- [亚运国乒vs日本](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [“上海化工园区发生大爆炸”不实](http://www.daogukj.com/9246627)
-- [梁王 牛](http://www.daogukj.com/2490072)
-- [升糖最快的主食不是米饭而是这6种](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [央视主持人海霞有新身份](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [9月龄幼崽手脚并用爬山](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [BanG Dream! Our Notes 国际服上线纪念｜Abracadabra – Cover by Ave Mujica](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [王祉怡冲刺拥抱陈雨菲](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [篮球佐助技能初爆料！杨瀚森携佐助球风来袭](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [人民日报评「第一学历歧视」，为何这一现象长期存在？对教育和个人发展有何影响？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [中国vs日本乒乓球男团决赛对阵](http://www.daogukj.com/8715491)
-- [超市里已经……没有人类了……](http://www.daogukj.com/4788107)
-- [亚运会乒乓男子团体决赛，王楚钦让二追三，3-2 击败松岛辉空，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [习近平：中美应成为伙伴而不是对手](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [亚运乒乓球男团决赛，中国 vs 日本，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [伊方天地，伊场奇遇——《伊莫》今日全平台上线](http://www.daogukj.com/3872248)
-- [游本昌临终遗言](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [温瑞博vs张本智和](http://www.daogukj.com/sguhnydl/)
-- [Coser 兔娘称不希望粉丝为了签售名额产生没必要的大额消费（买手机），你怎么看？](http://www.daogukj.com/6123602)
-- [王楚钦 让二追三](http://www.daogukj.com/7243934)
-- [热烈欢迎易立竞！看看高智感的易老师在工作中和工作外的好东西！（期待我的笔上易老师的节目🙏](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [A股三大指数为何集体下挫](http://www.daogukj.com/fgkxwaik/)
-- [在每一个集体中都被排挤的那个同学，你好（阿晴教学篇op/ed）【27】](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [中企与海外伙伴共绘制造业新图景](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [张展硕六金王](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [中秋节多家企业效仿胖东来宠员工](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [林诗栋3比1户上隼辅](http://www.daogukj.com/4800229)
-- [王朱悦回应换脸争议](http://www.daogukj.com/1329201)
-- [王楚钦3比2逆转松岛辉空](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [年轻人真的很擅长让自己幸福](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [直播间购买的马三三纯牛奶，拆开却是清水，品牌称是测试样品混入，你相信这个解释吗？这算是食品安全事故吗？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [国乒女团金牌](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [陌生快递寄来礼品卡？误区要注意](http://www.daogukj.com/9246627)
+- [潮州市住建局回应5公里路面500个井盖，称井盖密度没法更改，真的没法改吗？井盖排布密集是正常的吗？](http://www.daogukj.com/2490072)
+- [广州地铁挤爆了](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [中国小孩哥小孩姐亚运泳池红透半边天](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [升糖最快的主食不是米饭而是这6种](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [平澜起风波 | 书院同窗们，开学啦！](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [为什么游戏的制作组明明知道玩家不喜欢“通马桶”任务，还要用这类任务塞满游戏？](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [二周年彩蛋全流程！一起见证！二洲年快乐！](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [重庆立法「艾滋病感染者应主动告知配偶、与本人有性关系者等」，有哪些意义？解决了哪些问题？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [国羽男团银牌](http://www.daogukj.com/8715491)
+- [在机场当志愿者用六门语言帮助老外是什么体验？！](http://www.daogukj.com/4788107)
+- [山西忻州通报「煤企为抄近道拦腰截断明长城」，将深入调查历年来存在的问题，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [习近平在白宫欢迎仪式上致辞](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [张雪就泰康人寿拒赔一事发声](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [特朗普在白宫举行欢迎仪式](http://www.daogukj.com/3872248)
+- [网友吐槽美团抽成太多，一份25元的外卖商家实际到手收入6.08元，是真的吗？剩下的钱都花在了什么环节？](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [早田希娜招架不住被孙颖莎打笑了](http://www.daogukj.com/sguhnydl/)
+- [多地商场把“C位”留给国之栋梁](http://www.daogukj.com/6123602)
+- [美方战机飞越致敬](http://www.daogukj.com/7243934)
+- [孙颖莎回应国乒女团金牌](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [我把 雀巢 变成美少女 ？？？](http://www.daogukj.com/fgkxwaik/)
+- [亚运男足伊朗 1-4 负于朝鲜，被对手挤出前二惨遭淘汰，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [美国Z世代的“非常中国时刻”](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [张本智和说以前国乒场下还3位高手](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [【三国杀×猪猪侠PV】你好帅气的将军，我叫Bond,GGBond！](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [王楚钦：尽快收拾心情面对后面比赛](http://www.daogukj.com/4800229)
+- [赴一场星河之约，守一段洲年荣光。三角洲二洲年快乐！](http://www.daogukj.com/1329201)
+- [港媒取的标题也太好笑了](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [从小被批评式教育长大，即便成绩优秀也极度自卑，这种教育代价值得承受吗？](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [什么是教科书级别的饮食？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [很多人只上公立学校，不补课，每年教育预算不到3千，照样考985，照样考清北，你支持“躺平式培养”吗？](https://www.zhihu.com/question/2086234571297896020)
+- [我国接受过高等教育的人口达 2.7 亿，这意味着什么？哪些信息值得关注？](https://www.zhihu.com/question/2041277507777843992)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ef460a4d26b15cb04301 -->
+<!-- content-fingerprint: 59fc299fe5af558ecc94 -->
