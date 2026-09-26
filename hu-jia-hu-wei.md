@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【纪录片】中国救护2 02 向未明处去
+# 龙眼外壳发白是打蜡泡药？误区
 
-> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：286455 · 分类：社会·美食·旅行 · 更新：2026-09-26T14:54:31+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6855168 · 更新：2026-09-26T20:06:42+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【纪录片】中国救护2 02 向未明处去”位列第 10 位，公开热度指标为 286455，榜单分类为“社会·美食·旅行”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“龙眼外壳发白是打蜡泡药？误区”位列第 10 位，公开热度指标为 6855168。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：被称作“万事兜底”的医生赵建华和护士张华琴接连遇上心脏骤停。同样是心跳停止，患者的情况、现场条件和留给抢救的时间却各不相同。一次次胸外按压、除颤、判断，再重新出发，“能不能救回来”这个问题，也在一次次抢救中变得越来越具体。另一边，“人机医生”杨子悦和护士梁磊面对的是另一种现场。在高速公路的货车相撞事故中，他们又要在混乱的现场迅速判断伤者情况，决定下一步处置。
+来源公开摘要显示：近日，全国网络辟谣针对“龙眼泡药水致癌、打针增甜”等6大常见误区进行辟谣。真相显示：合规保鲜处理安全无害，打针注糖水会破坏果肉无法储存，同食海鲜无中毒一说，外壳白霜实为天然蜡质保护层。龙眼仅为食疗食材不能替代药物治病。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `社会·美食·旅行`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [月饼和螃蟹一起吃会中毒？假的](yu-mu-hun-zhu.md)
-- [众歌手悼念刘欢](dong-shi-xiao-pin.md)
-- [刘欢和他的时代之歌](han-dan-xue-bu.md)
-- [著名音乐家刘欢于9月25日在上海病逝，享年63岁，如何评价他在华语乐坛的地位？哪首歌是你的时代记忆？](qi-ren-you-tian.md)
+- [刘欢曾救过郑钧](yu-mu-hun-zhu.md)
+- [刘欢妻子：我永远的爱 永远的痛](dong-shi-xiao-pin.md)
+- [著名音乐家刘欢于9月25日在上海病逝，享年63岁，如何评价他在华语乐坛的地位？哪首歌是你的时代记忆？](han-dan-xue-bu.md)
+- [血月升空！丧尸与寄生虫合围缆车！我们能否守住高空避难所！「缆车惊变100天 #4」](qi-ren-you-tian.md)
 
 ## 站内推荐
 
-- [查理斯《绝命糖猪-chalice》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [奥特钥匙!!国庆定档预告](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [配音大赛！！一开口直接全场爆笑！！！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [今天就是中秋节了，希望所有努力的人花好月圆](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [【剧情】长生契（2026）02【方逸伦 / 谢可寅】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [林诗栋蒯曼4比0王楚钦孙颖莎夺冠](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [中美关系定位内涵进一步丰富](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [起猛了 大头儿子长大了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [中国男足战胜泰国队晋级4强](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [如何评价原神7.1版本逐月节任务“银翎溯月，玄鸟结璘”？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中国队 第100金](http://www.daogukj.com/1906233)
-- [多位文艺界人士曾提及刘欢的酒量](http://www.movie.hkepx.cn/movie/8207551.htm)
-- [为什么鸡转头是「一下一下」「瞬移」，而不是像人一样有肉眼可见的转头过程？](http://www.daogukj.com/dztmbdzh/)
-- [中国45小时连发4枚火箭 印媒直呼看懵](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
-- [《微微一笑很倾城》女主换脸后重上流媒体，你观感如何？类似原因下架的作品都能这样「复活」吗？](http://www.movie.hkepx.cn/xiju/7262543.htm)
-- [刘欢在家人陪伴下病逝](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
-- [刘欢丧事从简不举行追悼会](http://www.movie.hkepx.cn/xiju/4947300.htm)
-- [中美共同构建建设性战略稳定关系](http://www.movie.hkepx.cn/xiju/5761043.htm)
-- [刘欢最瘦时只有104斤](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
-- [把中美建设性战略稳定关系转化为行动](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
-- [躲闪摇究极进化闪身步](http://www.movie.hkepx.cn/movie/5688642.htm)
-- [“让我用泥头车宽恕你”](http://www.daogukj.com/jvdbiekb/)
-- [华为 赛力斯](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
-- [刘欢和他的时代之歌](http://www.movie.hkepx.cn/xiju/4016086.htm)
-- [姚贝娜父亲哽咽回应刘欢去世](http://www.movie.hkepx.cn/movie/2656990.htm)
-- [王钰栋遭停赛](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
-- [《鸣潮》共鸣者战斗演示 | 心](http://www.movie.hkepx.cn/movie/6948720.htm)
-- [为什么工作看第一学历不是最高学历？有人说上海一本去河南大概率专科，河南一本去上海能上985，是这样吗？](http://www.movie.hkepx.cn/movie/3077263.htm)
-- [财务自由的感觉是怎样的？](http://www.movie.hkepx.cn/movie/1951037.htm)
-- [张家齐祝贺陈芋汐卢为夺金](http://www.daogukj.com/0012222)
-- [著名音乐家刘欢于9月25日在上海病逝，享年63岁，如何评价他在华语乐坛的地位？哪首歌是你的时代记忆？](http://www.movie.hkepx.cn/movie/6159585.htm)
-- [王楚钦说没有精力了](http://www.movie.hkepx.cn/xiju/3354539.htm)
-- [花小钱办大事是一种怎样的体验？](http://www.movie.hkepx.cn/movie/4882379.htm)
-- [男子全款买房未入住 6年后一看懵了](http://www.movie.hkepx.cn/movie/1975079.htm)
-- [张展硕夺得亚运会男子 400 米自由泳金牌，至此斩获 7 枚金牌，如何评价他的个人表现？](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
-- [陈妤颉夺冠后收到五年高考三年模拟](http://www.movie.hkepx.cn/xiju/1921854.htm)
-- [陪看亚运：U23男足冲4强](http://www.daogukj.com/4901061)
-- [媒体：反“台独”红线前移](http://www.daogukj.com/jetdabgu/)
-- [中美元首白宫互动的五个细节](http://www.daogukj.com/7091816)
-- [四川38岁男子赴泰失联79天获救，称自己「超龄不好卖」被当赠品卖给园区，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/5119801.htm)
-- [胡塞武装称一天对沙特发动两轮袭击](http://www.daogukj.com/eozvjcki/)
-- [中美元首夫妇参观美国国家档案馆](http://www.movie.hkepx.cn/movie/3647409.htm)
-- [刘欢妻子之前透露：他曾隐瞒病情](http://www.daogukj.com/olnmglro/)
-- [那个让全中国跟着唱的人谢幕了](http://www.movie.hkepx.cn/movie/0305763.htm)
-- [唐湘龙评《交锋》：台湾没能力交锋](http://www.movie.hkepx.cn/xiju/5270802.htm)
-- [众歌手悼念刘欢](http://www.daogukj.com/novgnuvs/)
-- [白宫里的三张照片见证中美关系](http://www.movie.hkepx.cn/movie/5479779.htm)
-- [配音大赛！！一开口直接全场爆笑！！！](http://www.daogukj.com/pimnqdhd/)
-- [今天就是中秋节了，希望所有努力的人花好月圆](http://www.movie.hkepx.cn/movie/9614078.htm)
-- [王一博圈速进2分02秒](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
-- [王楚钦之后谁还能扛起国乒大旗？为什么感觉新人都差了那么一点？](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
-- [曝 XboxHelix 纸面算力超 PS6 四成且双双流片，这会对主机竞争带来哪些改变？](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
-- [陈芋汐 双圈全满贯](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
-- [养了17年发现儿子非亲生 男子自缢](http://www.movie.hkepx.cn/xiju/1743642.htm)
-- [中美元首会晤引发热烈国际反响](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
-- [河南矿山老板发钱让加班员工回家](http://www.movie.hkepx.cn/movie/7048621.htm)
-- [特朗普称期待下次会面](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
-- [奥特钥匙!!国庆定档预告](http://www.movie.hkepx.cn/movie/9217518.htm)
-- [那是你心电图！！！](http://www.daogukj.com/mmmeuyql/)
-- [刘欢 63 岁去世，生前长期受股骨头缺血性坏死困扰，该病被称为「不死的癌症」，它会如何逐步拖垮身体？](http://www.movie.hkepx.cn/xiju/2283933.htm)
+- [张本智和淘汰](http://www.daogukj.com/1906233)
+- [亚运会乒乓球混双决赛，王楚钦/孙颖莎 0-4 林诗栋/蒯曼，国乒包揽亚运混双金银牌，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/8207551.htm)
+- [【万字拆解】出生就被判定只能活 30 岁，他赌上全部，打破基因枷锁](http://www.daogukj.com/dztmbdzh/)
+- [林诗栋蒯曼金牌](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
+- [《三角洲行动》上线二洲年回顾](http://www.movie.hkepx.cn/xiju/7262543.htm)
+- [张本智和被淘汰日本电视台立刻换节目](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
+- [亚运会乒乓球男单 1/4 决赛，林诗栋 4-2 松岛辉空晋级男单四强，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/4947300.htm)
+- [中美关系持续稳定发展惠及世界](http://www.movie.hkepx.cn/xiju/5761043.htm)
+- [山东卫视中秋晚会](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
+- [中美元首会晤引发热烈国际反响](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
+- [日本亚组委道歉](http://www.movie.hkepx.cn/movie/5688642.htm)
+- [男子在重庆开车遇到“蛟龙出海”](http://www.daogukj.com/jvdbiekb/)
+- [中美元首白宫互动的五个细节](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
+- [著名音乐家刘欢于9月25日在上海病逝，享年63岁，如何评价他在华语乐坛的地位？哪首歌是你的时代记忆？](http://www.movie.hkepx.cn/xiju/4016086.htm)
+- [刘欢离世前太太曾联系甄嬛传编曲](http://www.movie.hkepx.cn/movie/2656990.htm)
+- [王楚钦孙颖莎vs林诗栋蒯曼](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
+- [中美相互支持对方办好APEC和G20](http://www.movie.hkepx.cn/movie/6948720.htm)
+- [中国男足时隔28年再进亚运四强](http://www.movie.hkepx.cn/movie/3077263.htm)
+- [《月饼守恒定律》](http://www.movie.hkepx.cn/movie/1951037.htm)
+- [菲律宾副总统弹劾案局势反转](http://www.daogukj.com/0012222)
+- [血月升空！丧尸与寄生虫合围缆车！我们能否守住高空避难所！「缆车惊变100天 #4」](http://www.movie.hkepx.cn/movie/6159585.htm)
+- [人民日报用歌词送别刘欢](http://www.movie.hkepx.cn/xiju/3354539.htm)
+- [刘欢今年1月最后一次公开演出](http://www.movie.hkepx.cn/movie/4882379.htm)
+- [亚运会超级冷门](http://www.movie.hkepx.cn/movie/1975079.htm)
+- [当狂犬疫苗进入体内，一场追杀狂犬病毒的反击开始了…..](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
+- [网红狗头萝莉自曝负债 650 万成老赖，主播为何频频陷入天价违约金困境？](http://www.movie.hkepx.cn/xiju/1921854.htm)
+- [现在的消费需求越来越清晰了](http://www.daogukj.com/4901061)
+- [王楚钦之后谁还能扛起国乒大旗？为什么感觉新人都差了那么一点？](http://www.daogukj.com/jetdabgu/)
+- [中美同意共同构建基于尊重、公平、对等的建设性战略稳定关系，这一新定位有哪些深意和影响？](http://www.daogukj.com/7091816)
+- [查理斯《绝命糖猪-chalice》](http://www.movie.hkepx.cn/movie/5119801.htm)
+- [财务自由的感觉是怎样的？](http://www.daogukj.com/eozvjcki/)
+- [华为门店回应与大疆联名Pocket4](http://www.movie.hkepx.cn/movie/3647409.htm)
+- [刘欢去世](http://www.daogukj.com/olnmglro/)
+- [张本智和 3-0 王楚钦，赛后称等这枚金牌等了十年，现在张本智和的水平在哪个层次？对国乒威胁有多大？](http://www.movie.hkepx.cn/movie/0305763.htm)
+- [次元大乱斗！崩玉蓝染VS六道斑！埼玉勇闯地狱！](http://www.movie.hkepx.cn/xiju/5270802.htm)
+- [刘欢妻子：我永远的爱 永远的痛](http://www.daogukj.com/novgnuvs/)
+- [林诗栋王皓疯狂庆祝](http://www.movie.hkepx.cn/movie/5479779.htm)
+- [起猛了 大头儿子长大了](http://www.daogukj.com/pimnqdhd/)
+- [中国男足战胜泰国队晋级4强](http://www.movie.hkepx.cn/movie/9614078.htm)
+- [有酒店推出 369 元自助早餐月卡，可任选 70 种餐品，你愿意去吃吗？为啥酒店开始卖早餐月卡？](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
+- [斑铜](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
+- [评论员：美国希望跟中国走上新台阶](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
+- [五仁月饼成回收香饽饽](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
+- [林诗栋赢下松岛辉空激动飞越围栏](http://www.movie.hkepx.cn/xiju/1743642.htm)
+- [为什么鸡转头是「一下一下」「瞬移」，而不是像人一样有肉眼可见的转头过程？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
+- [浙江男子出生28天就被送养到山东，58年后寻亲成功，比哥哥高一头，山东人每天吃什么？为啥会高出这么多？](http://www.movie.hkepx.cn/movie/7048621.htm)
+- [特朗普：这次访问富有成效](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
+- [中美关系定位内涵进一步丰富](http://www.movie.hkepx.cn/movie/9217518.htm)
+- [孙颖莎获胜后仰天长叹](http://www.daogukj.com/mmmeuyql/)
+- [后 期 无 敌](http://www.movie.hkepx.cn/xiju/2283933.htm)
 
 </details>
 
 ## 原始来源
 
-- [【纪录片】中国救护2 02 向未明处去](https://b23.tv/BV1MahU6eESN)
+- [龙眼外壳发白是打蜡泡药？误区](https://www.baidu.com/s?wd=%E9%BE%99%E7%9C%BC%E5%A4%96%E5%A3%B3%E5%8F%91%E7%99%BD%E6%98%AF%E6%89%93%E8%9C%A1%E6%B3%A1%E8%8D%AF%EF%BC%9F%E8%AF%AF%E5%8C%BA&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8ff3f239d11fa696ef64 -->
+<!-- content-fingerprint: 42317c6b13db708c2704 -->
