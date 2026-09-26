@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《小杨有约30#》：杨迪
+# 新郎哥们装新娘整蛊新郎 被一把推开
 
-> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：921831 · 分类：搞笑 · 更新：2026-09-26T07:15:59+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6761372 · 更新：2026-09-26T09:45:46+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《小杨有约30#》：杨迪”位列第 11 位，公开热度指标为 921831，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“新郎哥们装新娘整蛊新郎 被一把推开”位列第 11 位，公开热度指标为 6761372。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：小杨有约第三十期！ 视频内容纯属娱乐，不要当真～ 你希望在节目里看到谁呢？ 欢迎关注！一键三连也拜托了！！
+来源公开摘要显示：9月24日，吉林一婚礼现场发生趣味一幕。新郎哥们穿上婚纱伪装成新娘整蛊新郎，因系临场发挥，新郎一回头发现不对劲，赶紧一把将其推开。网友调侃称两人挺有夫妻相。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [我怕咬缺了它 爸爸找不到回家的路](qi-ren-you-tian.md)
-- [男子输液后自尽留观室监控曝光](chao-san-mu-si.md)
-- [张雪包机带200人赴意大利观赛](dui-niu-tan-qin.md)
-- [国乒男团 36 年来首次无缘亚运会金牌，客观来看，你认为最大的问题出在哪？](mang-ren-mo-xiang.md)
+- [中国人在写死亡的时候出奇的神](qi-ren-you-tian.md)
+- [乒乓男团亚运丢冠暴露哪些问题](chao-san-mu-si.md)
+- [护士突发脑出血倒在工作岗位，人社局称抢救十天不予认定工伤，为何倒在工位上仍无法认定工伤？](dui-niu-tan-qin.md)
+- [躲闪摇究极进化闪身步](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
-- [中美两国元首夫妇茶叙](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [中国45小时连发4枚火箭 印媒直呼看懵](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [明月映中秋 家国共此声](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [什么叫武直下边挂了一头猪猪？它还捞起来了？？【解说全覆盖46期】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [张远的提词器全是拼音](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [中美元首夫妇参观美国国家档案馆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [怎么评价 DeepSeek Harness 桌面版源码正式上线？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [你们说我像谁我就模仿谁！这一期下料有点猛啊哈哈哈哈](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [四条高铁将开通](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [国安部最新披露](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中美元首夫妇参观美国国家档案馆](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [张雪包机带200人赴意大利观赛](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [国乒男团 排兵布阵质疑](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [特朗普赠中方雕像：我亲自参与设计](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [《绝区零》洛克茜角色展示 | 神秘负棺人](http://www.daogukj.com/qaspagub/)
-- [前TVB花旦唐宁被经纪公司起诉](http://www.daogukj.com/vbdopqig/)
-- [月饼](http://www.daogukj.com/gkqacstr/)
-- [亚运女子100米短跑决赛，陈妤颉夺冠，跑出 11.06 秒​​​​刷新亚运会纪录，如何评价本场对决？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [男乒新老交替阵痛期](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [赛考斯回应出现在欢迎宴会致辞中](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [日本选手被张展硕7枚金牌惊出表情包](http://www.daogukj.com/qkmfzgih/)
-- [特朗普：这次访问富有成效](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [当顾客说我的饭难以下咽](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [如何看待王皓回应男团丢金，称要把坏事变好事，给年轻运动员试错空间？](http://www.daogukj.com/pgcqzahm/)
-- [戚薇造型 致敬蔡明](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [王楚钦不该承受恶劣舆论环境](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [一对大熊猫即将赴美 意味着什么](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [护士突发脑出血倒在工作岗位，人社局称抢救十天不予认定工伤，为何倒在工位上仍无法认定工伤？](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [足球小将核心成员吕凡车祸离世](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [中国游泳30金13银11铜创纪录收官](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [这是蜜月vlog吗？？？【一雨季#07】](http://www.daogukj.com/qaspagub/)
+- [路边彼岸花、银杏果别乱碰](http://www.daogukj.com/vbdopqig/)
+- [2 岁女童站「独立洗澡神器」上被父母独留浴室，误触 70℃ 热水致重度烫伤，如何避免此类悲剧？](http://www.daogukj.com/gkqacstr/)
+- [樊振东回归能解决目前国乒的问题吗？他回归的可能性有多大？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [越南是如何假顺从真利用美关税的](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [中国45小时连发4枚火箭 印媒直呼看懵](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [我，跑酷](http://www.daogukj.com/qkmfzgih/)
+- [中美元首不到半年实现互访 前所未有](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [张雪机车员工晒中秋福利](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [那些家里一夜破产，且负债千万的家庭，最后都怎么样了?](http://www.daogukj.com/pgcqzahm/)
+- [王楚钦 进决赛不容易](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [赛考斯回应出现在欢迎宴会致辞中](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
 - [从一撇一捺看中美青年双向奔赴](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [如何看待 10 后学生走红的 「呆毛」发型，头顶剪一小撮炸起来像海胆？一代人有一代人的发型潮流吗？](http://www.daogukj.com/5083848)
-- [今天抄家 人民的兔娘](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [刚死不久的螃蟹还能吃吗](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [梅姨案被拐孩子钟彬被养父拉黑](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [基辅再次发生剧烈爆炸](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [怎么评价 DeepSeek Harness 桌面版源码正式上线？](http://www.daogukj.com/5655258)
-- [网友710万卖房签合同瞬间泪崩](http://www.daogukj.com/5414627)
-- [17岁陈妤颉 百米飞人大战金牌](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [如何看待各平台所谓「团体赛没有一人两分的义务」「一人一分是本分」「团体赛不能只靠一人」这种说法？](http://www.daogukj.com/4208506)
-- [如果没有《繁花》爷叔这个角色，游本昌会不会就慢慢被遗忘了？](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [白宫欢迎国宴上喝的酒不简单](http://www.daogukj.com/7752186)
-- [【官方中字】尼古喵喵 第12集](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [小孩姐能飞](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [那些家里一夜破产，且负债千万的家庭，最后都怎么样了?](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [弹丸论破，但是真人版](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [王楚钦 4-2 战胜泰国选手普里查扬，晋级亚运会乒乓男单 16 强，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/4507886.htm)
-- [中美两国元首夫妇茶叙](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [这是蜜月vlog吗？？？【一雨季#07】](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [家长带孩子四处求医病因就在家里](http://www.daogukj.com/5083848)
+- [手机拍视频，怎么才能没有“手机感”？｜荣耀Magic9](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
+- [今日份缇宝](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [国乒在日本比赛有多艰难](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [四川宜宾发生4.5级地震](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [“我和尼克松作出了相同的选择”](http://www.daogukj.com/5655258)
+- [刘雯从头到尾又做错了什么](http://www.daogukj.com/5414627)
+- [国乒包揽冠亚军庆祝中秋](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [低糖月饼、文创月饼走俏](http://www.daogukj.com/4208506)
+- [【剧情】长生契（2026）02【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [特朗普：这次访问富有成效](http://www.daogukj.com/7752186)
+- [白宫欢迎国宴上喝的酒不简单](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [月球引发的潮汐力可引起大海潮汐涨落，为什么对人体里的水没有反应？](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [亚运女子100米短跑决赛，陈妤颉夺冠，跑出 11.06 秒​​​​刷新亚运会纪录，如何评价本场对决？](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [2026 热 梗 年 度 总 结 ！！！【上】](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [为了钓冰川变异蓝鳟，我在北极被800只苍蝇追了两天](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [中美元首夫妇参观美国国家档案馆](http://www.movie.hkepx.cn/movie/4528248.htm)
+- [国乒亚运会9月26日赛程](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
 - [美方称中美「贸易休战」延长至明年 1 月，这对世界局势有何影响？](http://www.daogukj.com/plfvnmnj/)
-- [男子输液后自尽留观室监控曝光](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [【非AI】这可能是全网最全实拍冷兵器合集！](http://www.daogukj.com/5346308)
-- [张远的提词器全是拼音](http://www.daogukj.com/mwxqddka/)
-- [朱一龙对卫诗雅唱情歌她老公坐台下](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [中国45小时连发4枚火箭 印媒直呼看懵](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [为什么清华不把打酱油的院系砍掉，专注于理工科?](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [峰哥亡命越南，胡志明一日吃逛vlog](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [糟糕！我的粮食被勋宗抢走了！【神奇组织54】](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [明月映中秋 家国共此声](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [男乒亚运丢冠有何警示](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [戚薇 用小推车推着走红毯](http://www.daogukj.com/ictnjmqu/)
-- [现在买月饼的是买来自己吃的人多，还是买来送人的多？](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [中国游泳队亚运会30金收官，创历史最好成绩，为何中国队游泳队这几年有如此强劲的上升势头？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [王楚钦孙颖莎 混双半决赛](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [乒乓男团亚运丢冠暴露哪些问题](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [今天抄家 人民的兔娘](http://www.daogukj.com/5346308)
+- [国安部最新披露](http://www.daogukj.com/mwxqddka/)
+- [17岁陈妤颉女子百米夺冠](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [怎么评价 DeepSeek Harness 桌面版源码正式上线？](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [我造了一栋可以移动的房子…](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [在食堂吃顿正常的饭就那么难吗！！？](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [闯入无人区，来到地球上最像火星的地方！！](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [你们说我像谁我就模仿谁！这一期下料有点猛啊哈哈哈哈](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [央视秋晚“含川量”满满](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [刘国梁看台静坐目睹失冠](http://www.daogukj.com/ictnjmqu/)
+- [神雕原著中有几条隐藏的暗线？](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [最能打的学渣，用铁拳来整治校园恶霸，终极大战爽翻！爆爽漫改韩剧《学习小组》下](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [为什么清华不把打酱油的院系砍掉，专注于理工科?](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [《小杨有约30#》：杨迪](https://b23.tv/BV1JFaN6hEL9)
+- [新郎哥们装新娘整蛊新郎 被一把推开](https://www.baidu.com/s?wd=%E6%96%B0%E9%83%8E%E5%93%A5%E4%BB%AC%E8%A3%85%E6%96%B0%E5%A8%98%E6%95%B4%E8%9B%8A%E6%96%B0%E9%83%8E+%E8%A2%AB%E4%B8%80%E6%8A%8A%E6%8E%A8%E5%BC%80&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fe0c790956e7617a133e -->
+<!-- content-fingerprint: 57b917e3bfc203af65c3 -->
