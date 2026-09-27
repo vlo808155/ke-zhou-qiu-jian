@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 林诗栋单双打双杀松岛辉空户上隼辅
+# 张雪机车团队在意大利被盗
 
-> 来源：微博热搜 · 排名：第 9 位 · 热度：528722 · 分类：体育 · 更新：2026-09-27T13:41:06+08:00
+> 来源：微博热搜 · 排名：第 9 位 · 热度：363472 · 分类：海外新闻 · 更新：2026-09-27T18:48:10+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“林诗栋单双打双杀松岛辉空户上隼辅”位列第 9 位，公开热度指标为 528722，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“张雪机车团队在意大利被盗”位列第 9 位，公开热度指标为 363472，榜单分类为“海外新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`微博热搜` `实时热搜` `热点资讯` `海外新闻`
 
 ## 相关热点
 
-- [中美元首会晤引发热烈国际反响](nan-yuan-bei-zhe.md)
-- [如何看待厦门一公司宣布中秋国庆连放13.5天假，发放最高2000元旅游基金，并保障员工离线权？](mai-du-huan-zhu.md)
-- [《以片换物- -洗剪吹》 再不疯狂就老了 借一场大笑，释放藏起来的自己。](ye-gong-hao-long.md)
-- [小咬的天敌“花大姐”已抵达战场](lan-yu-chong-shu.md)
+- [美军铺红毯让日本网民破防](nan-yuan-bei-zhe.md)
+- [男子为泄愤拧松他人轿车轮胎螺母获刑三年，从法律角度该如何解读？](mai-du-huan-zhu.md)
+- [高中时同学经常乱吃药](ye-gong-hao-long.md)
+- [8旬老人卖房邻居多次劝退看房者](lan-yu-chong-shu.md)
 
 ## 站内推荐
 
-- [花样文旅点亮中秋假期](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [亚运乒乓球女单](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [袁娅维把微博发到了萨顶顶超话](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [管泽元余霜得女](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [研究生导师把丑话说在前面](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [中国队昂扬向上的精神太动人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [雷军评论区呼吁无防窥版](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [仅退款的风终于吹到了影视界](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [尼泊尔发生雪崩致多人失联](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [刘欢走了 我们怀念的何止是他的歌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李亚鹏现身意大利为张雪机车加油](http://www.daogukj.com/dzgfjkrf/)
-- [店员称不堪骚扰偷加高度酒灌醉顾客](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
-- [九天揽月、向海筑能！多项工程获突破](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
-- [安东尼奥带领的U23国足向来是防守强进攻弱，为何他们能在亚运会淘汰赛压着泰国打，取得酣畅胜利？](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
+- [为什么天津两所985高校排名一直在下降？](http://www.daogukj.com/dzgfjkrf/)
+- [李克勤演唱会迟到救场歌手发声](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
+- [期待中美青年继续友好交流](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
+- [我们尝试用AI造了一个时空](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
 - [【独家】牧神记 第102集 大尊](http://www.daogukj.com/3970663)
-- [亚运颁奖现场升起两面五星红旗](http://www.movie.hkepx.cn/movie/5367817.htm)
-- [中美元首会晤引发热烈国际反响](http://www.daogukj.com/bcavubqj/)
-- [TES在VCTCN都算战神！无畏契约上海冠军赛门全员光头，一把不赢！【1酱赛评】](http://www.daogukj.com/8795484)
-- [茅台新品1分钟售罄 定价2199元](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
-- [《千万次的问》33年后答案是什么](http://www.movie.hkepx.cn/xiju/9388208.htm)
-- [交强险经营亏损两百多亿](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
-- [陪看：亚运乒乓巅峰对决](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
-- [台湾社会要读懂中美元首会晤意义](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
-- [井柏然 恨我的继续爱我的别停](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
-- [国乒男双无缘会师决赛](http://www.daogukj.com/3703920)
-- [人民日报用歌词送别刘欢](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
-- [132名领导手机号公开 不只是敢接电话](http://www.daogukj.com/akojpuxw/)
-- [甜瓜琵琶曲#高质量手搓 🤓](http://www.movie.hkepx.cn/movie/0307482.htm)
-- [温瑞博向鹏遭逆转](http://www.movie.hkepx.cn/xiju/4985219.htm)
-- [如何看待厦门一公司宣布中秋国庆连放13.5天假，发放最高2000元旅游基金，并保障员工离线权？](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
-- [北京天空出现丁达尔光瀑](http://www.daogukj.com/sqbgfepf/)
-- [伊朗选手冲日本教练面前疯狂庆祝](http://www.daogukj.com/0772573)
-- [为什么天津两所985高校排名一直在下降？](http://www.daogukj.com/iaiklsqf/)
-- [《三角洲行动》群星计划—代号：威龙](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
-- [河南一技校101名毕业生入职北大](http://www.daogukj.com/iejdmdav/)
-- [问界每车十三万溢价去哪了](http://www.daogukj.com/3595629)
-- [时隔 7 年，在大银幕重看《复仇者联盟 4：终局之战》，你有哪些新的感受？](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
-- [【苏星河车机】别急着说你用过豆包，我这个你真没见过](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
-- [许兰香喂林锦岐吃骡子剩的红糖](http://www.daogukj.com/7736560)
-- [既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
-- [这个小长假你是怎么度过的](http://www.daogukj.com/9580900)
-- [丘成桐等人利用ai辅助为所有 7 维奇异球构造了正截面曲率度量，这个结果意味着什么？](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
-- [麻辣王子大幅广告惊现意大利米兰](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
-- [如何评价文章「让本科生做回本科生」？](http://www.daogukj.com/lsbolopb/)
-- [小咬的天敌“花大姐”已抵达战场](http://www.daogukj.com/ssuxjwef/)
-- [时间不多喽](http://www.daogukj.com/ukxzmdih/)
-- [【纪录片】中国救护2 02 向未明处去](http://www.movie.hkepx.cn/movie/0461195.htm)
-- [为什么这次名古屋亚运会，围棋象棋这些棋类项目全部都取消了？](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
-- [北京释放7亿只小蜂治毛毛虫](http://www.movie.hkepx.cn/movie/9527500.htm)
-- [亚运会男足成绩历史性追上男篮，两个项目发展的走势是来到了交叉点吗？](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
-- [天安门看升旗 香港女孩写下8个震惊](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
-- [男子因长期食用生鱼片，感染阔节裂头绦虫，体内排出 4.5 米长虫，为什么能这么长？对身体危害有多大？](http://www.daogukj.com/hvfyixhj/)
-- [美国每年只存在七天的城市，黑石城！](http://www.movie.hkepx.cn/movie/4719114.htm)
-- [胡歌3岁女儿近照](http://www.daogukj.com/jollzwuo/)
-- [【说唱】不是，酒保怎么比我先醉啊…](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
-- [温瑞博向鹏遭张本组合逆转无缘决赛](http://www.movie.hkepx.cn/movie/4200387.htm)
-- [亚运乒乓球女单](http://www.movie.hkepx.cn/xiju/0668299.htm)
-- [袁娅维把微博发到了萨顶顶超话](http://www.movie.hkepx.cn/xiju/2277955.htm)
-- [【立志成为恶兽】05 我有一个拯救村庄的计划【UP动画】【HiShorts! × updream AI短片大赛-剧情单元】](http://www.daogukj.com/7974348)
-- [伊朗选手打赢张本冲日本教练面前庆祝](http://www.movie.hkepx.cn/xiju/6045140.htm)
+- [为什么说原谅别人其实是放过自己？](http://www.movie.hkepx.cn/movie/5367817.htm)
+- [美军铺红毯让日本网民破防](http://www.daogukj.com/bcavubqj/)
+- [金鹰节开幕式节目单](http://www.daogukj.com/8795484)
+- [张雪机车团队多人在意大利被盗](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
+- [如果毛文龙未被杀，明朝的命运会不会有所不同？](http://www.movie.hkepx.cn/xiju/9388208.htm)
+- [王一博车组获冠军](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
+- [李克勤迟到 草根歌手救场连唱20首](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
+- [交个朋友直播间被曝卖病死鱼，罗永浩连发 16 条内容辟谣，具体是怎么回事？](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
+- [近三个月二十余位资深文艺界人士辞世](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
+- [孙颖莎王曼昱会师决赛](http://www.daogukj.com/3703920)
+- [多位网友称被手机钢化膜扎伤，且碎渣很难处理，钢化膜真的这么危险吗？有哪些好的碎渣清理办法？](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
+- [陪看：男双中日决战](http://www.daogukj.com/akojpuxw/)
+- [《三角洲行动》群星计划—代号：深蓝](http://www.movie.hkepx.cn/movie/0307482.htm)
+- [赢了张本智和的反手绝活哥什么来头](http://www.movie.hkepx.cn/xiju/4985219.htm)
+- [男子为泄愤拧松他人轿车轮胎螺母获刑三年，从法律角度该如何解读？](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
+- [尼泊尔发生雪崩 多人失联](http://www.daogukj.com/sqbgfepf/)
+- [工作人员将液体面料喷向模特](http://www.daogukj.com/0772573)
+- [亚运会乒乓球女单半决赛，孙颖莎 4-1 早田希娜，中国提前包揽女单冠军，如何评价本场比赛？](http://www.daogukj.com/iaiklsqf/)
+- [歌手洪楗华病逝 年仅49岁](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
+- [媒体评3分钟内申请退票扣费75%](http://www.daogukj.com/iejdmdav/)
+- [孙千 剧粉](http://www.daogukj.com/3595629)
+- [硬核，不是说说而已](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
+- [OpenAI再暂停最先进模型训练](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
+- [乒乓球](http://www.daogukj.com/7736560)
+- [将大局逆转吧！](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
+- [劣质椅子翻车 罗永浩：东方甄选卖更多](http://www.daogukj.com/9580900)
+- [Ai短片｜《标签》｜如果标签上的字都变成现实？](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
+- [为什么这次名古屋亚运会，围棋象棋这些棋类项目全部都取消了？](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
+- [男子因长期食用生鱼片，感染阔节裂头绦虫，体内排出 4.5 米长虫，为什么能这么长？对身体危害有多大？](http://www.daogukj.com/lsbolopb/)
+- [8旬老人卖房邻居多次劝退看房者](http://www.daogukj.com/ssuxjwef/)
+- [《崩坏：星穹铁道》真珠角色PV——「如何描绘一种希望」](http://www.daogukj.com/ukxzmdih/)
+- [【剧情】长生契（2026）07【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/movie/0461195.htm)
+- [消失的队友二](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
+- [陈妤颉200米摘银](http://www.movie.hkepx.cn/movie/9527500.htm)
+- [戒赌吧覆灭！1400万赌徒抱团救赎，吧主将他们卖给赌场！【神奇组织17】](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
+- [王者亚运中国队晋级四强](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
+- [一技校101名毕业生入职北大，学生一般大二就被预订，主要去实验室做科研助手，这是一种怎样的职业路径？](http://www.daogukj.com/hvfyixhj/)
+- [男子修手机发现相册被使用15分钟](http://www.movie.hkepx.cn/movie/4719114.htm)
+- [李亚鹏现身意大利为张雪机车加油](http://www.daogukj.com/jollzwuo/)
+- [没人会记得神作之下的第二名，除非那一年都是逆天神梗！](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
+- [国乒提前锁定女单金银牌](http://www.movie.hkepx.cn/movie/4200387.htm)
+- [雷军评论区呼吁无防窥版](http://www.movie.hkepx.cn/xiju/0668299.htm)
+- [仅退款的风终于吹到了影视界](http://www.movie.hkepx.cn/xiju/2277955.htm)
+- [中秋返程](http://www.daogukj.com/7974348)
+- [中美达成300亿美元对等降税有何意义](http://www.movie.hkepx.cn/xiju/6045140.htm)
 
 </details>
 
 ## 原始来源
 
-- [林诗栋单双打双杀松岛辉空户上隼辅](https://s.weibo.com/weibo?q=%E6%9E%97%E8%AF%97%E6%A0%8B%E5%8D%95%E5%8F%8C%E6%89%93%E5%8F%8C%E6%9D%80%E6%9D%BE%E5%B2%9B%E8%BE%89%E7%A9%BA%E6%88%B7%E4%B8%8A%E9%9A%BC%E8%BE%85)
+- [张雪机车团队在意大利被盗](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%AA%E6%9C%BA%E8%BD%A6%E5%9B%A2%E9%98%9F%E5%9C%A8%E6%84%8F%E5%A4%A7%E5%88%A9%E8%A2%AB%E7%9B%97)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ae9dd6608aea4b416fa9 -->
+<!-- content-fingerprint: 567fd5878601ba5faa4f -->
