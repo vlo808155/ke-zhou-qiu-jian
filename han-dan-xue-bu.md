@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 王曼昱蒯曼首局打出11‑0
+# 杭州女子每月花3000元跨省2小时去上海上班，称「算了笔账总体是划算的」，真划算吗？怎样看待她的选择？
 
-> 来源：今日头条热榜 · 排名：第 11 位 · 热度：4469738 · 分类：热门事件 · 更新：2026-09-28T22:33:34+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：130 万热度 · 分类：问答 · 更新：2026-09-29T04:46:32+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“王曼昱蒯曼首局打出11‑0”位列第 11 位，公开热度指标为 4469738，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“杭州女子每月花3000元跨省2小时去上海上班，称「算了笔账总体是划算的」，真划算吗？怎样看待她的选择？”位列第 11 位，公开热度指标为 130 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，浙江杭州临平一小伙记录了自己每天跨省上班的极限操作，在网络上爆火，跟他有相同经历的上班族居然还有不少。 据了解，谭同学每天早上6点从临平的家出发，经过1小时高铁，再换乘地铁，大概9点前能抵达上海公司。 他每月的通勤费用是3000多元，其实这个钱在上海也能租房，但是地段偏，面积小，通勤时间成本依然很高，还不如生活在临平有性价比。 还有位临平姑娘和小谭一样，也是每天跨省坐高铁去上海上班，她每天5:30起床，先开车到地铁站，再乘高铁换地铁，最后还要骑一段共享单车。 据了解，临平姑娘小林从事广告行业，她原本是在滨江上班，每天赶早高峰坐地铁去滨江，差不多要花
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [我国南疆塔克拉玛干沙漠发现两处大型地下水水源，这意味着什么？将对当地生态和经济带来哪些影响？](qi-ren-you-tian.md)
-- [蛙跳爬泰山](chao-san-mu-si.md)
-- [美国币圈华人女高管自杀](dui-niu-tan-qin.md)
-- [何猷君妈妈感谢奚梦瑶](mang-ren-mo-xiang.md)
+- [⚡️她连唐笑都在调上⚡️](qi-ren-you-tian.md)
+- [教育部：坚决拥护党中央决定](chao-san-mu-si.md)
+- [2岁娃疑连吃8个月银鳕鱼汞中毒](dui-niu-tan-qin.md)
+- [成方圆追忆刘欢：发微信再没等到回复](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
 - [陈妤颉再添一金](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [越来越多欧洲消费者选择中国电动车](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [问界留下的位置智界接得住吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [荣耀CEO听到新机销量笑到合不拢嘴](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [女双夺冠后侯英超连说6个棒](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [国常会研究出台稳定房地产市场政策](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [怎么看 OpenAI 的 Pro 订阅取消 5x 和 20x 的描述？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [如何评价2026年9月米哈游《原神》7.1版本，冰神冰之女皇戏份？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [有网友在雷军评论区下呼吁小米 18 系列推出无防窥版，防窥屏真的很影响体验吗？有啥解决的办法吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [百元一斤大闸蟹节后价格降一半](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [美国币圈华人女高管自杀](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [如何评价吴艳妮夺铜后发言「起跑慢因三年前的阴影，我没有被挫折和网暴打败」？](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [购房者加价抢购上海“老破小”](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [2岁娃疑连吃8个月银鳕鱼汞中毒](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [你管这叫只会一点点？？？](http://www.movie.hkepx.cn/xiju/9704910.htm)
 - [林诗栋4-0王楚钦夺冠](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [奚梦瑶答谢宴上的明星](http://www.daogukj.com/qaspagub/)
-- [余承东称用行业最高标准打造享界V8](http://www.daogukj.com/vbdopqig/)
-- [华鼎奖](http://www.daogukj.com/gkqacstr/)
-- [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [王曼昱蒯曼11比0](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [自制【飞行滑板】体感控制，科幻进入现实](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [鸿蒙智行“五界”品牌顺序重排](http://www.daogukj.com/qkmfzgih/)
-- [王楚钦：这是我最后一届亚运会](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [A股为何意外破位下跌](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [山姆回应面包吃出蛆](http://www.daogukj.com/pgcqzahm/)
-- [怎么看待超长蛋挞的爆红？](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [Free Hug（挽袖子版）](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
-- [中美人工智能政府间对话](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [我觉得乾隆的字挺好看呀，为什么在书法界评价很低？](http://www.daogukj.com/5083848)
+- [李克勤帮唱歌手侯浪：骑着小黄车救场](http://www.daogukj.com/qaspagub/)
+- [袁绍三个儿子中谁的能力最突出？能在他死后守住袁家霸业？](http://www.daogukj.com/vbdopqig/)
+- [电池越来越便宜 电车为何仍然修不起](http://www.daogukj.com/gkqacstr/)
+- [怎么看待超长蛋挞的爆红？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [日媒惊呼中国队出了怪物级天才](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [老人拍照半分钟被弹窗近20次](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [《无可替代》拿下全国收视第一](http://www.daogukj.com/qkmfzgih/)
+- [骗子骗了8省11地超1亿元补贴](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [华鼎奖提名名单](http://www.daogukj.com/pgcqzahm/)
+- [😨“后室里的乌鲁鲁2”😰](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [张本美和4项全输给中国队](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [平平福双已运至亚特兰大动物园](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
+- [迈克尔.韩立 《不凡》天南巡回演唱会【AI MV大赛】](http://www.daogukj.com/5083848)
 - [三幻魔集结！超越神的力量！【水无月菌】](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [河北衡水融入首都一小时通勤圈](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [亚运会乒乓球女双决赛，王曼昱/蒯曼 4-0 战胜张本美和/早田希娜夺得金牌，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [林诗栋：没想到能4比0王楚钦](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [王楚钦本届亚运会一金未拿，怎样评价他的状态？打法上可能有哪些问题？](http://www.daogukj.com/5655258)
-- [亚奥理事会回应「电子竞技项目将退出亚运会」，称传闻与工作安排不符，具体是怎么回事？](http://www.daogukj.com/5414627)
-- [老人拍照半分钟被弹窗近20次](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [SpaceX 星舰第 14 次试飞，首次成功进入地球轨道，有哪些看点值得关注？](http://www.daogukj.com/4208506)
-- [中国男子百米接力金牌](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [武契奇总统任期最后一天深情祝福中国](http://www.daogukj.com/7752186)
-- [迈克尔.韩立 《不凡》天南巡回演唱会【AI MV大赛】](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [购房者加价抢购上海“老破小”](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [“星舰”第14次试飞](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [林诗栋说王楚钦疲惫有伤](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [李蠕蠕收入比娱乐圈很多人高](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [印、美联合团队研究称「混凝土中掺入人粪，抗折强度提高 42%」，如何理解该研究的理论和现实意义？](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [《三角洲行动》群星计划—代号：蝶](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [网上都说计算机炸了，为什么现实中一堆转专业到计算机的？](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [六十无拘 六十而已](http://www.daogukj.com/5655258)
+- [《阴阳师》玩家主题曲：《平安拾光物语》](http://www.daogukj.com/5414627)
+- [“这三天谁能有心思上班”](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [蛙跳爬泰山](http://www.daogukj.com/4208506)
+- [12306辟谣后台发信息就能抢到票](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [中国为何将自美进口煤炭纳入降税框架](http://www.daogukj.com/7752186)
+- [中国队女子4×100米接力夺金](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [何猷君妈妈感谢奚梦瑶](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [兰香如故韩粱被冻死了](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [林诗栋：没想到能4比0王楚钦](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [邓亚萍预测至少要跟日本运动员打10年](http://www.movie.hkepx.cn/movie/4507886.htm)
 - [陈妤颉再添一金](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [【补档】CN零杠八单曲《大家一起十六强》完整版](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [【特效向】蔡徐坤vs全明星 第二季](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
 - [2026亚运会乒乓球男单决赛，林诗栋 4-0 王楚钦夺得金牌，如何评价本场比赛？](http://www.daogukj.com/plfvnmnj/)
-- [蛙跳爬泰山](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [假如🤔...全世界发量下降一万倍，而俺不变！](http://www.daogukj.com/5346308)
-- [女双夺冠后侯英超连说6个棒](http://www.daogukj.com/mwxqddka/)
-- [真的有人这样旅游吗？？？【雷霆姐妹花3】](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [越来越多欧洲消费者选择中国电动车](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [星舰成功入轨](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [医生称医保局把医护当小偷](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [教育部：坚决拥护党中央决定](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [【补档】CN零杠八单曲《大家一起十六强》完整版](http://www.daogukj.com/5346308)
+- [有网友在雷军评论区下呼吁小米 18 系列推出无防窥版，防窥屏真的很影响体验吗？有啥解决的办法吗？](http://www.daogukj.com/mwxqddka/)
+- [小学自愿捐款装空调却实名接龙](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [国常会研究出台稳定房地产市场政策](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [荣耀CEO听到新机销量笑到合不拢嘴](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [薛剑：日本在反华厌华方面获世界冠军](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
 - [《原神》六周年主题曲《风的来信》](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [问界留下的位置智界接得住吗](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [三个两亿像素？OPPO Find X10 Pro Max上手](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [张雪机车团队多人在意大利被盗，所乘大巴车遭盗匪光顾，为啥意大利的小偷这么猖獗？没有能惩治他们的办法吗？](http://www.daogukj.com/ictnjmqu/)
-- [年轻人迷上废弃矿坑](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [如何评价《新大头儿子》系列电影被网友吐槽画风诡异、大头儿子像「鬼火少年」？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [华鼎奖提名名单](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [怎么看 OpenAI 的 Pro 订阅取消 5x 和 20x 的描述？](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [王曼昱蒯曼11比0](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [第一视角带你沉浸式体验修家电师傅的一天](http://www.daogukj.com/ictnjmqu/)
+- [张家齐 你和我妈一样篡改记忆](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [体育总局局长表示，亚运会部分传统优势项目遇到挑战，成绩不及预期，可能有哪些原因？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [王楚钦 名古屋亚运会](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [王曼昱蒯曼首局打出11‑0](https://www.toutiao.com/trending/7689675683479686698/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227689675683479686698%22%2C%22hot_board_impr_id%22%3A%22202609282233323870E1D2EC3DDA9E11BB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [杭州女子每月花3000元跨省2小时去上海上班，称「算了笔账总体是划算的」，真划算吗？怎样看待她的选择？](https://www.zhihu.com/question/2087928868850112302)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: abc02a48531d3f8d32b3 -->
+<!-- content-fingerprint: 3e3a835a45237aafda2e -->
