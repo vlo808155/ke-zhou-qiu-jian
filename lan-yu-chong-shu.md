@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 教育部原副部长鲁昕被查
+# 购房者加价抢购上海“老破小”
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6948552 · 更新：2026-09-28T14:43:21+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6952309 · 更新：2026-09-28T22:33:34+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“教育部原副部长鲁昕被查”位列第 9 位，公开热度指标为 6948552。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“购房者加价抢购上海“老破小””位列第 9 位，公开热度指标为 6952309。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：目前，教育部原党组成员、副部长鲁昕涉嫌严重违纪违法，正接受中央纪委国家监委纪律审查和监察调查。
+来源公开摘要显示：截至9月26日，9月上海新房累计销售9717套，同比上涨22%，多盘首开“日光”后加推仍一房难求。二手房“捡漏”难现，甚至有购房者加价抢购“老破小”，一套30余平米房源最终加价5万元成交。分析师判断，上海楼市已进入止跌回稳阶段，未来或现“量稳价涨”行情。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [王楚钦vs阿拉米扬](zi-xiang-mao-dun.md)
-- [腾势总经理称有能力做1200公里续航](bei-gong-she-ying.md)
-- [如果选择一处古迹或古遗址，来回答我们为什么要访古，你会选择哪一个？为什么？](jing-gong-zhi-niao.md)
-- [《纯粹の体育精神》](hu-jia-hu-wei.md)
+- [中国男子百米接力金牌](zi-xiang-mao-dun.md)
+- [12306辟谣后台发信息就能抢到票](bei-gong-she-ying.md)
+- [体育总局局长表示，亚运会部分传统优势项目遇到挑战，成绩不及预期，可能有哪些原因？](jing-gong-zhi-niao.md)
+- [2026年10-12月国创秋季导视-哔哩哔哩版权国创](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [亚运乒乓球女双中日争冠](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [“严一枪”投哭日本奥运冠军](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [高晓松忆刘欢：郑钧车祸 他穿睡袍救人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [火腿肠也卖不动了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [谁来管管现在的小说](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [百元一斤大闸蟹节后价格降一半](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [中国队女子4×100米接力夺金](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [美国币圈华人女高管自杀](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [“这三天谁能有心思上班”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [又一批人坐上黄金的过山车](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [欧洲人发现：中国车真香](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [前租客搬走后孩子独居房东陷收房难](http://www.daogukj.com/axnomarx/)
-- [对手穿错鞋子 中国队递补获得金银牌](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [林诗栋王楚钦会师决赛](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [谁更吃力，谁更省力](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [张雪团队被盗6个包破案无进展](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [中美「300亿对300亿」对等降税框架公布，超90%产品将享受最惠国关税待遇，将带来哪些利好？](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [谭松韵下个组可以提上议程了](http://www.daogukj.com/9955752)
-- [美民众热烈期盼大熊猫重返亚特兰大](http://www.movie.hkepx.cn/movie/6160167.htm)
-- [《原神》六周年主题曲《风的来信》](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [智界 RX及鸿蒙智行新品发布会](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [佘诗曼食物中毒 体重不足90斤](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [连续三年不进世界赛，天价投入打水漂，JDG到底做错了什么？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [假如成年男性先占据优势体位，锁喉住成年老虎，有可能杀死老虎么？几率多大？](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [老字号新顶流](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [巴基斯坦和土耳其会下场帮沙特吗](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [国际舆论积极评价中美元首会晤](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [国乒提前锁定男单冠亚军](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [林诗栋vs林昀儒](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [孙千工作室 烦心事够多了](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [博士就业，感觉二本待遇不差还轻松，为什么去985/211呢？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [如何评价李诞与王祖贤的对谈？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [《兰香如故》好看吗](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [今年中秋国庆假期间仅隔 3 天，你有成功请到这 3 天的假吗？在这 3 天上班的人计划怎么「熬」过去？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [火腿肠也卖不动了](http://www.daogukj.com/2395514)
-- [亚运冠军“小孩姐”归来还是高三生](http://www.daogukj.com/6574038)
-- [【STN快报第8.5季22】史上最刀发布会，玩家看完纷纷感叹太刀了](http://www.daogukj.com/ajcuxydy/)
-- [游本昌去世前两三天选择不吃不喝](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [谁来管管现在的小说](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [华为mate90](http://www.daogukj.com/cfeqrkjc/)
-- [当双方互相以为对方是同行3](http://www.daogukj.com/rkkegwyy/)
-- [“严一枪”投哭日本奥运冠军](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [如果选择一处古迹或古遗址，来回答我们为什么要访古，你会选择哪一个？为什么？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [王曼昱蒯曼将与日本组合争冠](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [腾势总经理称有能力做1200公里续航](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [为什么厂家不把预制菜直接卖给c端用户？省得我叫外卖了?](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [无糖月饼可敞开吃？小心误区](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [3秒一个水晶，廉颇超快的推塔速度](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [蛙跳爬泰山](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [林诗栋王楚钦会师男单决赛](http://www.daogukj.com/8099191)
-- [秋裤预警 北京最低气温或降到个位数](http://www.daogukj.com/vrvcskzj/)
-- [张本智和：中国赛前训练长日本训练少](http://www.daogukj.com/lbbxrvry/)
-- [《三角洲行动》群星计划—代号：威龙](http://www.daogukj.com/9295095)
-- [易烊千玺开设罤外专属账号](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [地表最强小孩姐距人类极限半步之遥](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [换电池小卡扣要13万接近车价一半](http://www.daogukj.com/7435478)
-- [王楚钦半决赛对手曾赢王励勤林高远](http://www.daogukj.com/kwdurrnw/)
-- [《三角洲行动》群星计划—代号：蝶](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [女子每月花3000元跨省2小时上班：划算](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [高晓松忆刘欢：郑钧车祸 他穿睡袍救人](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [山姆回应面包吃出蛆](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [巴黎时装周](http://www.daogukj.com/axnomarx/)
+- [王楚钦：这是我最后一届亚运会](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [星舰成功入轨](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [真的有人这样旅游吗？？？【雷霆姐妹花3】](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [荣耀CEO听到新机销量笑到合不拢嘴](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [怎么看待超长蛋挞的爆红？](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [华鼎奖提名名单](http://www.daogukj.com/9955752)
+- [美民众热切期待见到“平平”“福双”](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [三幻魔集结！超越神的力量！【水无月菌】](http://www.movie.hkepx.cn/xiju/3768366.htm)
+- [女孩中秋节离世 母亲称不愿再过中秋](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [成方圆追忆刘欢：发微信再没等到回复](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [SpaceX 星舰第 14 次试飞，首次成功进入地球轨道，有哪些看点值得关注？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [曝携程推新规鼓励「无理由事假」，员工休1天无理由事假，团队得600元团建经费，如何看待这种激励方式？](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [中美人工智能政府间对话](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [女双夺冠后侯英超连说6个棒](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [美中加强农业合作是双赢之举](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [林诗栋4比0王楚钦男单夺冠](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [王楚钦说这是自己最后一届亚运会](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [谢震业接力金牌](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [亚运会乒乓球女双决赛，王曼昱/蒯曼 4-0 战胜张本美和/早田希娜夺得金牌，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [如何评价《新大头儿子》系列电影被网友吐槽画风诡异、大头儿子像「鬼火少年」？](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [袁娅维洛杉矶演唱会落泪悼念刘欢](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [为什么厂家不把预制菜直接卖给c端用户？省得我叫外卖了?](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [“这三天谁能有心思上班”](http://www.daogukj.com/2395514)
+- [鸿蒙智行“五界”品牌顺序重排](http://www.daogukj.com/6574038)
+- [二洲年音乐会｜†TAKEDISKRUSH!†](http://www.daogukj.com/ajcuxydy/)
+- [SK海力士、闪迪跌超5%](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [又一批人坐上黄金的过山车](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [女顾客吐槽Tiffany后账号被限制](http://www.daogukj.com/cfeqrkjc/)
+- [【补档】CN零杠八单曲《大家一起十六强》完整版](http://www.daogukj.com/rkkegwyy/)
+- [中国队女子4×100米接力夺金](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [体育总局局长表示，亚运会部分传统优势项目遇到挑战，成绩不及预期，可能有哪些原因？](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [河北衡水融入首都一小时通勤圈](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [12306辟谣后台发信息就能抢到票](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [亚奥理事会回应「电子竞技项目将退出亚运会」，称传闻与工作安排不符，具体是怎么回事？](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [问界留下的位置智界接得住吗](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [延续外观，影像升级？vivo X500 Pro Max 上手](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [迈克尔.韩立 《不凡》天南巡回演唱会【AI MV大赛】](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [林诗栋4-0王楚钦夺冠](http://www.daogukj.com/8099191)
+- [林诗栋：没想到能4比0王楚钦](http://www.daogukj.com/vrvcskzj/)
+- [越来越多欧洲消费者选择中国电动车](http://www.daogukj.com/lbbxrvry/)
+- [⚡️她连唐笑都在调上⚡️](http://www.daogukj.com/9295095)
+- [医生称医保局把医护当小偷](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [“星舰”第14次试飞](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [王楚钦说下次我try](http://www.daogukj.com/7435478)
+- [华为高管回应车企钱都被华为赚走](http://www.daogukj.com/kwdurrnw/)
+- [“钻玉米地”不划脸教程](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [王曼昱蒯曼11比0](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [美国币圈华人女高管自杀](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [教育部原副部长鲁昕被查](https://www.baidu.com/s?wd=%E6%95%99%E8%82%B2%E9%83%A8%E5%8E%9F%E5%89%AF%E9%83%A8%E9%95%BF%E9%B2%81%E6%98%95%E8%A2%AB%E6%9F%A5&sa=fyb_news&rsv_dl=fyb_news)
+- [购房者加价抢购上海“老破小”](https://www.baidu.com/s?wd=%E8%B4%AD%E6%88%BF%E8%80%85%E5%8A%A0%E4%BB%B7%E6%8A%A2%E8%B4%AD%E4%B8%8A%E6%B5%B7%E2%80%9C%E8%80%81%E7%A0%B4%E5%B0%8F%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8e74eeb9b48726924895 -->
+<!-- content-fingerprint: a9d4011cd20524a1937a -->
