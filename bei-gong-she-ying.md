@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 王楚钦称这是他最后一届亚运会，下个周期谁来扛国乒大旗？有哪些新星值得关注？
+# 天山深处崛起「世界最高坝」大石峡水利枢纽，为什么要在干旱缺水的新疆戈壁中截流造个大水库？建起来有多难？
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：103 万热度 · 分类：问答 · 更新：2026-09-29T08:45:15+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：121 万热度 · 分类：问答 · 更新：2026-09-29T14:16:58+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“王楚钦称这是他最后一届亚运会，下个周期谁来扛国乒大旗？有哪些新星值得关注？”位列第 10 位，公开热度指标为 103 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“天山深处崛起「世界最高坝」大石峡水利枢纽，为什么要在干旱缺水的新疆戈壁中截流造个大水库？建起来有多难？”位列第 10 位，公开热度指标为 121 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月28日，名古屋亚运会乒乓球男子单打决赛，中国选手林诗栋4-0战胜王楚钦夺得金牌。随着男单冠军的诞生，名古屋亚运会乒乓球项目全部收官，国乒拿到男团之外的其他六项冠军。 王楚钦接受采访时说：这是我最后一届亚运会，我觉得可能自己乒乓生涯就是螺旋式的有起有伏，自己都去接受接纳，我觉得也是个新的课题，感觉自己在走一条别人之前没走过的路，遇到的问题和以往的主力们可能也不太一样，需要自己去好好思考和总结。王楚钦称“这是我最后一届亚运会”：感觉自己在走一条别人之前没走过的路_腾讯新闻
+来源公开摘要显示：在海拔1700米的新疆大石峡水利枢纽工程现场，247米高的混凝土面板堆石坝如巨龙般在戈壁中崛起。90后青年工程师白林正带着队员俯身检查面板焊缝，游标卡尺在毫厘间移动：“差0.5毫米都可能影响百年大坝的安全。”这股较真劲，正是他6年前初抵此地时，面对图纸上“世界最高”4个字，选择扛起的责任。 2019年，刚调任大石峡项目的白林，面临前所未有的技术挑战。作为项目团支部书记，他迅速组建“勇攀技术高峰青年突击队”，创建“N+1”青年培养模式，为团队注入攻坚底气。当年轻职工觉得“不必太较真”时，他总以行业事故案例警醒：“水利工程百年基业，多一分细致，就是多一分安心
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [2026年10-12月国创秋季导视-哔哩哔哩版权国创](jing-gong-zhi-niao.md)
-- [“给12306发信息能抢到票”不实](hu-jia-hu-wei.md)
-- [樊振东德国梗被批](yu-mu-hun-zhu.md)
-- [张本美和四项全输给中国队](dong-shi-xiao-pin.md)
+- [“火车票候补妙招”是假的](hu-jia-hu-wei.md)
+- [Tiffany中国区负责人致歉](yu-mu-hun-zhu.md)
+- [日本经贸代表团访华有何意图](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [王楚钦时代未结束林诗栋时代加速开启](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [曝携程推新规鼓励「无理由事假」，员工休1天无理由事假，团队得600元团建经费，如何看待这种激励方式？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [网上都说计算机炸了，为什么现实中一堆转专业到计算机的？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [怎样看待王楚钦称不知道为什么就是感觉累，找不太到之前打球的感觉？他要怎样才能找回之前的状态？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [面对「过紧日子」的要求，大学预算中哪些开支「该紧」，哪些「不该紧」？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [国乒亚运会参加7项，拿下6金4银，仅男团未能夺金，如何评价本届亚运会国乒战绩？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [怎么看待超长蛋挞的爆红？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [网友吐槽「毫无人性关怀的大厂却总致力于打造出充满人性光辉的产品」，你怎么看待这个观点？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [如何评价 9 月 28 日发布的Claude Sonnet 5.5？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [如何评价《刃牙》这部动漫？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [程靖淇说舆论对王楚钦是种消耗](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [中国队男女4×100米接力双双卫冕](http://www.daogukj.com/0517179)
-- [你管这叫只会一点点？？？](http://www.daogukj.com/yzfviyov/)
-- [【剧情】终极恶女（2014）01【那维勋 / 蔡函岑】](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [网友吐槽「毫无人性关怀的大厂却总致力于打造出充满人性光辉的产品」，你怎么看待这个观点？](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [北京大学禁止赴风景名胜区开会](http://www.daogukj.com/1191355)
-- [兰香如故被指不把女配当人看](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [为什么父母总爱说「我都是为了你好」，但我们这代人却最害怕听到这句话？](http://www.daogukj.com/2850206)
-- [“给12306发信息能抢到票”不实](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [网上都说计算机炸了，为什么现实中一堆转专业到计算机的？](http://www.daogukj.com/5364901)
-- [王楚钦虽一金未得仍当得起一个赞](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [仅退款被拒男子900家店下单2700次](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [星舰试飞直播画面出现不明飞行物](http://www.daogukj.com/0517179)
+- [《无敌超人》当你拥有无限增强的超能力，会做什么？【Hishorts! × updream AI短片大赛+剧情单元】](http://www.daogukj.com/yzfviyov/)
+- [66岁大爷考入大学 大一绩点全班前三](http://www.movie.hkepx.cn/xiju/0529283.htm)
+- [旅途中，有哪些古建筑真正配得上「叹为观止」四个字？](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [王毅：日本若不汲取历史教训难有未来](http://www.daogukj.com/1191355)
+- [Tiffany月饼](http://www.movie.hkepx.cn/xiju/7511993.htm)
+- [哆啦A梦明明拥有无数逆天道具，却似乎没怎么改变大雄的人生，创作者想表达什么？](http://www.daogukj.com/2850206)
+- [“火车票候补妙招”是假的](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
+- [网友吐槽「毫无人性关怀的大厂却总致力于打造出充满人性光辉的产品」，你怎么看待这个观点？](http://www.daogukj.com/5364901)
+- [英语才是普通人的终极杠杆](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
 - [2026年10-12月国创秋季导视-哔哩哔哩版权国创](http://www.daogukj.com/nisjsldl/)
-- [女孩中秋节离世 母亲称不愿再过中秋](http://www.daogukj.com/xvspcmfq/)
-- [迈克尔.韩立 《不凡》天南巡回演唱会【AI MV大赛】](http://www.daogukj.com/4116400)
-- [女子回应花1分钱买5人票逛景区还中奖](http://www.daogukj.com/nncunhqi/)
-- [12306辟谣后台发信息就能抢到票](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [面对「过紧日子」的要求，大学预算中哪些开支「该紧」，哪些「不该紧」？](http://www.daogukj.com/svuwbdap/)
-- [骗子骗了8省11地超1亿元补贴](http://www.daogukj.com/qvipjsxc/)
-- [美股三大指数集体收跌](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
-- [羽毛球选手吐槽亚运会：要运动员的命](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [国乒启程回国](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](http://www.daogukj.com/wvyvpuql/)
-- [王楚钦本届亚运会一金未拿，怎样评价他的状态？打法上可能有哪些问题？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
-- [接力夺冠姑娘们把国旗叠得方方正正](http://www.daogukj.com/yktxglwn/)
-- [法国为何要向沙特派兵](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [涨薪意识](http://www.daogukj.com/2377613)
-- [多地贷款中介集体解散群聊、删除朋友圈，背后原因是什么？会带来哪些影响？](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [2026亚运会乒乓球男单决赛，林诗栋 4-0 王楚钦夺得金牌，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [《无敌超人》当你拥有无限增强的超能力，会做什么？【Hishorts! × updream AI短片大赛+剧情单元】](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [文旅局回应那英临时加唱弯弯的月亮](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [张雪机车在意大利被偷麻了](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [媒体：中国篮球病了病得很重](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [曝携程推新规鼓励「无理由事假」，员工休1天无理由事假，团队得600元团建经费，如何看待这种激励方式？](http://www.daogukj.com/qkjpzqjb/)
-- [为什么日式料理中会大量使用酱油和味噌？](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [要检查孩子作业，孩子回应「老师要求做完，又没要求做对」来回避检查作业，怎么纠正孩子更好呢？](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [大降温来了：大范围降雨将持续并变冷，多台风酝酿超强台风东去](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
-- [鲍师傅超长蛋挞 全是皮没蛋液](http://www.daogukj.com/opgycgjr/)
-- [陈妤颉再添一金](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [王楚钦时代未结束林诗栋时代加速开启](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [张继科说他与樊振东马龙是男单最强三人](http://www.daogukj.com/3894638)
-- [体育总局局长表示，亚运会部分传统优势项目遇到挑战，成绩不及预期，可能有哪些原因？](http://www.daogukj.com/ihugvxjr/)
-- [应急办大楼传出麻将声？街道办回应](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [特朗普否认愿意有条件解除对伊制裁](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [迈克尔·曹操 新三国巡演](http://www.daogukj.com/owscegnp/)
-- [Tiffany散装桃酥致歉](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [接亲遇拦车新郎抱新娘就走](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [⚡️她连唐笑都在调上⚡️](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [肖战粉丝就这样每天吃好的](http://www.daogukj.com/9324764)
-- [辽宁多地把C位留给国家栋梁](http://www.daogukj.com/awlcbyru/)
-- [樊振东德国梗被批](http://www.daogukj.com/5750670)
+- [女子每天5点起床从杭州到上海上班](http://www.daogukj.com/xvspcmfq/)
+- [把ARRI装进口袋之后：荣耀 Magic 9系列首发体验](http://www.daogukj.com/4116400)
+- [中文限购2瓶英文限购3瓶？门店回应](http://www.daogukj.com/nncunhqi/)
+- [暴雨积水是城市治理能力不足？谣言](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [如何评价《刃牙》这部动漫？](http://www.daogukj.com/svuwbdap/)
+- [披床单长大的人在横店各自入戏](http://www.daogukj.com/qvipjsxc/)
+- [亚运中国小孩哥小孩姐掀起青春风暴](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
+- [成都文旅通报那英唱《弯弯的月亮》](http://www.movie.hkepx.cn/movie/2146522.htm)
+- [张家齐妈是不是觉得奥运冠军会嫁豪门](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [地球上的所有动物都没有穿衣服，还不是活得好好的，为什么只有我们人类才穿衣服，难道不穿衣服就活不了吗？](http://www.daogukj.com/wvyvpuql/)
+- [如何评价刘欢《从头再来》这首歌？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [业主拒缴物业费 法院判决来了](http://www.daogukj.com/yktxglwn/)
+- [伊朗最高领袖：伊朗已变得独立强大](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [那英演唱会致敬刘欢不该一罚了之](http://www.daogukj.com/2377613)
+- [你管这叫只会一点点？？？](http://www.movie.hkepx.cn/movie/4178444.htm)
+- [从本届亚运会来看，林诗栋夺得 3 金 1 银要成为国乒一哥了吗？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [【星球大战：曼达洛人与古古】古爱玲又出新素材了！](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [为什么越来越多人不愿交物业费了](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [定了！所有异人玩家请记住这三个日子！](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [10月1日起安眠药开药新规将实施](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [怎么看待超长蛋挞的爆红？](http://www.daogukj.com/qkjpzqjb/)
+- [怎样看待王楚钦称不知道为什么就是感觉累，找不太到之前打球的感觉？他要怎样才能找回之前的状态？](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [《复联 4》重映全球首周票房斩获 8600 万美元，为何还能展现出如此强的号召力？](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [15分钟讲清楚油管vlog大神的幕后焚决…](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [老年人越来越多 养老床位却连降3年](http://www.daogukj.com/opgycgjr/)
+- [郑丽文：大战略不改台湾非常危险](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [国乒亚运会参加7项，拿下6金4银，仅男团未能夺金，如何评价本届亚运会国乒战绩？](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [生病是一场巨大的清算](http://www.daogukj.com/3894638)
+- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](http://www.daogukj.com/ihugvxjr/)
+- [婚礼上新人送彩票 宾客刮出10万奖金](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [泰国“羽毛球女神”药检阳性](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [【新宿决战】悟空VS如来](http://www.daogukj.com/owscegnp/)
+- [Tiffany 捂嘴](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [券商：房价或在明年春节前后止跌回升](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [瑞幸联名表情包 像尿](http://www.daogukj.com/9324764)
+- [林诗栋颁奖现场被观众挑衅](http://www.daogukj.com/awlcbyru/)
+- [Tiffany中国区负责人致歉](http://www.daogukj.com/5750670)
 
 </details>
 
 ## 原始来源
 
-- [王楚钦称这是他最后一届亚运会，下个周期谁来扛国乒大旗？有哪些新星值得关注？](https://www.zhihu.com/question/2088041801634378395)
+- [天山深处崛起「世界最高坝」大石峡水利枢纽，为什么要在干旱缺水的新疆戈壁中截流造个大水库？建起来有多难？](https://www.zhihu.com/question/2086454660316112597)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 74fa5be5184820bd60ef -->
+<!-- content-fingerprint: 39f17c1e5bcd6eda7e1b -->
