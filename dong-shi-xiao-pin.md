@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？
+# 奚梦瑶第一胎的脐带是何猷君妈妈剪的
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：100 万热度 · 分类：问答 · 更新：2026-10-01T10:11:19+08:00
+> 来源：微博热搜 · 排名：第 11 位 · 热度：232114 · 分类：艺人 · 更新：2026-10-01T17:00:58+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？”位列第 11 位，公开热度指标为 100 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“奚梦瑶第一胎的脐带是何猷君妈妈剪的”位列第 11 位，公开热度指标为 232114，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026年9月13日，网名为「不吃西柚」的画师遭遇以约稿为名的网络诈骗：对方自称闲鱼客服，诱导她以账户冻结为由刷大量流水解冻，并通过视频会议软件诱导她扫码、开通借贷软件，导致她被骗4万余元，包括本金1万元以及借贷2.4万元。她随后报警，并取得佛山市公安局南海分局出具的报警回执。 9月17日，她在约稿平台米画师发布动态，称最近高强度画稿压力大、精神崩溃，因此发布约稿启事希望网友扩散，恳请单主向她约稿，并表示会保质保量认真对待；她还表示，当前主要是花呗欠款占大头，加上房租和各种杂费，每月至少需要8000元以上的支出。当天下午，她在所在画社群发布最后一条消息，
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `艺人`
 
 ## 相关热点
 
-- [我和我的室友们](han-dan-xue-bu.md)
-- [女子称去KTV后三台手机拍照出现紫斑](qi-ren-you-tian.md)
-- [白露两冠一金的19岁](chao-san-mu-si.md)
-- [亲爱的祖国生日快乐](dui-niu-tan-qin.md)
+- [新疆光伏工地被环保罚50万？假的](han-dan-xue-bu.md)
+- [C罗社媒官宣离开国家队集训，声称「在适当的时候声明离开国家队的原因」，他这么做的原因是什么？](qi-ren-you-tian.md)
+- [【登陆少年】《黄种人》COVER](chao-san-mu-si.md)
+- [迪拜航空安全事件细节曝光](dui-niu-tan-qin.md)
 
 ## 站内推荐
 
-- [天安门广场国庆升旗仪式](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [天安门前看升旗队伍一眼望不到头](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [C罗社媒官宣离开国家队集训，声称「在适当的时候声明离开国家队的原因」，他这么做的原因是什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [哈夫克保险小队全点位来啦！没拿到吴彦祖之镜的抓紧！还送嘉豪的小曲哦！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [国外专家评王楚钦处境](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [文春爆料后张本智和紧急取关女主播](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [女装信任市场崩溃商家改用防拆带](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [公众对江歌妈妈观感复杂](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [鸿蒙智行](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [各大车企9月交付量](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
-- [高速零时免费有车主省下560多元](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
-- [成都天府广场4万余人观看升旗仪式](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
-- [机票退改的亏我们还要吃多久](http://www.movie.hkepx.cn/movie/5991338.htm)
-- [内蒙古野生卤虫，真红啊！](http://www.daogukj.com/lxoougkn/)
-- [哈夫克保险小队全点位来啦！没拿到吴彦祖之镜的抓紧！还送嘉豪的小曲哦！](http://www.daogukj.com/8326428)
-- [美国6只熊猫 日本0只](http://www.movie.hkepx.cn/xiju/5072880.htm)
-- [感受各地浓厚国庆氛围](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
-- [如何评价 10 月 1 号发布的 Gemini 4 Argon？](http://www.daogukj.com/1022614)
-- [如何看待南开大学两位教授胡金牛、陈璟因「实诚」简介再次走红？](http://www.movie.hkepx.cn/xiju/7621812.htm)
-- [男子用土豆当主食半年瘦25斤](http://www.movie.hkepx.cn/movie/2413887.htm)
-- [小米汽车](http://www.movie.hkepx.cn/xiju/7532931.htm)
-- [白露两冠一金的19岁](http://www.daogukj.com/kbhgllhh/)
-- [武汉街头国旗高挂](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
-- [12306回应买不到票被迫买长乘短](http://www.daogukj.com/1222828)
-- [你敢弄我小弟？？！「谁是杀手」？？！](http://www.daogukj.com/ttvulxwh/)
-- [为什么酒精灯里酒精不用100%浓度而是用95%浓度？](http://www.movie.hkepx.cn/xiju/9490112.htm)
-- [美军灰溜溜走了 伊拉克全国放假4天](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
-- [伊朗女歌手演出不戴头巾遭判笞刑74鞭](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
-- [“摸金”攻占中小学校园](http://www.daogukj.com/qxdtupzr/)
-- [学 以 乱 用](http://www.movie.hkepx.cn/xiju/3795229.htm)
-- [许鞍华复盘《第一炉香》称马思纯拍摄时状态浮肿，她和彭于晏台词功底不好，自己作为导演本该叫停，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
-- [有没有非常喜欢听的红歌？听多少次都不会觉得腻的那种？](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
-- [劫机事件现场：机长浑身是血躺地上](http://www.daogukj.com/8473621)
-- [广汽集团拟通过发行股份购买一汽丰田50%股权，复盘一字涨停，怎样解读？对双方将产生哪些影响？](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
-- [走近八一连女子国旗护卫队](http://www.movie.hkepx.cn/xiju/0754538.htm)
-- [大英花了十年脱欧，现在准备加回去](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
-- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.daogukj.com/nddpfxtw/)
-- [天安门放飞10000多只和平鸽](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
-- [这就是中国排面！国旗护卫队步步铿锵](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
-- [让照片好看，这两个方法都不行啊！](http://www.daogukj.com/0923785)
-- [媒体：旅客至上不等于“机闹至上”](http://www.daogukj.com/ytapmyxr/)
-- [小伙骑行828公里赴京看升旗](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
-- [饮用无醇啤酒不会构成酒驾？假的](http://www.daogukj.com/3735760)
-- [C罗宣布离开国家队集训营](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
-- [周深在人民日报撰文](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
-- [国庆天安门广场升国旗完整视频](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
-- [为什么没有经历过那个时代听《我的祖国》也就是那首“一条大河波浪宽”那首歌竟然感动的哭了？](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
-- [C罗要求葡萄牙主帅公开认错](http://www.daogukj.com/0437875)
-- [中国男足表态：带着奖牌回家](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
-- [网友称胖东来九成销售额靠外地游客，是真的吗？若数据真实意味着什么？](http://www.movie.hkepx.cn/xiju/4010771.htm)
-- [《大回忆时代》](http://www.daogukj.com/cvgkgyqv/)
-- [这是中国人独有的浪漫](http://www.daogukj.com/afffhqsf/)
-- [尽管同为扬州八怪，为何郑板桥声名远远超过其他人物？](http://www.movie.hkepx.cn/movie/4359740.htm)
-- [中方对日本首相称呼发生变化](http://www.daogukj.com/zaudsbpz/)
-- [雷军带火的11元早餐3个月了还在排队](http://www.daogukj.com/riicnlnn/)
-- [天安门前看升旗队伍一眼望不到头](http://www.movie.hkepx.cn/movie/3461436.htm)
-- [奚梦瑶给女儿买了可爱版菜篮子](http://www.movie.hkepx.cn/xiju/6388091.htm)
-- [就给张家齐拿了4个鸡蛋一把青菜](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
-- [女子进矿山工作六年被亲戚羡慕](http://www.daogukj.com/9288361)
+- [韬定律＋逻辑折叠真的来了！麒麟9050Pro表现到底怎么样](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
+- [祝福祖国！天安门广场举行国庆升旗仪式](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
+- [央视国庆晚会阵容发布](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
+- [我———问你为什么要折断奥特钥匙!！！（大结局下）](http://www.movie.hkepx.cn/movie/5991338.htm)
+- [网友称胖东来九成销售额靠外地游客，是真的吗？若数据真实意味着什么？](http://www.daogukj.com/lxoougkn/)
+- [鸿蒙智行](http://www.daogukj.com/8326428)
+- [《大回忆时代》](http://www.movie.hkepx.cn/xiju/5072880.htm)
+- [《下一个是谁》第七季（5）](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
+- [周扬青自曝脸馒化了](http://www.daogukj.com/1022614)
+- [华为Mate90支持四卡三待](http://www.movie.hkepx.cn/xiju/7621812.htm)
+- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](http://www.movie.hkepx.cn/movie/2413887.htm)
+- [高市早苗真没啥面](http://www.movie.hkepx.cn/xiju/7532931.htm)
+- [【登陆少年】《黄种人》COVER](http://www.daogukj.com/kbhgllhh/)
+- [农民交公粮能否视同缴社保](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
+- [“原生旅游”火了](http://www.daogukj.com/1222828)
+- [国庆高速充电“大考”](http://www.daogukj.com/ttvulxwh/)
+- [我国秋粮开始大面积收获](http://www.movie.hkepx.cn/xiju/9490112.htm)
+- [华为Mate90对决iPhone18](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
+- [康辉领唱《我的祖国》](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
+- [国庆假期中国每天搬运一个美国](http://www.daogukj.com/qxdtupzr/)
+- [现在大家都把国庆当纯放假玩，有没有什么「老派」过节体验？](http://www.movie.hkepx.cn/xiju/3795229.htm)
+- [天安门前看升旗队伍一眼望不到头](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
+- [C罗 国家队](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
+- [为什么没有经历过那个时代听《我的祖国》也就是那首“一条大河波浪宽”那首歌竟然感动的哭了？](http://www.daogukj.com/8473621)
+- [华为Mate90售价5999元起](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
+- [原央视主持人阿丘回应被通报](http://www.movie.hkepx.cn/xiju/0754538.htm)
+- [郑钦文称退役后想开演唱会](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
+- [前有张雪机车团队在意大利被盗，后有惠英红团队巴黎遇抢劫，为啥欧洲小偷都这么猖獗？海外遇抢劫该如何应对？](http://www.daogukj.com/nddpfxtw/)
+- [昔日明星电动车彻底卖不动了](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
+- [我和我的室友们](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
+- [天安门广场万人合唱《歌唱祖国》](http://www.daogukj.com/0923785)
+- [终于知道小孩为什么不会累了](http://www.daogukj.com/ytapmyxr/)
+- [高 人。](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
+- [绵阳越王楼将被拆除？不实](http://www.daogukj.com/3735760)
+- [超半数成年人未达建议运动水平](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
+- [【什么是世面？？？】](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
+- [【纪录片】进化 05 速度如何炼成](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
+- [胡锡进删除AI提示语](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
+- [机米售货机第二季大合集！](http://www.daogukj.com/0437875)
+- [华为Mate90系列售价5999元起，余承东称「在内存大涨价的今天，定价很有诚意」，怎样看待这一定价？](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
+- [张家齐吃的粽子是全进华妈妈亲手包的](http://www.movie.hkepx.cn/xiju/4010771.htm)
+- [伏地魔为什么非得找有名的东西做魂器？他随便找块石头做成魂器扔海里不行吗？](http://www.daogukj.com/cvgkgyqv/)
+- [地理老师的摩旅日记80:一笔画敲黄河](http://www.daogukj.com/afffhqsf/)
+- [亚运会网球女单冠军](http://www.movie.hkepx.cn/movie/4359740.htm)
+- [张译在人民日报撰文](http://www.daogukj.com/zaudsbpz/)
+- [国庆回家开了一路远光灯，为什么没人骂我？](http://www.daogukj.com/riicnlnn/)
+- [文春爆料后张本智和紧急取关女主播](http://www.movie.hkepx.cn/movie/3461436.htm)
+- [我们花 3 万租下机场跑道，但是片子差点拍废了](http://www.movie.hkepx.cn/xiju/6388091.htm)
+- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
+- [有没有非常喜欢听的红歌？听多少次都不会觉得腻的那种？](http://www.daogukj.com/9288361)
 
 </details>
 
 ## 原始来源
 
-- [25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？](https://www.zhihu.com/question/2088693062239367611)
+- [奚梦瑶第一胎的脐带是何猷君妈妈剪的](https://s.weibo.com/weibo?q=%E5%A5%9A%E6%A2%A6%E7%91%B6%E7%AC%AC%E4%B8%80%E8%83%8E%E7%9A%84%E8%84%90%E5%B8%A6%E6%98%AF%E4%BD%95%E7%8C%B7%E5%90%9B%E5%A6%88%E5%A6%88%E5%89%AA%E7%9A%84)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: efd3bc56976536122f77 -->
+<!-- content-fingerprint: 1436470431955443b9fc -->

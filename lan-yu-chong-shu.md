@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# C罗宣布离开国家队集训营
+# 超半数成年人未达建议运动水平
 
-> 来源：今日头条热榜 · 排名：第 10 位 · 热度：12422753 · 更新：2026-10-01T10:11:19+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6947839 · 更新：2026-10-01T17:00:58+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“C罗宣布离开国家队集训营”位列第 10 位，公开热度指标为 12422753。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“超半数成年人未达建议运动水平”位列第 9 位，公开热度指标为 6947839。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：9月30日，世界田联官网发文称一项覆盖31个国家和地区3.4万人的调查显示，超半数受访成年人未达建议运动水平，23%的人因每周运动不足30分钟被列为“濒危人群”。调查发现运动水平与精神状态相关，“濒危人群”情绪更不稳定、压力更大。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [为什么没有经历过那个时代听《我的祖国》也就是那首“一条大河波浪宽”那首歌竟然感动的哭了？](zi-xiang-mao-dun.md)
-- [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](bei-gong-she-ying.md)
-- [喝无醇啤酒开车不算酒驾？不实](jing-gong-zhi-niao.md)
-- [国庆天安门广场升国旗完整视频](hu-jia-hu-wei.md)
+- [胡锡进删除AI提示语](zi-xiang-mao-dun.md)
+- [华为Mate系列累计发送卫星消息90万条](bei-gong-she-ying.md)
+- [如何看待南开大学两位教授胡金牛、陈璟因「实诚」简介再次走红？](jing-gong-zhi-niao.md)
+- [【纪录片】进化 05 速度如何炼成](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [多位球星点赞C罗退集训声明](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [葡足协主席和热苏斯追到机场挽留C罗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [亲爱的祖国生日快乐](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [走近八一连女子国旗护卫队](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [有没有非常喜欢听的红歌？听多少次都不会觉得腻的那种？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [1小时只走500米 坐车坐到自闭](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [美军撤离伊拉克 民众街头庆祝放烟花](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [迪拜航空安全事件细节曝光](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [原央视主持人阿丘回应被通报](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [C罗 国家队](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [曝JDG中野JunJia与HongQ 已解约，德杯小方、Angel出战，是真的吗？为啥选择此时解约？](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [为啥只有8090后的人喜欢用电脑的程度大于手机？](http://www.daogukj.com/axnomarx/)
-- [中方对日本首相称呼发生变化](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [C罗社媒官宣离开国家队集训，声称「在适当的时候声明离开国家队的原因」，他这么做的原因是什么？](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [女子骑车压速别车被后车司机踹翻](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [让照片好看，这两个方法都不行啊！](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [史泰龙：我糟蹋了自己的身体](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [美军灰溜溜走了 伊拉克全国放假4天](http://www.daogukj.com/9955752)
-- [最美的还是这抹中国红](http://www.movie.hkepx.cn/movie/6160167.htm)
-- [机票退改的亏我们还要吃多久](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [国庆节](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [7天穿越哀牢山!千万不要随便采菌子!](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [U23国足主帅回应韩国球员疑似手球](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [射击收官中国队冲最后两金](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [清澈的爱，只为中国！](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [妈妈拿巨型碗劝2米01儿子好好吃饭](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [为什么酒精灯里酒精不用100%浓度而是用95%浓度？](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [12306回应买不到票被迫买长乘短](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [天安门广场国庆升旗仪式](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [《艾希》十周年续作《艾希：续》众筹开启](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [小米汽车](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [内蒙古野生卤虫，真红啊！](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [男子用土豆当主食半年瘦25斤](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [什么叫勇者跟被救的公主二阶段打起来了？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [走近八一连女子国旗护卫队](http://www.daogukj.com/2395514)
-- [黄渤称观众看见自己就乐很沮丧，想打破喜剧标签，对此你怎么看？](http://www.daogukj.com/6574038)
-- [伊朗女歌手演出不戴头巾遭判笞刑74鞭](http://www.daogukj.com/ajcuxydy/)
-- [俄警告动用核武器保卫加里宁格勒](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [有没有非常喜欢听的红歌？听多少次都不会觉得腻的那种？](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [天安门前看升旗队伍一眼望不到头](http://www.daogukj.com/cfeqrkjc/)
-- [为看升旗 天安门前长队一眼望不到头](http://www.daogukj.com/rkkegwyy/)
-- [葡足协主席和热苏斯追到机场挽留C罗](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [喝无醇啤酒开车不算酒驾？不实](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [你敢弄我小弟？？！「谁是杀手」？？！](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [奚梦瑶给女儿买了可爱版菜篮子](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [高速零时免费有车主省下560多元](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [各大车企9月交付量](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [广汽集团拟通过发行股份购买一汽丰田50%股权，复盘一字涨停，怎样解读？对双方将产生哪些影响？](http://www.daogukj.com/8099191)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.daogukj.com/vrvcskzj/)
-- [现在大家都把国庆当纯放假玩，有没有什么「老派」过节体验？](http://www.daogukj.com/lbbxrvry/)
-- [这是中国人独有的浪漫](http://www.daogukj.com/9295095)
-- [网友称胖东来九成销售额靠外地游客，是真的吗？若数据真实意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [如何评价开拓者主帅称克林根+罗威可以提供48分钟的护筐？ 杨瀚森新赛季在开拓者到底有什么位置？](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [普京：俄罗斯不会满世界“乞讨”](http://www.daogukj.com/7435478)
-- [兄弟如手足](http://www.daogukj.com/kwdurrnw/)
-- [就给张家齐拿了4个鸡蛋一把青菜](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [网友候补成功睡醒发现车已开走](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [亲爱的祖国生日快乐](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [“带薪发疯”的岗位真的来了](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [主持人阿丘回应被通报](http://www.daogukj.com/axnomarx/)
+- [张译在人民日报撰文](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [公众对江歌妈妈观感复杂](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [多家车企公布9月新车销量](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [天安门广场万人合唱《歌唱祖国》](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [如何看待zeta5（ζ5）已经被一个大二学生证明是无理数？](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [华为Mate90对决iPhone18](http://www.daogukj.com/9955752)
+- [今天一起感受最美中国红](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [我———问你为什么要折断奥特钥匙!！！（大结局下）](http://www.movie.hkepx.cn/xiju/3768366.htm)
+- [邓亚萍倪夏莲时隔多年再交手](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [运动员们祝福祖国生日快乐](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [车企 9 月销量数据出炉，小米交付超 4 万台，理想、深蓝交付超 3 万台，怎样解读各家表现？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [学 以 乱 用](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [亲爱的祖国生日快乐](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [如果星舰掉下来刚好砸到纽约中央公园，会有多严重？](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [我国秋粮开始大面积收获](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [“原生旅游”火了](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [国外专家评王楚钦处境](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [高速免费到底怎么算](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [高市早苗真没啥面](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [网友称胖东来九成销售额靠外地游客，是真的吗？若数据真实意味着什么？](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [既然永动机不存在，为何地球自转了45亿年，是什么力量在起作用？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [原央视主持人阿丘回应被通报](http://www.daogukj.com/2395514)
+- [华为赛力斯准备“复合”了吗](http://www.daogukj.com/6574038)
+- [康辉领唱《我的祖国》](http://www.daogukj.com/ajcuxydy/)
+- [领证第2天结婚证被狗咬得稀碎](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [C罗 国家队](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [文春爆料后张本智和紧急取关女主播](http://www.daogukj.com/cfeqrkjc/)
+- [植物人都绷不住的我的世界memes](http://www.daogukj.com/rkkegwyy/)
+- [美军撤离伊拉克 民众街头庆祝放烟花](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [如何看待南开大学两位教授胡金牛、陈璟因「实诚」简介再次走红？](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [国庆高速充电“大考”](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [华为Mate系列累计发送卫星消息90万条](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [我们花 3 万租下机场跑道，但是片子差点拍废了](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [郑钦文2-1施晗获中网开门红](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [祝福祖国！天安门广场举行国庆升旗仪式](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [韬定律＋逻辑折叠真的来了！麒麟9050Pro表现到底怎么样](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [华为Mate90售价5999元起](http://www.daogukj.com/8099191)
+- [地震瞬间两护士一手抱一个婴儿疏散](http://www.daogukj.com/vrvcskzj/)
+- [天安门广场国庆升旗仪式](http://www.daogukj.com/lbbxrvry/)
+- [地理老师的摩旅日记80:一笔画敲黄河](http://www.daogukj.com/9295095)
+- [张家齐吃的粽子是全进华妈妈亲手包的](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [华为Mate90价格](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [迪拜航空 空中浩劫](http://www.daogukj.com/7435478)
+- [星舰入轨有何意义](http://www.daogukj.com/kwdurrnw/)
+- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [华为Mate90系列价格](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [迪拜航空安全事件细节曝光](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [C罗宣布离开国家队集训营](https://www.toutiao.com/trending/7691469645630410282/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%225%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227691469645630410282%22%2C%22hot_board_impr_id%22%3A%2220261001101118CFAEAB95B9BAB4DB3A7A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [超半数成年人未达建议运动水平](https://www.baidu.com/s?wd=%E8%B6%85%E5%8D%8A%E6%95%B0%E6%88%90%E5%B9%B4%E4%BA%BA%E6%9C%AA%E8%BE%BE%E5%BB%BA%E8%AE%AE%E8%BF%90%E5%8A%A8%E6%B0%B4%E5%B9%B3&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 68506024f1b8765464f7 -->
+<!-- content-fingerprint: c35ce296c3b70595c5f3 -->

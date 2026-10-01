@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 少年儿童高唱我们是共产主义接班人
+# 《你以为的自己vs实际上》
 
-> 来源：微博热搜 · 排名：第 13 位 · 热度：323823 · 分类：国内时政 · 更新：2026-10-01T10:11:19+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：637506 · 分类：搞笑 · 更新：2026-10-01T17:00:58+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“少年儿童高唱我们是共产主义接班人”位列第 13 位，公开热度指标为 323823，榜单分类为“国内时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《你以为的自己vs实际上》”位列第 12 位，公开热度指标为 637506，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `国内时政`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [5000架无人机如繁星点亮长江](ke-zhou-qiu-jian.md)
-- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](yan-er-dao-ling.md)
-- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](nan-yuan-bei-zhe.md)
-- [周深人民日报撰文](mai-du-huan-zhu.md)
+- [开国将军雷震为女儿取名“国庆”](ke-zhou-qiu-jian.md)
+- [女装信任市场崩溃商家改用防拆带](yan-er-dao-ling.md)
+- [郑钦文2-1施晗获中网开门红](nan-yuan-bei-zhe.md)
+- [如何看待江苏“十五五”规划提出支持南京大学、东南大学、苏州大学等高校建设世界一流大学？](mai-du-huan-zhu.md)
 
 ## 站内推荐
 
-- [感受各地浓厚国庆氛围](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [为看升旗 天安门前长队一眼望不到头](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [国庆天安门广场升国旗完整视频](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [就给张家齐拿了4个鸡蛋一把青菜](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [专家：房贷新政落地需严防阴阳合同](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [《下一个是谁》第七季（5）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [植物人都绷不住的我的世界memes](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [【纪录片】进化 05 速度如何炼成](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [游客躲避人潮 反向涌入小县城](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [尽管同为扬州八怪，为何郑板桥声名远远超过其他人物？](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
-- [媒体：旅客至上不等于“机闹至上”](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
-- [男子用土豆当主食半年瘦25斤](http://www.daogukj.com/tqrulkrm/)
-- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
-- [有没有非常喜欢听的红歌？听多少次都不会觉得腻的那种？](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
-- [C罗宣布离开国家队集训营](http://www.daogukj.com/2903535)
-- [周深在人民日报撰文](http://www.movie.hkepx.cn/movie/8396411.htm)
-- [饮用无醇啤酒不会构成酒驾？假的](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
-- [5000架无人机如繁星点亮长江](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
-- [我和我的室友们](http://www.movie.hkepx.cn/movie/7093450.htm)
-- [如何评价 10 月 1 号发布的 Gemini 4 Argon？](http://www.daogukj.com/2824694)
-- [如何评价博主星无创作的情景喜剧《是，魏王》？](http://www.daogukj.com/yjkpaybt/)
-- [广汽集团拟通过发行股份购买一汽丰田50%股权，复盘一字涨停，怎样解读？对双方将产生哪些影响？](http://www.daogukj.com/9138421)
-- [喝无醇啤酒开车不算酒驾？不实](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
-- [伊朗女歌手演出不戴头巾遭判笞刑74鞭](http://www.movie.hkepx.cn/xiju/5067207.htm)
-- [黄渤称观众看见自己就乐很沮丧，想打破喜剧标签，对此你怎么看？](http://www.daogukj.com/7199630)
-- [如何看待南开大学两位教授胡金牛、陈璟因「实诚」简介再次走红？](http://www.movie.hkepx.cn/movie/6135897.htm)
-- [女子称去KTV后三台手机拍照出现紫斑](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
-- [葡足协主席和热苏斯追到机场挽留C罗](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
-- [农民交公粮能否视同缴社保](http://www.daogukj.com/2412867)
-- [祝福祖国！天安门广场举行国庆升旗仪式](http://www.daogukj.com/0344516)
-- [哈夫克保险小队全点位来啦！没拿到吴彦祖之镜的抓紧！还送嘉豪的小曲哦！](http://www.movie.hkepx.cn/movie/0187296.htm)
-- [清澈的爱，只为中国！](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
-- [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.daogukj.com/qfjukyqn/)
-- [《虹猫蓝兔七侠传》在第 1 部爆火之后，后续的故事应该怎样创作才会成功？](http://www.daogukj.com/uumjcsie/)
-- [这不是黑暗料理！！](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
-- [高速零时免费有车主省下560多元](http://www.movie.hkepx.cn/movie/7623929.htm)
-- [中国男足表态：带着奖牌回家](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.movie.hkepx.cn/movie/8313935.htm)
-- [小伙骑行828公里赴京看升旗](http://www.daogukj.com/fqjpdyus/)
-- [这就是中国排面！国旗护卫队步步铿锵](http://www.daogukj.com/5983723)
-- [现在大家都把国庆当纯放假玩，有没有什么「老派」过节体验？](http://www.movie.hkepx.cn/xiju/4176767.htm)
-- [为什么酒精灯里酒精不用100%浓度而是用95%浓度？](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
-- [我压根不担心火影里的忍者会出完](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
-- [为啥只有8090后的人喜欢用电脑的程度大于手机？](http://www.movie.hkepx.cn/movie/8664223.htm)
-- [奚梦瑶给女儿买了可爱版菜篮子](http://www.movie.hkepx.cn/movie/1942982.htm)
-- [中方对日本首相称呼发生变化](http://www.movie.hkepx.cn/movie/5767803.htm)
-- [《大回忆时代》](http://www.movie.hkepx.cn/xiju/8972635.htm)
-- [网友称胖东来九成销售额靠外地游客，是真的吗？若数据真实意味着什么？](http://www.movie.hkepx.cn/xiju/5657270.htm)
-- [C罗要求葡萄牙主帅公开认错](http://www.movie.hkepx.cn/movie/4036246.htm)
-- [史泰龙：我糟蹋了自己的身体](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
-- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
-- [机票退改的亏我们还要吃多久](http://www.movie.hkepx.cn/xiju/0860317.htm)
-- [曝JDG中野JunJia与HongQ 已解约，德杯小方、Angel出战，是真的吗？为啥选择此时解约？](http://www.daogukj.com/lyyagrpj/)
-- [原央视主持人阿丘被通报](http://www.daogukj.com/1732815)
-- [如何评价开拓者主帅称克林根+罗威可以提供48分钟的护筐？ 杨瀚森新赛季在开拓者到底有什么位置？](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
-- [白露两冠一金的19岁](http://www.daogukj.com/sokjghqt/)
-- [大英花了十年脱欧，现在准备加回去](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
-- [兄弟如手足](http://www.daogukj.com/fcgqpwva/)
-- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
+- [亚运会网球女单冠军](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
+- [终于知道小孩为什么不会累了](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
+- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](http://www.daogukj.com/tqrulkrm/)
+- [郑钦文2-1施晗获中网开门红](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
+- [C罗 国家队](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
+- [超半数成年人未达建议运动水平](http://www.daogukj.com/2903535)
+- [【什么是世面？？？】](http://www.movie.hkepx.cn/movie/8396411.htm)
+- [绵阳越王楼将被拆除？不实](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
+- [开国将军雷震为女儿取名“国庆”](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
+- [新疆光伏工地被环保罚50万？假的](http://www.movie.hkepx.cn/movie/7093450.htm)
+- [周扬青自曝脸馒化了](http://www.daogukj.com/2824694)
+- [外媒分享迪丽热巴巨C排面](http://www.daogukj.com/yjkpaybt/)
+- [华为Mate90售价5999元起](http://www.daogukj.com/9138421)
+- [如何看待南开大学两位教授胡金牛、陈璟因「实诚」简介再次走红？](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
+- [康辉领唱《我的祖国》](http://www.movie.hkepx.cn/xiju/5067207.htm)
+- [华为赛力斯准备“复合”了吗](http://www.daogukj.com/7199630)
+- [华为Mate90支持四卡三待](http://www.movie.hkepx.cn/movie/6135897.htm)
+- [C罗社媒官宣离开国家队集训，声称「在适当的时候声明离开国家队的原因」，他这么做的原因是什么？](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
+- [美军撤离伊拉克 民众街头庆祝放烟花](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
+- [演员蓝琪因胰脏癌逝世](http://www.daogukj.com/2412867)
+- [如何评价 10月 1 日发布的华为Mate 90系列全系旗舰τ芯片，不同版本如何选择？](http://www.daogukj.com/0344516)
+- [鸿蒙智行](http://www.movie.hkepx.cn/movie/0187296.htm)
+- [亲爱的祖国生日快乐](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
+- [华为Mate系列累计发送卫星消息90万条](http://www.daogukj.com/qfjukyqn/)
+- [奚梦瑶晒婆婆赠送的婚嫁敬茶礼](http://www.daogukj.com/uumjcsie/)
+- [闫妮坦言一直单身：不介意相亲](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
+- [祝福祖国！天安门广场举行国庆升旗仪式](http://www.movie.hkepx.cn/movie/7623929.htm)
+- [华为Mate90系列售价5999元起，余承东称「在内存大涨价的今天，定价很有诚意」，怎样看待这一定价？](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
+- [地震瞬间两护士一手抱一个婴儿疏散](http://www.movie.hkepx.cn/movie/8313935.htm)
+- [高 人。](http://www.daogukj.com/fqjpdyus/)
+- [我和我的室友们](http://www.daogukj.com/5983723)
+- [天安门广场国庆升旗仪式](http://www.movie.hkepx.cn/xiju/4176767.htm)
+- [我国秋粮开始大面积收获](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
+- [猪油真是血管“杀手”吗](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
+- [主持人阿丘回应被通报](http://www.movie.hkepx.cn/movie/8664223.htm)
+- [我们花 3 万租下机场跑道，但是片子差点拍废了](http://www.movie.hkepx.cn/movie/1942982.htm)
+- [张译在人民日报撰文](http://www.movie.hkepx.cn/movie/5767803.htm)
+- [伏地魔为什么非得找有名的东西做魂器？他随便找块石头做成魂器扔海里不行吗？](http://www.movie.hkepx.cn/xiju/8972635.htm)
+- [张家齐吃的粽子是全进华妈妈亲手包的](http://www.movie.hkepx.cn/xiju/5657270.htm)
+- [机米售货机第二季大合集！](http://www.movie.hkepx.cn/movie/4036246.htm)
+- [如何看待zeta5（ζ5）已经被一个大二学生证明是无理数？](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
+- [女装信任市场崩溃商家改用防拆带](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
+- [我———问你为什么要折断奥特钥匙!！！（大结局下）](http://www.movie.hkepx.cn/xiju/0860317.htm)
+- [“带薪发疯”的岗位真的来了](http://www.daogukj.com/lyyagrpj/)
+- [25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？](http://www.daogukj.com/1732815)
+- [华为Mate90价格](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
+- [【登陆少年】《黄种人》COVER](http://www.daogukj.com/sokjghqt/)
+- [郑钦文称退役后想开演唱会](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
+- [星舰入轨有何意义](http://www.daogukj.com/fcgqpwva/)
+- [前有张雪机车团队在意大利被盗，后有惠英红团队巴黎遇抢劫，为啥欧洲小偷都这么猖獗？海外遇抢劫该如何应对？](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
 
 </details>
 
 ## 原始来源
 
-- [少年儿童高唱我们是共产主义接班人](https://s.weibo.com/weibo?q=%E5%B0%91%E5%B9%B4%E5%84%BF%E7%AB%A5%E9%AB%98%E5%94%B1%E6%88%91%E4%BB%AC%E6%98%AF%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E6%8E%A5%E7%8F%AD%E4%BA%BA)
+- [《你以为的自己vs实际上》](https://b23.tv/BV1PCaR65Eet)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 00aad2e7dfc3bacb77db -->
+<!-- content-fingerprint: beafdc3524811d979619 -->
