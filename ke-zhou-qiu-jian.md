@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 警号021544重启
+# 5000架无人机如繁星点亮长江
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7049017 · 更新：2026-10-01T07:10:52+08:00
+> 来源：今日头条热榜 · 排名：第 9 位 · 热度：13729265 · 分类：现场 · 更新：2026-10-01T10:11:19+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“警号021544重启”位列第 8 位，公开热度指标为 7049017。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“5000架无人机如繁星点亮长江”位列第 9 位，公开热度指标为 13729265，榜单分类为“现场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月30日，记者联系到成都天府新区新民警张馨月，她称从警月余已体会到父亲当年的坚守。9月28日，她在警号重启仪式上佩戴了牺牲父亲张炼的警号021544。此前，2025年7月10日，张炼在黑龙江双鸭山办案时突发疾病因公殉职。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `现场`
 
 ## 相关热点
 
-- [迪拜航空客机事故最新画面](yan-er-dao-ling.md)
-- [国庆畅游千里江山领略家国之美](nan-yuan-bei-zhe.md)
-- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](mai-du-huan-zhu.md)
-- [90后，00的童年的含金量还在一步步提升](ye-gong-hao-long.md)
+- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](yan-er-dao-ling.md)
+- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](nan-yuan-bei-zhe.md)
+- [周深人民日报撰文](mai-du-huan-zhu.md)
+- [各大车企9月交付量](ye-gong-hao-long.md)
 
 ## 站内推荐
 
-- [感受各地浓厚国庆氛围](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [胖东来将实行每天7小时工作制](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [小龙虾的谣言别再信了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [俄警告动用核武器保卫加里宁格勒](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [最美的还是这抹中国红](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [国庆节](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [饮用无醇啤酒不会构成酒驾？假的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [武汉街头国旗高挂](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [尽管同为扬州八怪，为何郑板桥声名远远超过其他人物？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [飞天奖提名名单](http://www.movie.hkepx.cn/xiju/2843648.htm)
-- [当我再次听到这些声音，是不是就代表您从未离开？](http://www.daogukj.com/0895296)
+- [就给张家齐拿了4个鸡蛋一把青菜](http://www.movie.hkepx.cn/xiju/2843648.htm)
+- [外卖小哥送餐时救火 车辆复燃爆炸](http://www.daogukj.com/0895296)
 - [女子进矿山工作六年被亲戚羡慕](http://www.movie.hkepx.cn/xiju/3970296.htm)
-- [90后，00的童年的含金量还在一步步提升](http://www.movie.hkepx.cn/movie/5125967.htm)
-- [为什么进化中，没有将妊娠和哺乳工作分配给两性，而都由雌性进行？](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
-- [迪拜航空客机发出紧急信号返航，被曝俄裔机长与乌克兰裔副驾发生激烈争吵，还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/5735202.htm)
-- [高速零时免费有车主省下560多元](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
-- [踹翻孕妇电动车当事司机发声](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
-- [朋友圈的贷款广告为啥突然消失了](http://www.daogukj.com/1682120)
-- [人在什么情况下，会展现更真实的自己？](http://www.daogukj.com/3781657)
-- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
-- [第五人格中国队摘金](http://www.movie.hkepx.cn/xiju/8318389.htm)
-- [一个人开车跑高速犯困了，除了喝红牛和掐大腿，还有什么真正有效的提神方法？](http://www.movie.hkepx.cn/xiju/6056931.htm)
-- [国庆平均每天约3亿人次在路上](http://www.movie.hkepx.cn/xiju/3703541.htm)
-- [奚梦瑶给女儿买了可爱版菜篮子](http://www.movie.hkepx.cn/xiju/8516838.htm)
-- [英国首相：希望有生之年重入欧盟](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
-- [《崩坏：星穹铁道》剧情中，阿哈貌似一开始就死了。比起白月光烂了，白月光死了更能接受吗？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
-- [曾风靡全国的五笔为什么逐渐被拼音输入法取代了？](http://www.movie.hkepx.cn/movie/7128560.htm)
-- [赛力斯华为合作模式变动](http://www.daogukj.com/3515190)
-- [男子用土豆当主食半年瘦25斤](http://www.daogukj.com/0169777)
-- [这种大大方方真的招人喜欢](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
-- [穆欣月成首位亚运电竞女子冠军](http://www.daogukj.com/4071713)
-- [监控拍下云南地震瞬间](http://www.daogukj.com/pjoqnyew/)
-- [兰香如故三小姐侯爷是一见钟情](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
-- [为什么GPT-6 Astra玩《我的世界》被炸毁进度后连续数小时种植土豆？这种异常行为怎么产生的？](http://www.movie.hkepx.cn/movie/5516169.htm)
-- [跟我一起在农场度过一天](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
-- [中国首位金牌电竞女选手桃晚安](http://www.daogukj.com/pgdrxeea/)
-- [父亲突然离世邻居1分钟赶到帮忙](http://www.daogukj.com/7272013)
-- [少年儿童高唱我们是共产主义接班人](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
-- [副机长刺伤机长迪拜航空客机失控俯冲](http://www.daogukj.com/3521407)
-- [我爱你中国！庆祝新中国成立77周年](http://www.daogukj.com/9982293)
-- [解放军22架艘次军机舰船位台岛周边活动](http://www.movie.hkepx.cn/xiju/3540024.htm)
-- [昆明4.3级地震有房屋破损](http://www.movie.hkepx.cn/movie/9307027.htm)
-- [WTT中国大满贯资格赛](http://www.movie.hkepx.cn/movie/7494540.htm)
-- [《善》善良是什么](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
-- [感受各地浓厚国庆氛围](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
-- [胖东来将实行每天7小时工作制](http://www.daogukj.com/4973551)
-- [怎么看媒体曝小米大模型负责人罗福莉晋升至 22 级？](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
-- [单人手搓F站！第一天就把自己干崩溃了...](http://www.daogukj.com/zirrjtcq/)
-- [清澈的爱，只为中国！](http://www.daogukj.com/pvjkdvkl/)
-- [《艾希》十周年续作《艾希：续》众筹开启](http://www.movie.hkepx.cn/movie/8281799.htm)
-- [假如🤔...全世界发量下降一万倍，而俺不变！](http://www.movie.hkepx.cn/movie/4145451.htm)
-- [【给阿嬷的情书】做人得有情义](http://www.movie.hkepx.cn/xiju/5480896.htm)
-- [兄弟如手足](http://www.movie.hkepx.cn/xiju/6192675.htm)
-- [国庆节](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
-- [小龙虾的谣言别再信了](http://www.movie.hkepx.cn/movie/8224566.htm)
-- [迪拜航空客机事故最新画面](http://www.daogukj.com/rdjgxawo/)
-- [我国最好吃的淡水鱼是什么鱼？](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
-- [7天穿越哀牢山!千万不要随便采菌子!](http://www.daogukj.com/4280554)
+- [各大车企9月交付量](http://www.movie.hkepx.cn/movie/5125967.htm)
+- [网友称胖东来九成销售额靠外地游客，是真的吗？若数据真实意味着什么？](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
+- [祝福祖国！天安门广场举行国庆升旗仪式](http://www.movie.hkepx.cn/xiju/5735202.htm)
+- [多位球星点赞C罗退集训声明](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
+- [媒体：旅客至上不等于“机闹至上”](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
+- [走近八一连女子国旗护卫队](http://www.daogukj.com/1682120)
+- [什么叫勇者跟被救的公主二阶段打起来了？](http://www.daogukj.com/3781657)
+- [美国6只熊猫 日本0只](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
+- [曝JDG中野JunJia与HongQ 已解约，德杯小方、Angel出战，是真的吗？为啥选择此时解约？](http://www.movie.hkepx.cn/xiju/8318389.htm)
+- [我和我的室友们](http://www.movie.hkepx.cn/xiju/6056931.htm)
+- [如何评价开拓者主帅称克林根+罗威可以提供48分钟的护筐？ 杨瀚森新赛季在开拓者到底有什么位置？](http://www.movie.hkepx.cn/xiju/3703541.htm)
+- [25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？](http://www.movie.hkepx.cn/xiju/8516838.htm)
+- [葡足协主席和热苏斯追到机场挽留C罗](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
+- [《大回忆时代》](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
+- [C罗社媒官宣离开国家队集训，声称「在适当的时候声明离开国家队的原因」，他这么做的原因是什么？](http://www.movie.hkepx.cn/movie/7128560.htm)
+- [伊朗女歌手演出不戴头巾遭判笞刑74鞭](http://www.daogukj.com/3515190)
+- [你敢弄我小弟？？！「谁是杀手」？？！](http://www.daogukj.com/0169777)
+- [少年儿童高唱我们是共产主义接班人](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
+- [C罗宣布离开国家队集训营](http://www.daogukj.com/4071713)
+- [劫机事件现场：机长浑身是血躺地上](http://www.daogukj.com/pjoqnyew/)
+- [为啥只有8090后的人喜欢用电脑的程度大于手机？](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
+- [学 以 乱 用](http://www.movie.hkepx.cn/movie/5516169.htm)
+- [兄弟如手足](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
+- [奚梦瑶晒婆婆赠送的婚嫁敬茶礼](http://www.daogukj.com/pgdrxeea/)
+- [奚梦瑶给女儿买了可爱版菜篮子](http://www.daogukj.com/7272013)
+- [清澈的爱，只为中国！](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
+- [普京：俄罗斯不会满世界“乞讨”](http://www.daogukj.com/3521407)
+- [天安门放飞10000多只和平鸽](http://www.daogukj.com/9982293)
+- [黄渤称观众看见自己就乐很沮丧，想打破喜剧标签，对此你怎么看？](http://www.movie.hkepx.cn/xiju/3540024.htm)
+- [农民交公粮能否视同缴社保](http://www.movie.hkepx.cn/movie/9307027.htm)
+- [C罗要求葡萄牙主帅公开认错](http://www.movie.hkepx.cn/movie/7494540.htm)
+- [《艾希》十周年续作《艾希：续》众筹开启](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
+- [最美的还是这抹中国红](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
+- [国庆节](http://www.daogukj.com/4973551)
+- [《虹猫蓝兔七侠传》在第 1 部爆火之后，后续的故事应该怎样创作才会成功？](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
+- [为看升旗 天安门前长队一眼望不到头](http://www.daogukj.com/zirrjtcq/)
+- [为什么酒精灯里酒精不用100%浓度而是用95%浓度？](http://www.daogukj.com/pvjkdvkl/)
+- [感受各地浓厚国庆氛围](http://www.movie.hkepx.cn/movie/8281799.htm)
+- [让照片好看，这两个方法都不行啊！](http://www.movie.hkepx.cn/movie/4145451.htm)
+- [这就是中国排面！国旗护卫队步步铿锵](http://www.movie.hkepx.cn/xiju/5480896.htm)
+- [大英花了十年脱欧，现在准备加回去](http://www.movie.hkepx.cn/xiju/6192675.htm)
+- [天安门前看升旗队伍一眼望不到头](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
+- [机票退改的亏我们还要吃多久](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
+- [饮用无醇啤酒不会构成酒驾？假的](http://www.movie.hkepx.cn/movie/8224566.htm)
+- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](http://www.daogukj.com/rdjgxawo/)
+- [如何评价博主星无创作的情景喜剧《是，魏王》？](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
+- [周深在人民日报撰文](http://www.daogukj.com/4280554)
 
 </details>
 
 ## 原始来源
 
-- [警号021544重启](https://www.baidu.com/s?wd=%E8%AD%A6%E5%8F%B7021544%E9%87%8D%E5%90%AF&sa=fyb_news&rsv_dl=fyb_news)
+- [5000架无人机如繁星点亮长江](https://www.toutiao.com/trending/7691298192077324342/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227691298192077324342%22%2C%22hot_board_impr_id%22%3A%2220261001101118CFAEAB95B9BAB4DB3A7A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 947121b96756cca12935 -->
+<!-- content-fingerprint: 1318e9f873102effe2f0 -->

@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 迪拜航空客机事故最新画面
+# 我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？
 
-> 来源：微博热搜 · 排名：第 9 位 · 热度：123791 · 分类：国际时政 · 更新：2026-10-01T07:10:52+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：102 万热度 · 分类：问答 · 更新：2026-10-01T10:11:19+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“迪拜航空客机事故最新画面”位列第 9 位，公开热度指标为 123791，榜单分类为“国际时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？”位列第 9 位，公开热度指标为 102 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：我是一个资深程序员，每天都用AI，现在觉得Agent的能力太强大了，以前至少要3的工作我现在不到1天就完成了，我对AI既推崇又恐惧，恐惧在我认为我最引以为傲的算法设计与开发迭代的工作对AI实现来说是这样容易。虽然我认为目前我还有一定的决策和判断能力，但其余的开发价值已大打折扣，如果AI日新月异，可能早晚我的价值会被抹平，那么我未来的路在哪，该往哪方面发展
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `国际时政`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [国庆畅游千里江山领略家国之美](nan-yuan-bei-zhe.md)
-- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](mai-du-huan-zhu.md)
-- [90后，00的童年的含金量还在一步步提升](ye-gong-hao-long.md)
-- [穆欣月成首位亚运电竞女子冠军](lan-yu-chong-shu.md)
+- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](nan-yuan-bei-zhe.md)
+- [周深人民日报撰文](mai-du-huan-zhu.md)
+- [各大车企9月交付量](ye-gong-hao-long.md)
+- [C罗宣布离开国家队集训营](lan-yu-chong-shu.md)
 
 ## 站内推荐
 
-- [少年儿童高唱我们是共产主义接班人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [马斯克称人人都会有全民高收入](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [奚梦瑶给女儿买了可爱版菜篮子](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [为什么进化中，没有将妊娠和哺乳工作分配给两性，而都由雌性进行？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [《善》善良是什么](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [清澈的爱，只为中国！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [美军灰溜溜走了 伊拉克全国放假4天](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [网友称胖东来九成销售额靠外地游客，是真的吗？若数据真实意味着什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [《艾希》十周年续作《艾希：续》众筹开启](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [《最绝望の小兵》](http://www.daogukj.com/dzgfjkrf/)
-- [第五人格中国队摘金](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
-- [感受各地浓厚国庆氛围](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
-- [赌王之女何超琼称遭骚扰恐吓](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
-- [【给阿嬷的情书】做人得有情义](http://www.daogukj.com/3970663)
-- [家中漏水 维修人员灌了50多斤胶水](http://www.movie.hkepx.cn/movie/5367817.htm)
-- [国庆畅游千里江山领略家国之美](http://www.daogukj.com/bcavubqj/)
-- [罗云熙唯一领衔主演](http://www.daogukj.com/8795484)
-- [警号021544重启](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
-- [当我再次听到这些声音，是不是就代表您从未离开？](http://www.movie.hkepx.cn/xiju/9388208.htm)
-- [华为 赛力斯](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
-- [我爱你中国！庆祝新中国成立77周年](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
-- [孙中山在全世界华人中的地位，凭什么那么高？【历史调研室107】](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
-- [为啥到底谁是中上985，谁是中下985，吵得不可开交，但几乎没人吵谁是中上211，谁是中下211？](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
-- [为看升旗 天安门前长队一眼望不到头](http://www.daogukj.com/3703920)
+- [我压根不担心火影里的忍者会出完](http://www.daogukj.com/dzgfjkrf/)
+- [曝JDG中野JunJia与HongQ 已解约，德杯小方、Angel出战，是真的吗？为啥选择此时解约？](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
+- [最美的还是这抹中国红](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
+- [小米汽车](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
+- [这就是中国排面！国旗护卫队步步铿锵](http://www.daogukj.com/3970663)
+- [男子用土豆当主食半年瘦25斤](http://www.movie.hkepx.cn/movie/5367817.htm)
+- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](http://www.daogukj.com/bcavubqj/)
+- [高速零时免费有车主省下560多元](http://www.daogukj.com/8795484)
+- [5000架无人机如繁星点亮长江](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
+- [外卖小哥送餐时救火 车辆复燃爆炸](http://www.movie.hkepx.cn/xiju/9388208.htm)
+- [成都天府广场4万余人观看升旗仪式](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
+- [天安门放飞10000多只和平鸽](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
+- [7天穿越哀牢山!千万不要随便采菌子!](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
+- [如何评价 10 月 1 号发布的 Gemini 4 Argon？](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
+- [中方对日本首相称呼发生变化](http://www.daogukj.com/3703920)
 - [女子进矿山工作六年被亲戚羡慕](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
-- [高速零时免费有车主省下560多元](http://www.daogukj.com/akojpuxw/)
-- [【起名TV】给我孩子起叫“爆笑小朋友”是几个意思？？？](http://www.movie.hkepx.cn/movie/0307482.htm)
-- [跟我一起在农场度过一天](http://www.movie.hkepx.cn/xiju/4985219.htm)
-- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
-- [中方不再称高市早苗为“首相”](http://www.daogukj.com/sqbgfepf/)
-- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](http://www.daogukj.com/0772573)
-- [《火影忍者》中的我爱罗出场强得不行，后期为什么感觉变弱了？](http://www.daogukj.com/iaiklsqf/)
-- [C罗与葡萄牙主帅各自承认错误](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
-- [迎着清晨第一缕阳光五星红旗冉冉升起](http://www.daogukj.com/iejdmdav/)
-- [兰香如故三小姐侯爷是一见钟情](http://www.daogukj.com/3595629)
-- [以总理称赴以航班飞行员“蓄意坠机”](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
-- [日媒：张本智和常私信搭讪女性](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
-- [为什么不喜欢全民发钱](http://www.daogukj.com/7736560)
-- [扎哈罗娃用中文祝中国人民国庆快乐](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
-- [胖东来将实行每天7小时工作制](http://www.daogukj.com/9580900)
-- [监控拍下云南地震瞬间](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
-- [兄弟如手足](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
-- [人在什么情况下，会展现更真实的自己？](http://www.daogukj.com/lsbolopb/)
-- [穆欣月成首位亚运电竞女子冠军](http://www.daogukj.com/ssuxjwef/)
-- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.daogukj.com/ukxzmdih/)
-- [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/movie/0461195.htm)
-- [美国为何给人工智能改名](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
-- [踹翻孕妇电动车当事司机发声](http://www.movie.hkepx.cn/movie/9527500.htm)
-- [多位艺人巴黎遭盗抢](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
-- [朋友圈的贷款广告为啥突然消失了](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
-- [黄渤称观众看见自己就乐很沮丧，想打破喜剧标签，对此你怎么看？](http://www.daogukj.com/hvfyixhj/)
-- [我家那闺女 剪辑](http://www.movie.hkepx.cn/movie/4719114.htm)
-- [我国最好吃的淡水鱼是什么鱼？](http://www.daogukj.com/jollzwuo/)
-- [单人手搓F站！第一天就把自己干崩溃了...](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
-- [美军灰溜溜走了 伊拉克全国放假4天](http://www.movie.hkepx.cn/movie/4200387.htm)
-- [马斯克称人人都会有全民高收入](http://www.movie.hkepx.cn/xiju/0668299.htm)
-- [奚梦瑶给女儿买了可爱版菜篮子](http://www.movie.hkepx.cn/xiju/2277955.htm)
-- [赛力斯华为合作模式变动](http://www.daogukj.com/7974348)
-- [王楚钦林诗栋因伤退出WTT中国大满贯](http://www.movie.hkepx.cn/xiju/6045140.htm)
+- [多位球星点赞C罗退集训声明](http://www.daogukj.com/akojpuxw/)
+- [美国6只熊猫 日本0只](http://www.movie.hkepx.cn/movie/0307482.htm)
+- [兄弟如手足](http://www.movie.hkepx.cn/xiju/4985219.htm)
+- [周深人民日报撰文](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
+- [网友候补成功睡醒发现车已开走](http://www.daogukj.com/sqbgfepf/)
+- [尽管同为扬州八怪，为何郑板桥声名远远超过其他人物？](http://www.daogukj.com/0772573)
+- [喝无醇啤酒开车不算酒驾？不实](http://www.daogukj.com/iaiklsqf/)
+- [白露两冠一金的19岁](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
+- [12306回应买不到票被迫买长乘短](http://www.daogukj.com/iejdmdav/)
+- [为啥只有8090后的人喜欢用电脑的程度大于手机？](http://www.daogukj.com/3595629)
+- [射击收官中国队冲最后两金](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
+- [女子骑车压速别车被后车司机踹翻](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
+- [为什么没有经历过那个时代听《我的祖国》也就是那首“一条大河波浪宽”那首歌竟然感动的哭了？](http://www.daogukj.com/7736560)
+- [原央视主持人阿丘被通报](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
+- [国庆节](http://www.daogukj.com/9580900)
+- [劫机事件现场：机长浑身是血躺地上](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
+- [大英花了十年脱欧，现在准备加回去](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
+- [什么叫勇者跟被救的公主二阶段打起来了？](http://www.daogukj.com/lsbolopb/)
+- [C罗宣布离开国家队集训营](http://www.daogukj.com/ssuxjwef/)
+- [机票退改的亏我们还要吃多久](http://www.daogukj.com/ukxzmdih/)
+- [国庆天安门广场升国旗完整视频](http://www.movie.hkepx.cn/movie/0461195.htm)
+- [多少明星都没这么多粉丝群](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
+- [媒体：旅客至上不等于“机闹至上”](http://www.movie.hkepx.cn/movie/9527500.htm)
+- [史泰龙：我糟蹋了自己的身体](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
+- [走近八一连女子国旗护卫队](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
+- [【给阿嬷的情书】做人得有情义](http://www.daogukj.com/hvfyixhj/)
+- [专家：房贷新政落地需严防阴阳合同](http://www.movie.hkepx.cn/movie/4719114.htm)
+- [如何评价博主星无创作的情景喜剧《是，魏王》？](http://www.daogukj.com/jollzwuo/)
+- [为看升旗 天安门前长队一眼望不到头](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
+- [现在大家都把国庆当纯放假玩，有没有什么「老派」过节体验？](http://www.movie.hkepx.cn/movie/4200387.htm)
+- [美军灰溜溜走了 伊拉克全国放假4天](http://www.movie.hkepx.cn/xiju/0668299.htm)
+- [25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？](http://www.movie.hkepx.cn/xiju/2277955.htm)
+- [伊朗女歌手演出不戴头巾遭判笞刑74鞭](http://www.daogukj.com/7974348)
+- [如何看待南开大学两位教授胡金牛、陈璟因「实诚」简介再次走红？](http://www.movie.hkepx.cn/xiju/6045140.htm)
 
 </details>
 
 ## 原始来源
 
-- [迪拜航空客机事故最新画面](https://s.weibo.com/weibo?q=%E8%BF%AA%E6%8B%9C%E8%88%AA%E7%A9%BA%E5%AE%A2%E6%9C%BA%E4%BA%8B%E6%95%85%E6%9C%80%E6%96%B0%E7%94%BB%E9%9D%A2)
+- [我是一个资深程序员，30岁，每天都用AI，现在觉得Agent的能力太强大了，我未来的路在哪？](https://www.zhihu.com/question/2083222866280171324)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 175f87dd6c663651fd0b -->
+<!-- content-fingerprint: ea45988248f86f32c156 -->
