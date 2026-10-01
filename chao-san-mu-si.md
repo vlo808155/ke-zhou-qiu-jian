@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 车主等3小时掐点下高速省257元
+# 伊拉克宣布实现国家完全主权
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6759023 · 更新：2026-10-02T00:20:51+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6753575 · 更新：2026-10-02T05:10:09+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“车主等3小时掐点下高速省257元”位列第 11 位，公开热度指标为 6759023。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“伊拉克宣布实现国家完全主权”位列第 11 位，公开热度指标为 6753575。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：国庆假期第一天，车主袁先生为省过路费掐点下高速，单程省下257元。此前，他于9月30日下班后从长沙出发，跨省前往湖北宜昌参加朋友婚礼并帮忙接亲。袁先生表示，省下的钱够覆盖来回电费，结余将加到份子钱里。
+来源公开摘要显示：当地时间10月1日，伊拉克总理扎伊迪发表声明，确认美国主导的国际联盟部队已全部撤离，宣布伊拉克实现国家完全主权。扎伊迪表示将启动解决非国家管控武器问题进程，于2027年6月30日前完成。此前9月30日，扎伊迪宣布联盟部队正式结束在伊任务，同日“伊拉克伊斯兰抵抗运动”发表声明拒绝交出武器。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [女装高退货率逼出2.4米防拆丝带](dui-niu-tan-qin.md)
-- [歌手侯浪救场李克勤爆火粉丝涨到27万](mang-ren-mo-xiang.md)
-- [25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？](yuan-mu-qiu-yu.md)
-- [90后，00的童年的含金量还在一步步提升](sha-ji-qu-luan.md)
+- [林志玲杂志封面近照网友直呼不敢认](dui-niu-tan-qin.md)
+- [华为Mate90系列售价5999元起，余承东称「在内存大涨价的今天，定价很有诚意」，怎样看待这一定价？](mang-ren-mo-xiang.md)
+- [都什么年代，谁还走传统西游路？！！](yuan-mu-qiu-yu.md)
+- [葡萄牙主帅和足协主席追到机场劝C罗](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
-- [《下一个是谁》第七季（5）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [《大回忆时代》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [伊拉克宣布实现国家完全主权](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [“美国白蛾 收你的人来了”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [肖战来了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [我———问你为什么要折断奥特钥匙!！！（大结局下）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [【亿万级特效！】猫核老鼠：量子网球对决！（全程高能！）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [祝福祖国！天安门广场举行国庆升旗仪式](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [2026KPL年度总决赛](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [女装高退货率逼出2.4米防拆丝带](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [高速服务区新能源车充电像排队打饭](http://www.daogukj.com/4141941)
-- [地震瞬间2名护士一手抱一个婴儿疏散](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [《大回忆时代》](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [女装高退货率逼出2.4米防拆丝带](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [机米售货机第二季大合集！](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [如何看待zeta5（ζ5）已经被一个大二学生证明是无理数？](http://www.daogukj.com/7265089)
+- [樊振东波尔同游杜塞尔多夫](http://www.daogukj.com/4141941)
+- [我和我的室友们](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [【亿万级特效！】猫核老鼠：量子网球对决！（全程高能！）](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [林志玲杂志封面近照网友直呼不敢认](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [读者发现番茄小说流量跌跌不休，24年下滑31%，25年下滑26%，今年下滑22%，为什么会出现这情况？](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [全 网 最 漫 长 的 动 画 教 程 4.5](http://www.daogukj.com/7265089)
 - [13岁男孩2小时手搓爱国电视机](http://www.daogukj.com/3085948)
-- [奚梦瑶自曝婆婆5胎剖腹产没坐月子](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [歌手侯浪救场李克勤爆火粉丝涨到27万](http://www.daogukj.com/jtbnzsng/)
-- [探秘日本最贵关东煮，价格差50倍！到底有多好吃？](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [90后，00的童年的含金量还在一步步提升](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [高速等5个小时充电车主发声](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [华为Mate90系列售价5999元起，余承东称「在内存大涨价的今天，定价很有诚意」，怎样看待这一定价？](http://www.daogukj.com/jtbnzsng/)
+- [《下一个是谁》第七季（5）](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [葡萄牙主帅和足协主席追到机场劝C罗](http://www.movie.hkepx.cn/xiju/3032776.htm)
 - [【独家】时光代理人 第三季 PartOne 第9集 坦白【8月国创】](http://www.daogukj.com/5882217)
-- [苏轼一生辗转多地，今天有哪些古迹还能找到他生活、任职或游历过的痕迹？](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [亚运会进入尾声 中国代表团继续冲金](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
 - [华为赛力斯为何光速“复合”](http://www.daogukj.com/0190432)
-- [爸爸扛60多斤女儿看升旗硬扛30多分钟](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [高市早苗真没啥面](http://www.daogukj.com/nzmqevzx/)
-- [25岁画师约稿时遭遇境外网络诈骗，诱导扫码和借贷，被骗4万余元最终坠亡离世，这起悲剧留给我们哪些反思？](http://www.daogukj.com/qnzjxpsz/)
+- [小学生被老师掌掴致耳聋警方终止调查](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [【边狱巴士】“我反复感到我更像自己”Mili-Rendezvous（幽会）默尔索 主题曲 【字幕+演出MV】](http://www.daogukj.com/nzmqevzx/)
+- [都什么年代，谁还走传统西游路？！！](http://www.daogukj.com/qnzjxpsz/)
 - [一时恍惚分不清是在中国还是在澳洲](http://www.daogukj.com/7347029)
 - [中方敦促日方严惩凶犯](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [中国高铁站两对卧龙凤雏](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [83岁老人研究国歌五十年](http://www.movie.hkepx.cn/movie/1119983.htm)
 - [华为赛力斯 复合](http://www.movie.hkepx.cn/xiju/8115054.htm)
 - [500万放余额宝一天的收益](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [C 罗擅自离开葡萄牙队集训或面临最高 6 个月禁赛，这会带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [根本没有这样的冰岛人... | 黄金周假期快乐！【KARDS】](http://www.daogukj.com/2641155)
-- [车企9月销量数据出炉，比亚迪超46万，小米交付超4万台，理想、深蓝交付超3万台，怎样解读各家表现？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [外围股市涨疯了](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [男子用土豆当主食半年瘦25斤，称脂肪肝没了，血压、血糖稳了，真的会这样吗？这种减肥方法适合什么样的人？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [C罗离开后葡萄牙队7号球衣光速易主](http://www.daogukj.com/3850819)
+- [网传一大学生因公选课老师连续缺课，自己上台用AI生成PPT讲了一小时课，是真的吗？暴露了哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [女子扒车门试图阻止高铁关门](http://www.daogukj.com/2641155)
+- [男子用土豆当主食半年瘦25斤，称脂肪肝没了，血压、血糖稳了，真的会这样吗？这种减肥方法适合什么样的人？](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [虎扑女神大赛入围名单](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [车企9月销量数据出炉，比亚迪超46万，小米交付超4万台，理想、深蓝交付超3万台，怎样解读各家表现？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [闫妮坦言一直单身：不介意相亲](http://www.daogukj.com/3850819)
 - [国庆假期流动的中国具象化了](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [如何评价《原神》2026年10月1日更新的幻想真境剧诗（水冰风）？](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [【什么是世面？？？】](http://www.daogukj.com/9307696)
-- [【不是榨菜】击沉一艘航母有多难？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [馒化脸是什么](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [开着“移动小洋楼”去打鸟，是什么体验？小米澎程N90 Max探索版](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [三大运营商全面叫停金融分期「0 元购机」业务，背后有哪些深层原因？已经办理的用户该怎么办？](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [网友称胖东来九成销售额靠外地游客，是真的吗？若数据真实意味着什么？](http://www.daogukj.com/9307696)
+- [机米售货机第二季大合集！](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [宋家三胞胎咖啡厅近照](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [如何判断自己属不属于高认知人群？](http://www.movie.hkepx.cn/xiju/1094677.htm)
 - [如何实现财务自由？](http://www.movie.hkepx.cn/movie/2883011.htm)
 - [韩国人为何比中国人还盼着十一假期](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [中国队155金71银64铜](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [猪油真是血管“杀手”吗](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [【短的发布会】iQOO 电竞宇宙来了，电竞高玩卷到没朋友](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [闫妮坦言一直单身：不介意相亲](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [林志玲杂志封面近照网友直呼不敢认](http://www.daogukj.com/6360237)
+- [高速服务区新能源车充电像排队打饭](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [C罗离开后葡萄牙队7号球衣光速易主](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [高市早苗真没啥面](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [如何看待zeta5（ζ5）已经被一个大二学生证明是无理数？](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [奚梦瑶买的这些衣服我都喜欢](http://www.daogukj.com/6360237)
 - [绵阳越王楼将被拆除？不实](http://www.daogukj.com/7781714)
-- [肖战来了](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [女装高退货率逼出2.4米防拆丝带](http://www.movie.hkepx.cn/xiju/0430082.htm)
 - [张凌赫你这是在干什么](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [章鱼哥，快乐都去哪了呢？](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [南昌举行国庆烟花晚会](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [牛弹琴：迪拜航空客机事故的8个细节](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [101岁老兵天安门看升旗大喊4个万岁](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [《大回忆时代》](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [对刘学义183的身高有了实感](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [空姐改签反应过来是苏州](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [28年前宣称可以审判玩家灵魂的电子游戏，究竟是怎么一回事？](http://www.movie.hkepx.cn/xiju/7034358.htm)
 - [刘学义都三十好几了能没经验吗](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [宙bin国庆国庆杭州游vlog](http://www.daogukj.com/nlksxqaw/)
+- [三年之期已到，恭迎世一上归位！【第12集】](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [车主等3小时掐点下高速省257元](https://www.baidu.com/s?wd=%E8%BD%A6%E4%B8%BB%E7%AD%893%E5%B0%8F%E6%97%B6%E6%8E%90%E7%82%B9%E4%B8%8B%E9%AB%98%E9%80%9F%E7%9C%81257%E5%85%83&sa=fyb_news&rsv_dl=fyb_news)
+- [伊拉克宣布实现国家完全主权](https://www.baidu.com/s?wd=%E4%BC%8A%E6%8B%89%E5%85%8B%E5%AE%A3%E5%B8%83%E5%AE%9E%E7%8E%B0%E5%9B%BD%E5%AE%B6%E5%AE%8C%E5%85%A8%E4%B8%BB%E6%9D%83&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 203a48c1fa920165b156 -->
+<!-- content-fingerprint: 16c8087fc347ff98d8da -->
