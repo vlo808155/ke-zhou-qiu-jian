@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 《下一个是谁》第七季（5）
+# 24位博主为粉丝争夺30万元！
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：1328147 · 分类：日常 · 更新：2026-10-02T08:49:25+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：274089 · 分类：日常 · 更新：2026-10-02T14:29:16+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《下一个是谁》第七季（5）”位列第 9 位，公开热度指标为 1328147，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“24位博主为粉丝争夺30万元！”位列第 9 位，公开热度指标为 274089，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：《下一个是谁》第七季来啦！！ 每期都会抽一台iPhone18 Pro！每期抽奖去主投up主（@在下哲别 ）的主页抽！ 抽奖资金由本期最后一名倒霉蛋出！所以不涉及剧透！
+来源公开摘要显示：这次我们邀请了24位百万粉博主参与一场挑战赛，五大关卡不断淘汰，最终获胜者将为自己的粉丝赢得30万元奖金，谁能获得胜利？和我们一起揭晓答案吧！如果喜欢本期节目，记得多多点赞支持我们！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [时隔5年许鞍华再次检讨《第一炉香》](lan-yu-chong-shu.md)
-- [兰香如故圆房意识流](zi-xiang-mao-dun.md)
-- [伊拉克民众欢庆美军撤离上街放烟花](bei-gong-she-ying.md)
-- [为什么港剧的豪门恩怨，如罗嘉良的创世纪、刘青云的大时代，很受观众的喜爱？而大陆剧的豪门恩怨却让人尴尬？](jing-gong-zhi-niao.md)
+- [TTG对战DYG](lan-yu-chong-shu.md)
+- [河南焦作满街“中国红”](zi-xiang-mao-dun.md)
+- [如何看待樊振东与波尔谈退役时表示「希望多年后人们谈起自己时还能觉得我是一个好人和好球员」？](bei-gong-she-ying.md)
+- [【独家】时光代理人 第三季 PartOne 第9集 坦白【8月国创】](jing-gong-zhi-niao.md)
 
 ## 站内推荐
 
-- [章鱼哥，快乐都去哪了呢？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [我让AI建造了最安全的基地！但它居然囚禁了我…](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [忙活了20个小时炸了47盘的护：打完这单妻离子散，兄弟反目成仇了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [高市早苗真没啥面](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [AI很辣眼，剧情没爆点，新大头X天眼，国庆新片震撼上演【周余】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [当张拿铁知道混血儿就是串](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [《你带你儿子忆苦思甜》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [电影《食神》演员怒斥周星驰](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [亚运会](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [曝C罗退队与迷你罗落选有关](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [皮皮虾梭子蟹价格“大跳水”](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
-- [狗狗害怕打针直接把护士驮走](http://www.daogukj.com/biwoqqwj/)
-- [高市早苗真没啥面](http://www.movie.hkepx.cn/xiju/2248691.htm)
-- [请时刻提醒自己是“一块生肉”](http://www.daogukj.com/0541941)
-- [林志玲杂志封面近照网友直呼不敢认](http://www.movie.hkepx.cn/xiju/2330971.htm)
-- [葡萄牙首次在无C罗情况下打进4球](http://www.movie.hkepx.cn/movie/1952908.htm)
+- [“充电至80%必须离场”](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
+- [为什么全球的水没有慢慢渗到地球内部去，是地精给地球表面做了防渗水吗？](http://www.daogukj.com/biwoqqwj/)
+- [亚运会](http://www.movie.hkepx.cn/xiju/2248691.htm)
+- [普京：买吧 中国汽车又便宜又好](http://www.daogukj.com/0541941)
+- [如何看待北野动物园举办抓美国白蛾毛毛虫大赛，冠军抓超一公斤虫子？此类活动值得全城推广吗？](http://www.movie.hkepx.cn/xiju/2330971.htm)
+- [林锦岐认出许兰香先烧证据](http://www.movie.hkepx.cn/movie/1952908.htm)
 - [江歌妈妈最新发文「10 年维权路，尘埃终将落定」，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7386608.htm)
-- [男子商场内专拍路人拖鞋脚 警察介入](http://www.daogukj.com/cwfgitul/)
-- [中国人专属仪式感](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
-- [央视国庆晚会刘涛明艳动人](http://www.daogukj.com/3149137)
-- [高速等5个小时充电车主发声](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
-- [女子父亲突然离世 邻居1分钟赶到帮忙](http://www.movie.hkepx.cn/movie/1545092.htm)
-- [刘宇宁给小沈阳支招](http://www.movie.hkepx.cn/xiju/3608340.htm)
-- [津巴布韦一直升机坠毁富商夫妇身亡](http://www.daogukj.com/7262388)
-- [101岁老兵天安门看升旗大喊4个万岁](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
-- [猪油真是血管“杀手”吗](http://www.daogukj.com/8314202)
-- [樊振东波尔同游杜塞尔多夫](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
-- [巴基斯坦称空袭阿富汗两地 阿方回应](http://www.movie.hkepx.cn/xiju/5194753.htm)
-- [一时恍惚分不清是在中国还是在澳洲](http://www.movie.hkepx.cn/movie/0714674.htm)
-- [华为赛力斯为何光速“复合”](http://www.movie.hkepx.cn/movie/7940067.htm)
-- [国庆假期流动的中国具象化了](http://www.movie.hkepx.cn/movie/6237029.htm)
-- [我们的飞机不用再飞第二遍了](http://www.movie.hkepx.cn/movie/1586252.htm)
-- [张凌赫你这是在干什么](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
-- [忙活了20个小时炸了47盘的护：打完这单妻离子散，兄弟反目成仇了](http://www.daogukj.com/0480738)
-- [肖战自曝身高183.6](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
-- [肖战要求小朋友喊自己叔叔](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
-- [为什么宇宙的最低温只有-273.15度，最高温却高达1.4亿亿亿亿度?](http://www.movie.hkepx.cn/movie/6914548.htm)
-- [为什么港剧的豪门恩怨，如罗嘉良的创世纪、刘青云的大时代，很受观众的喜爱？而大陆剧的豪门恩怨却让人尴尬？](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
-- [高速服务区新能源车充电像排队打饭](http://www.daogukj.com/8595353)
-- [刘欢家宴做红烧肉](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
-- [动物它们平时在休息，或者在发呆的时候，它们都在想什么问题？会像我们人类一样为了生存思考各种问题吗？](http://www.daogukj.com/gozdpjud/)
-- [如何看待美国田纳西州死刑犯接受两轮致死注射后，不仅没死还打起了鼾？可能是哪个环节的问题？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
-- [张家齐室友把自己的跳水生涯写成小说](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
-- [同样是挤在假期出游，为什么感觉不如学生时代好玩了？](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
-- [男子用土豆当主食半年瘦25斤，称脂肪肝没了，血压、血糖稳了，真的会这样吗？这种减肥方法适合什么样的人？](http://www.movie.hkepx.cn/movie/4558388.htm)
-- [劫机事件凶手双手被绑跪在登机口](http://www.movie.hkepx.cn/movie/4205366.htm)
-- [“没有人可以回到过去 但可以现在开始”](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
-- [我让AI建造了最安全的基地！但它居然囚禁了我…](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
-- [多平台下架儿童装银鳕鱼](http://www.daogukj.com/8939549)
-- [罗永浩因为溜溜凳问题死磕俞敏洪，他为什么对俞敏洪有这么大敌意？](http://www.daogukj.com/ixxuunfh/)
-- [根本没有这样的冰岛人... | 黄金周假期快乐！【KARDS】](http://www.daogukj.com/2398854)
-- [时隔5年许鞍华再次检讨《第一炉香》](http://www.movie.hkepx.cn/movie/0490118.htm)
-- [树的世界](http://www.daogukj.com/utabxjrg/)
-- [欧国联小组赛，葡萄牙 4-2 丹麦，如何评价本场比赛？为啥有球迷在说「缺谁谁尴尬」？](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
-- [博主：华为又捅破了技术天花板](http://www.daogukj.com/uqvpybnb/)
-- [伊拉克民众欢庆美军撤离上街放烟花](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
-- [中国金牌数“断崖式领先”](http://www.movie.hkepx.cn/xiju/5297963.htm)
-- [国庆出行有车辆仅剩1%电量后“趴窝”](http://www.daogukj.com/4768730)
-- [【亿万级特效！】猫核老鼠：量子网球对决！（全程高能！）](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
-- [山东菏泽用一座城的热情祝福祖国](http://www.daogukj.com/6807039)
+- [郑钦文的身价还会涨吗](http://www.daogukj.com/cwfgitul/)
+- [到祖国大江南北邂逅山河盛景](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
+- [农村的消亡可能远超预期](http://www.daogukj.com/3149137)
+- [在国外被中国男演员救了一命](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
+- [世界第一高楼亮起中国红](http://www.movie.hkepx.cn/movie/1545092.htm)
+- [十个 Claude5.5 协作攻克百年汤姆逊难题，这意味着什么？](http://www.movie.hkepx.cn/xiju/3608340.htm)
+- [谢锋：年底前中美元首还有望两度聚首](http://www.daogukj.com/7262388)
+- [《大表哥创业之野生重奶》](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
+- [美国总统特朗普！卖的黄金手机！到底什么样？竟然中国制造？](http://www.daogukj.com/8314202)
+- [高速堵车悬挂免费WiFi司机发声](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
+- [普京称若领土遭袭考虑动用全部武器](http://www.movie.hkepx.cn/xiju/5194753.htm)
+- [国际油价大涨会加速油电替代进程吗](http://www.movie.hkepx.cn/movie/0714674.htm)
+- [中国游客在全世界表白祖国](http://www.movie.hkepx.cn/movie/7940067.htm)
+- [国庆黄金周文旅消费火热可期](http://www.movie.hkepx.cn/movie/6237029.htm)
+- [林志玲杂志封面近照网友直呼不敢认](http://www.movie.hkepx.cn/movie/1586252.htm)
+- [葡媒称 C 罗国家队生涯已结束且做出不可逆决定，如何评价他的国家队生涯？](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
+- [电影《食神》演员怒斥周星驰](http://www.daogukj.com/0480738)
+- [中国亚运军团里的“后浪”真敢](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
+- [《兰香如故》为何能黑马杀出，成为爆款剧集？](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
+- [比亚迪9月销量46.36万辆，连续数月环比增长，如何看待比亚迪目前的销量走势？](http://www.movie.hkepx.cn/movie/6914548.htm)
+- [【独家】时光代理人 第三季 PartOne 第9集 坦白【8月国创】](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
+- [TOP林珍娜承认恋情](http://www.daogukj.com/8595353)
+- [电视剧喜剧之王定档](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
+- [小学生被老师掌掴后耳聋，警方称「归教育部门管」终止调查，到底该归谁管？老师打学生案子为何总被降格处理？](http://www.daogukj.com/gozdpjud/)
+- [继巨型吊牌之后，女装网店启用「防拆带」应对恶意退货，这会更有效吗？有人说市场信任崩溃了，为什么会这样？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
+- [古偶剧名同质化是不是越来越严重了？锦、月、星、梦等字随意排列组合就是一个剧名，为什么会出现这种情况？](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
+- [秋天吃柿子 好处多到想不到](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
+- [《下一个是谁》第七季（5）](http://www.movie.hkepx.cn/movie/4558388.htm)
+- [金店客流暴涨 金镯子半天卖空](http://www.movie.hkepx.cn/movie/4205366.htm)
+- [《原神》剧情PV-「燕归来」](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
+- [《你带你儿子忆苦思甜》](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
+- [莫氏鸡煲总店员工从180人减至30多人](http://www.daogukj.com/8939549)
+- [如何看待一男子在广西柳州站擅自爬上D1884次动车车顶遭电击坠落，官方称该男子暂无生命危险？](http://www.daogukj.com/ixxuunfh/)
+- [华为Mate90ProMax顶配版成销售主力](http://www.daogukj.com/2398854)
+- [TTG对战DYG](http://www.movie.hkepx.cn/movie/0490118.htm)
+- [孙千1条日常分享带6个广](http://www.daogukj.com/utabxjrg/)
+- [清华北大是本身有含金量，还是因为13亿人高考内卷出来的排名靠前的学生有含金量？](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
+- [同样是挤在假期出游，为什么感觉不如学生时代好玩了？](http://www.daogukj.com/uqvpybnb/)
+- [如何看待樊振东与波尔谈退役时表示「希望多年后人们谈起自己时还能觉得我是一个好人和好球员」？](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
+- [韩国人为何比中国人还盼着十一假期](http://www.movie.hkepx.cn/xiju/5297963.htm)
+- [韩国：若乌拒不道歉将采取进一步措施](http://www.daogukj.com/4768730)
+- [章鱼哥，快乐都去哪了呢？](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
+- [为什么港剧的豪门恩怨，如罗嘉良的创世纪、刘青云的大时代，很受观众的喜爱？而大陆剧的豪门恩怨却让人尴尬？](http://www.daogukj.com/6807039)
 
 </details>
 
 ## 原始来源
 
-- [《下一个是谁》第七季（5）](https://b23.tv/BV1cAYP6YEvj)
+- [24位博主为粉丝争夺30万元！](https://b23.tv/BV15far6dEjT)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3b9ba39a92ea52b120eb -->
+<!-- content-fingerprint: fb74ebaad4361de783a5 -->
