@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 章鱼哥，快乐都去哪了呢？
+# 世上无灵丹妙药，谨防老年人诈骗
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：3067497 · 分类：影视剪辑 · 更新：2026-10-03T06:30:54+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：649891 · 分类：小剧场 · 更新：2026-10-03T09:23:32+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“章鱼哥，快乐都去哪了呢？”位列第 9 位，公开热度指标为 3067497，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“世上无灵丹妙药，谨防老年人诈骗”位列第 9 位，公开热度指标为 649891，榜单分类为“小剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：如果累到 浑身都乏力 好好睡一觉 呼吸新空气 收拾好 工作带来的坏情绪 慢慢去寻找 快乐的意义... 编曲：RedTigerMusic 音频协助：@是初莫喵a pv协助：@一夕Clarence 混音：@biuC做事很认真 ———————————————————————— 黄绿合战Day.8 对阵作品：BV1SVad6XEb1， 投票传送门： https://www.bilibili.com/blackboard/era/yellowVSgreen11th.html
+来源公开摘要显示：-
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `小剧场`
 
 ## 相关热点
 
-- [董路：国足这么踢日本可能要输0-15](lan-yu-chong-shu.md)
-- [男童父亲已与老板商量雨棚赔偿事宜](zi-xiang-mao-dun.md)
-- [全世界都知道中国人放假了](bei-gong-she-ying.md)
-- [如果英雄联盟有个英雄的被动是“你的所有装备价格翻倍但获得双倍属性”厉害吗？](jing-gong-zhi-niao.md)
+- [巴勒斯坦男足目前没有主场](lan-yu-chong-shu.md)
+- [葡足协主席希望C罗能体面谢幕](zi-xiang-mao-dun.md)
+- [邵佳一：从未经历如此苦涩的失利](bei-gong-she-ying.md)
+- [你认为《信长之野望》最经典可玩性最好的是哪一部？](jing-gong-zhi-niao.md)
 
 ## 站内推荐
 
-- [ピノキオピー - えねみぃ feat. 初音ミク・重音テト](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
 - [生活中的保命小技巧全集](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [【宋雨琦】 ‘I Like You’ Official Music Video](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [武汉地铁现央视同款《橘颂》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [意大利公交中国人太多挤到刷不上卡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [《断枪》一把从没打响过的枪，却要了所有恶人的命](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [你再看看你后面呢！!](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [“饿死肿瘤”的方法竟然真找到了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男子偶遇烈士纪念碑 留下国旗后哽咽](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
-- [众人照明助男子迎朝霞擎国旗登上山巅](http://www.daogukj.com/biwoqqwj/)
-- [武汉地铁现央视同款《橘颂》](http://www.movie.hkepx.cn/xiju/2248691.htm)
-- [“像造车一样盖房”真的来了](http://www.daogukj.com/0541941)
-- [奚梦瑶曝婆婆5胎剖腹产没坐月子](http://www.movie.hkepx.cn/xiju/2330971.htm)
-- [大太太去世林锦岐伤心欲绝](http://www.movie.hkepx.cn/movie/1952908.htm)
+- [“这是国际社会前所未闻的恶性事件”](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
+- [林珍娜洗了5次纹身一次麻药都没涂过](http://www.daogukj.com/biwoqqwj/)
+- [你再看看你后面呢！!](http://www.movie.hkepx.cn/xiju/2248691.htm)
+- [女子查出癌症花光积蓄旅游肿瘤变小](http://www.daogukj.com/0541941)
+- [王一博陈都灵大秀同框](http://www.movie.hkepx.cn/xiju/2330971.htm)
+- [迪拜航空机长被刺仍开舱门](http://www.movie.hkepx.cn/movie/1952908.htm)
 - [CFA 友谊赛，中国男足 0-5 巴勒斯坦，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/7386608.htm)
-- [肖战得闲谨制收视率](http://www.daogukj.com/cwfgitul/)
+- [巴勒斯坦主帅来自加沙地带](http://www.daogukj.com/cwfgitul/)
 - [万里边关 同升五星红旗](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
-- [“这是国际社会前所未闻的恶性事件”](http://www.daogukj.com/3149137)
-- [国足首发身价不及巴勒斯坦一半](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
-- [“饿死肿瘤”的方法竟然真找到了](http://www.movie.hkepx.cn/movie/1545092.htm)
-- [17年果粉买到华为Mate90激动到结巴](http://www.movie.hkepx.cn/xiju/3608340.htm)
-- [EDG](http://www.daogukj.com/7262388)
-- [为什么现在的rts游戏出一部暴死一部？](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
-- [《原神》至冬宫地下封印的“第三降临者的遗产”到底是什么？](http://www.daogukj.com/8314202)
-- [张馨予化完雀斑妆问老公好不好看](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
-- [巴勒斯坦球员回应5比0国足](http://www.movie.hkepx.cn/xiju/5194753.htm)
-- [国足主帅回应0-5惨败](http://www.movie.hkepx.cn/movie/0714674.htm)
-- [75岁王石重返房地产](http://www.movie.hkepx.cn/movie/7940067.htm)
+- [15万人广场上她把孩子交给女警](http://www.daogukj.com/3149137)
+- [人可以和不爱的人过一生吗](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
+- [吃自助被送急诊 胃里取出3斤残渣](http://www.movie.hkepx.cn/movie/1545092.htm)
+- [美法德英意日加7国将共同行动](http://www.movie.hkepx.cn/xiju/3608340.htm)
+- [一棵树如何“杀死”另一棵树](http://www.daogukj.com/7262388)
+- [C罗官宣离队后葡萄牙队掉粉超百万](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
+- [俄军失守乌东重镇红利曼](http://www.daogukj.com/8314202)
+- [沈腾李小冉也没戏拍了吗](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
+- [黄河“鸳鸯锅”出圈](http://www.movie.hkepx.cn/xiju/5194753.htm)
+- [2.4米防拆丝带能救女装吗](http://www.movie.hkepx.cn/movie/0714674.htm)
+- [邵佳一致歉：我接受一切批评](http://www.movie.hkepx.cn/movie/7940067.htm)
 - [多部门多措并举保障国庆公路出行](http://www.movie.hkepx.cn/movie/6237029.htm)
-- [黄景瑜王安宇白敬亭最近忙的连轴转](http://www.movie.hkepx.cn/movie/1586252.htm)
-- [中国制造凭什么打开欧洲市场](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
-- [【宋雨琦】 ‘I Like You’ Official Music Video](http://www.daogukj.com/0480738)
-- [陈芋汐斩获亚运双金感谢祖国](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
-- [靠带错路一战成名的粤J2888T来洛阳了](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
-- [如何评价小沈阳夫妇主演的喜剧电影《什么意思夫妇》？](http://www.movie.hkepx.cn/movie/6914548.htm)
-- [如果英雄联盟有个英雄的被动是“你的所有装备价格翻倍但获得双倍属性”厉害吗？](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
-- [17岁小将赵松源回应惨败巴勒斯坦](http://www.daogukj.com/8595353)
-- [沈腾李小冉也没戏拍了吗](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
-- [清华北大是本身有含金量，还是因为13亿人高考内卷出来的排名靠前的学生有含金量？](http://www.daogukj.com/gozdpjud/)
-- [莫氏鸡煲总店员工从180人减至30多人，国庆假期上座率仅六成，为啥网红餐厅总难逃流量暴跌的命运？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
-- [敦煌鸣沙山游客坐满整座山](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
-- [名侦探凑企鹅](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
-- [江歌妈妈最新发文「10 年维权路，尘埃终将落定」，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/4558388.htm)
-- [Zara新品裙子上线就售罄：6000多一条](http://www.movie.hkepx.cn/movie/4205366.htm)
-- [【亿万级特效！】猫核老鼠：量子网球对决！（全程高能！）](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
+- [韩媒：中国男足这样还能进世界杯吗](http://www.movie.hkepx.cn/movie/1586252.htm)
+- [电视剧 婚恋观](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
+- [《断枪》一把从没打响过的枪，却要了所有恶人的命](http://www.daogukj.com/0480738)
+- [江秋莲官司八年变公诉案件](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
+- [德约希望布云朝克特下一场别打这么好](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
+- [你们在山东碰到「鱼头酒」的问题了吗？](http://www.movie.hkepx.cn/movie/6914548.htm)
+- [你认为《信长之野望》最经典可玩性最好的是哪一部？](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
+- [邵佳一 生涯最大失利](http://www.daogukj.com/8595353)
+- [蔡天凤失踪前曾致电多人](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
+- [美国9月非农就业人数增加2.9万人，大幅低于预期，对美联储决策和全球市场有何影响？](http://www.daogukj.com/gozdpjud/)
+- [中国的AI短剧发展得如火如荼，而国外AI短剧却没怎么发展起来，是什么原因？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
+- [刘嘉玲花几十万请繁花团吃豪华大餐](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
+- [危险！胃险？薇险！【手搓动画大赛】](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
+- [如何评价极客湾最新视频《逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？》？](http://www.movie.hkepx.cn/movie/4558388.htm)
+- [曲棍球队姑娘们赛后都哭了](http://www.movie.hkepx.cn/movie/4205366.htm)
+- [你离开的事实原创高至豪偶遇粉丝，于是为她演奏一曲](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
 - [生活中的保命小技巧全集](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
-- [客机遇险细节太震撼](http://www.daogukj.com/8939549)
-- [继巨型吊牌之后，女装网店启用「防拆带」应对恶意退货，这会更有效吗？有人说市场信任崩溃了，为什么会这样？](http://www.daogukj.com/ixxuunfh/)
-- [青海一汽车夜间行驶撞上野鹿](http://www.daogukj.com/2398854)
-- [董路：国足这么踢日本可能要输0-15](http://www.movie.hkepx.cn/movie/0490118.htm)
-- [国足没找回信心反崩了盘](http://www.daogukj.com/utabxjrg/)
-- [为什么很少有可乐造假？](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
-- [为什么维生素只有 ABCDE和K，中间跳过了 FGHIJ？](http://www.daogukj.com/uqvpybnb/)
-- [全世界都知道中国人放假了](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
-- [王俊凯闪身步](http://www.movie.hkepx.cn/xiju/5297963.htm)
-- [9月新势力车企销量冰火两重天](http://www.daogukj.com/4768730)
-- [逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
-- [C罗不满儿子落选葡萄牙U16](http://www.daogukj.com/6807039)
+- [王楚钦说要重新考虑接下来的路](http://www.daogukj.com/8939549)
+- [新能源车事故维修平均费用达燃油车 1.7 倍，电车「修不起」的根本原因是什么？车主的用车成本该怎么算？](http://www.daogukj.com/ixxuunfh/)
+- [【宋雨琦】 ‘I Like You’ Official Music Video](http://www.daogukj.com/2398854)
+- [巴勒斯坦男足目前没有主场](http://www.movie.hkepx.cn/movie/0490118.htm)
+- [你敢信？我在太平洋赶海竟然发现上百斤重的巨型砗磲！这么大的家伙，吃起来什么味道？](http://www.daogukj.com/utabxjrg/)
+- [1000桶水中两桶有毒，猪喝毒水后会在15分钟内死去，想用一个小时找到毒水，至少需要几只猪？如何实现？](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
+- [俄乌冲突下的俄罗斯经济如何](http://www.daogukj.com/uqvpybnb/)
+- [邵佳一：从未经历如此苦涩的失利](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
+- [非洲这三国掐起来了](http://www.movie.hkepx.cn/xiju/5297963.htm)
+- [评论员：国足不缺“药方”缺“良药”](http://www.daogukj.com/4768730)
+- [如何用5分钟让听日语歌的和唱中文歌的都沉默☝️](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
+- [C罗风波中谁责任最大](http://www.daogukj.com/6807039)
 
 </details>
 
 ## 原始来源
 
-- [章鱼哥，快乐都去哪了呢？](https://b23.tv/BV1mjad6DEK1)
+- [世上无灵丹妙药，谨防老年人诈骗](https://b23.tv/BV1Eqa26jEhm)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 544cadca42e39940912d -->
+<!-- content-fingerprint: 59f527e86d5e6563b10f -->
