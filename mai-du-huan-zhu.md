@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《依旧忆苦思甜》
+# 国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：2296351 · 分类：日常 · 更新：2026-10-05T17:31:19+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：109 万热度 · 分类：问答 · 更新：2026-10-06T02:48:21+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《依旧忆苦思甜》”位列第 9 位，公开热度指标为 2296351，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？”位列第 9 位，公开热度指标为 109 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：境外组织借“医疗检测”之名非法采集人血样，窃取我国基因资源！国安部今天（10月4日）发布提醒，近年来有个别境外组织非法采集人血样，实际另有所图！ 2025年，广州海关破获一起特大走私孕妇血样系列案，涉案团伙累计走私出境孕妇血液样本超10万人份，非法获利超3000万元，涉案范围覆盖全国23个省份。经查，该团伙在社交平台发广告，用所谓“无创胎儿性别鉴定”“遗传病筛查”做噱头，打造采血、运输、报关、境外接收的完整黑色产业链。 事实上，血液样本一旦被境外机构拿去做基因分析、窃取数据，将直接威胁公民生物信息安全，如果被别有用心者用来研发“基因武器”，更将给公共安全
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [《兰香如故》拍出了人死前的视角](ye-gong-hao-long.md)
-- [郑钦文进中网16强](lan-yu-chong-shu.md)
-- [鲍军峰被抓画面曝光](zi-xiang-mao-dun.md)
-- [为什么现在老外纷纷开始给游戏加中文并且设立国区最低价？](bei-gong-she-ying.md)
+- [《我上哪给你整假的》](ye-gong-hao-long.md)
+- [孙心然0比2高芙无缘16强](lan-yu-chong-shu.md)
+- [缅北电诈园区枪决底层人员](zi-xiang-mao-dun.md)
+- [中方曾三次约见缅北四大家族代表](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [世乒联最新世界排名来了，松岛辉空首次名列榜首，王楚钦掉到了第四，孙颖莎重回第一，怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [当 代 假 期 现 状](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [你吃饭老跟我闺蜜互动什么呀？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [《我上哪给你整假的》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [曝代露娃家破产母亲做月嫂供其追梦](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [中方工作组曾 3 次约见果敢「四大家族」代表但收效甚微，背后的深层原因是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [女高管称一周之内和马斯克从相爱走到「被分手」，两人共育有4个孩子，马斯克对待亲密关系是否有规律？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [明军有大炮，后金没有，为什么萨尔浒之战明军还输了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [这种鞋可能正在毁掉你的脚](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [人在东北澡堂 没有AI的一天](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [粤J2888T来到洛阳重渡沟被交通锥围住](http://www.daogukj.com/9193901)
-- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [十一假期返程安全提示](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [三个月宝宝打完针自己拿棉签按针眼](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [38岁体制内干部求助大冰](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [如何在一天中长时间专注做一件事情？](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [当 代 假 期 现 状](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [沈腾说王楚然翻白眼教科书来了](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [再见了地球](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [郑钦文进中网16强](http://www.daogukj.com/1877942)
-- [有哪些演员演了完全不符合本人气质的角色，结果却意外封神？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [贵是贵了点 但吃了不烧心](http://www.daogukj.com/nuqwxjlx/)
-- [《我上哪给你整假的》](http://www.daogukj.com/4054231)
-- [特警礼貌拒绝老外过于热情的动作](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [蔡康永 太平轮沉船](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [嗯！?怎么还有弹窗广告](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [日本罕见1天3次向美国强烈抗议](http://www.daogukj.com/9193901)
+- [明珍珍临刑前画面曝光](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [中国空心光纤网速更快了](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [G.E.M. 邓紫棋【自由的你】启程版 Official Lyric Video (4K)](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [刘学义没对谭松韵用绅士手](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [【春物语】我的婚后生活果然有问题 第1话：于是，结婚半年的两人还没叫过对方的名字。](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [女高管称一周之内和马斯克从相爱走到「被分手」，两人共育有4个孩子，马斯克对待亲密关系是否有规律？](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [中网广告牌闪动致重赛](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [华为与高通达成协议](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [孙心然0比2高芙无缘16强](http://www.daogukj.com/1877942)
+- [你对于 2026 年诺贝尔物理学奖的预测是什么？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [蔡天凤尸检结果出炉](http://www.daogukj.com/nuqwxjlx/)
+- [这种鞋可能正在毁掉你的脚](http://www.daogukj.com/4054231)
+- [游客下地割出9000碗米饭](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [专家揭秘心血管“隐形杀手”](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [为何日本的铁轨坚持不和世界统一？一直用窄轨，有什么好处？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
 - [《诡异的她》第一季全集·纯享](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [《布达佩斯大饭店》中大面积用粉色为什么不觉得土？](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [为何日本的铁轨坚持不和世界统一？一直用窄轨，有什么好处？](http://www.daogukj.com/ygpoeeya/)
-- [女子被缅北电诈血本无归投河自尽](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [蔡康永说是市长邀请自己去的](http://www.daogukj.com/9246627)
-- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.daogukj.com/2490072)
-- [李勒优 崔晋](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [Mili - Rendezvous（密会）【边狱巴士】](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [家庭经济一般，孩子成绩摆烂，是努力托举上补习班还是躺？](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [曝代露娃家破产母亲做月嫂供其追梦](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [看这个视频我不烧心！](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [张本智和称对手发球时故意拖延时间](http://www.daogukj.com/8715491)
-- [惊惊惊惊惊惊惊惊了](http://www.daogukj.com/4788107)
-- [梦之bug](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [日本罕见1天3次向美国强烈抗议](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [缅北电诈回流人员自述被割肾经历](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [《大明王朝1566》里「改稻为桑」这么一个虚构出来的议题，本来解决起来很简单，怎么就搞得这么复杂？](http://www.daogukj.com/3872248)
-- [年轻人十一出片全靠15元次抛衣](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [鲍军峰被抓画面曝光](http://www.daogukj.com/sguhnydl/)
-- [芒果台这双眼到底能看多远](http://www.daogukj.com/6123602)
-- [为什么现在老外纷纷开始给游戏加中文并且设立国区最低价？](http://www.daogukj.com/7243934)
-- [央视公开佤邦副总司令落网画面](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [华为与高通达成协议](http://www.daogukj.com/fgkxwaik/)
-- [敢为人先，向前走，心就属于自己](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [乘联分会称 2026 年 1-8 月中国占世界汽车份额回落至 32%，背后原因有哪些？](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [对蔡康永为“台独”分子站台零容忍](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [WTT祝贺孙颖莎重返世排第一](http://www.daogukj.com/4800229)
-- [张本智和吐槽对手：想赢高手只能乱打](http://www.daogukj.com/1329201)
-- [孙颖莎在中国大满贯面临哪些挑战](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [“实验室制取培根”](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [你吃饭老跟我闺蜜互动什么呀？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [凡事尽力而为 最是圆满](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.daogukj.com/ygpoeeya/)
+- [未来几年能留住现金流最重要](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.daogukj.com/9246627)
+- [代露娃真的不吃香菜吗](http://www.daogukj.com/2490072)
+- [代露娃掉粉](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [⚡️黄仁勋 世界巡演⚡️【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [连续抛硬币出了十次正面，第十一次选反面真的更聪明吗？](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [《AIZO》司凤版😍乙骨听完整个人都通透了，轻松新宿一串二【AI音乐】](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [人在东北澡堂 没有AI的一天](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [大学生挑战国庆7天一个人爆改包浆宿舍](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [华为与高通宣布达成广泛专利许可协议，意味着什么？释放了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [曝腾讯退了几部大剧](http://www.daogukj.com/8715491)
+- [看这个视频我不烧心！](http://www.daogukj.com/4788107)
+- [医生辟谣「高铁座椅或为HPV感染重灾区」，这个说法怎么来的？坐高铁有必要使用一次性座套吗？](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [中方10分钟收网缅北四大家族重要成员](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [大兴安岭的秋看一眼就醉了](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [做饭是件很有趣的事，你喜欢做饭吗？](http://www.daogukj.com/3872248)
+- [游客免费住宿舍学生同意了吗](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [缅北电诈园区枪决底层人员](http://www.daogukj.com/sguhnydl/)
+- [缅北电诈回流人员自述被割肾经历](http://www.daogukj.com/6123602)
+- [中方曾三次约见缅北四大家族代表](http://www.daogukj.com/7243934)
+- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [林绣茹救了许兰香](http://www.daogukj.com/fgkxwaik/)
+- [【抢先看】重回2002，永不空军的鱼竿被军方收编？军方进仓库一看：激光炮手电、隐身涂层、全球降雨弹……你管这叫鱼竿？](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [老外动作过于热情女特警礼貌拒绝](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [建议大家买房一定要远离公园](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [肖战全世界正数第一严谨之人](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [巨型“充电宝”驶进多地服务区](http://www.daogukj.com/4800229)
+- [男子收到短信吓懵：欠费16.1亿元](http://www.daogukj.com/1329201)
+- [刘亦菲一下子加了五个代言](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [老君山1元午餐火了](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [明军有大炮，后金没有，为什么萨尔浒之战明军还输了？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [《依旧忆苦思甜》](https://b23.tv/BV1mEad6JEs8)
+- [国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？](https://www.zhihu.com/question/2090049001483661702)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 16f858369f07a47320e4 -->
+<!-- content-fingerprint: 5328d5ef2bcc0b958568 -->
