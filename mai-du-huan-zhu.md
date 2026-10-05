@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 多地影院试水体育赛事大屏直播，能成为影院摆脱经营困境的良药吗？
+# 《依旧忆苦思甜》
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：113 万热度 · 分类：问答 · 更新：2026-10-05T10:25:00+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：2296351 · 分类：日常 · 更新：2026-10-05T17:31:19+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“多地影院试水体育赛事大屏直播，能成为影院摆脱经营困境的良药吗？”位列第 9 位，公开热度指标为 113 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《依旧忆苦思甜》”位列第 9 位，公开热度指标为 2296351，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近期，在电影院“沉浸式”观赛，成为不少球迷看球的新方式。27日，在2026—2027赛季德国乒乓球甲级联赛的比赛中，中国运动员樊振东代表杜塞尔多夫俱乐部主场出战，这场比赛吸引了众多球迷来到电影院观看。 多家影城也准备了相应的活动套餐，带动了非票收入。今年以来，全国已有超千家影院尝试引入体育赛事直播，内容涵盖足球、篮球、电竞甚至斯诺克等。 视频丨电影院开辟新赛道！以后能去电影院看体育赛事了
+来源公开摘要显示：-
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [这个bug好啊，这才是我想要的角色界面](ye-gong-hao-long.md)
-- [邓紫棋演唱会大屏一侧起火](lan-yu-chong-shu.md)
-- [刘国正称王楚钦单核扛重担压力巨大](zi-xiang-mao-dun.md)
-- [美专家：欧洲对华贸易可走第三条道路](bei-gong-she-ying.md)
+- [《兰香如故》拍出了人死前的视角](ye-gong-hao-long.md)
+- [郑钦文进中网16强](lan-yu-chong-shu.md)
+- [鲍军峰被抓画面曝光](zi-xiang-mao-dun.md)
+- [为什么现在老外纷纷开始给游戏加中文并且设立国区最低价？](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [孩子说周末就要睡个懒觉，不要叫他，让他自然醒，你怎么看？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [为什么感觉现在的东西越来越便宜呢？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [多名小孩用充电枪荡秋千 客服回应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [日本罕见1天3次强烈抗议美国](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [世乒联最新世界排名来了，松岛辉空首次名列榜首，王楚钦掉到了第四，孙颖莎重回第一，怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [当 代 假 期 现 状](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [你吃饭老跟我闺蜜互动什么呀？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [《我上哪给你整假的》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [曝代露娃家破产母亲做月嫂供其追梦](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [你对于 2026 年诺贝尔生理学或医学奖的预测是什么？](http://www.daogukj.com/9193901)
-- [齐达内力挺C罗](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [中国代表团亚运闭幕式亮相](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [看完不笑的可以确诊为抑郁了](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [过期但可以正常使用的物品](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [Mili - Rendezvous（密会）【边狱巴士】](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [孩子说周末就要睡个懒觉，不要叫他，让他自然醒，你怎么看？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [我的妻子竟然是我的妻子](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [“国民辣酱”老干妈也用上AI](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [邓紫棋演唱会大屏一侧起火](http://www.daogukj.com/1877942)
-- [神雕结尾，郭靖为什么不再称呼周伯通大哥，反而称周老爷子？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [代露娃父母 托举](http://www.daogukj.com/nuqwxjlx/)
-- [多名小孩用充电枪荡秋千 客服回应](http://www.daogukj.com/4054231)
-- [央媒曝光外卖“明厨亮灶”造假](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [国家队亚运会闭幕发文](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [为什么感觉在店里喝到的茶叶，总比自己泡的好喝呢？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [【春物语】我的婚后生活果然有问题 第1话：于是，结婚半年的两人还没叫过对方的名字。](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [十八路诸侯小纵队与乌角鲨](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [国庆出行购票藏骗局？警惕诈骗陷阱](http://www.daogukj.com/ygpoeeya/)
-- [央视披露缅北电诈真实案例](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [国庆出行警惕票务诈骗陷阱](http://www.daogukj.com/9246627)
-- [官方通报“阿尔山景区200一晚酒店”](http://www.daogukj.com/2490072)
-- [原中国电信集团员工实名举报](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [近期画的](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [于是我写了一首歌（原版）](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [当 代 假 期 现 状](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [日本罕见1天3次强烈抗议美国](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [《依旧忆苦思甜》](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [刘学义回复孔令美](http://www.daogukj.com/8715491)
-- [广州街唱《万疆》唱到一半，李玉刚本人来了？！](http://www.daogukj.com/4788107)
-- [欧国联A级联赛第4轮，葡萄牙2比1挪威提前2轮出线，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [粤J2888T来到洛阳重渡沟被交通锥围住](http://www.daogukj.com/9193901)
+- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [十一假期返程安全提示](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [三个月宝宝打完针自己拿棉签按针眼](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [38岁体制内干部求助大冰](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [如何在一天中长时间专注做一件事情？](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [当 代 假 期 现 状](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [沈腾说王楚然翻白眼教科书来了](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [再见了地球](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [郑钦文进中网16强](http://www.daogukj.com/1877942)
+- [有哪些演员演了完全不符合本人气质的角色，结果却意外封神？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [贵是贵了点 但吃了不烧心](http://www.daogukj.com/nuqwxjlx/)
+- [《我上哪给你整假的》](http://www.daogukj.com/4054231)
+- [特警礼貌拒绝老外过于热情的动作](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [蔡康永 太平轮沉船](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [嗯！?怎么还有弹窗广告](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [《诡异的她》第一季全集·纯享](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [《布达佩斯大饭店》中大面积用粉色为什么不觉得土？](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [为何日本的铁轨坚持不和世界统一？一直用窄轨，有什么好处？](http://www.daogukj.com/ygpoeeya/)
+- [女子被缅北电诈血本无归投河自尽](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [蔡康永说是市长邀请自己去的](http://www.daogukj.com/9246627)
+- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.daogukj.com/2490072)
+- [李勒优 崔晋](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [Mili - Rendezvous（密会）【边狱巴士】](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [家庭经济一般，孩子成绩摆烂，是努力托举上补习班还是躺？](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [曝代露娃家破产母亲做月嫂供其追梦](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [看这个视频我不烧心！](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [女网红参加柏林马拉松比赛，却通过骑自行车作弊，后因被当地人拍照揭发而道歉，如何看待这一现象？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [张本智和称对手发球时故意拖延时间](http://www.daogukj.com/8715491)
+- [惊惊惊惊惊惊惊惊了](http://www.daogukj.com/4788107)
+- [梦之bug](http://www.movie.hkepx.cn/movie/0622898.htm)
 - [日本罕见1天3次向美国强烈抗议](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [名古屋亚组委主席就赛事运行问题致歉](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [我总感觉昆虫从受到致命伤到完全死亡需要的时间比哺乳动物要多好久？事实真的如此吗？](http://www.daogukj.com/3872248)
-- [杭州商K大面积关停](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [刘国正称王楚钦单核扛重担压力巨大](http://www.daogukj.com/sguhnydl/)
-- [葡萄牙2-1逆转挪威提前进欧国联八强](http://www.daogukj.com/6123602)
-- [美专家：欧洲对华贸易可走第三条道路](http://www.daogukj.com/7243934)
-- [地球是不是诞生的太晚了？](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [普宁考生称因HIV被拒教师入职](http://www.daogukj.com/fgkxwaik/)
-- [梦之bug](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [德总理会见乌总统警报爆炸声不断](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [代露娃 献祭父母](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [李勒优是被利用的最惨的一个](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [李昊：无所谓 反正他们踢不进](http://www.daogukj.com/4800229)
-- [75岁王石要再造一个“万科”吗](http://www.daogukj.com/1329201)
-- [蔡康永账号IP在日本](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [德总理会见泽连斯基 现场响起爆炸声](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [为什么感觉现在的东西越来越便宜呢？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [缅北电诈回流人员自述被割肾经历](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [《大明王朝1566》里「改稻为桑」这么一个虚构出来的议题，本来解决起来很简单，怎么就搞得这么复杂？](http://www.daogukj.com/3872248)
+- [年轻人十一出片全靠15元次抛衣](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [鲍军峰被抓画面曝光](http://www.daogukj.com/sguhnydl/)
+- [芒果台这双眼到底能看多远](http://www.daogukj.com/6123602)
+- [为什么现在老外纷纷开始给游戏加中文并且设立国区最低价？](http://www.daogukj.com/7243934)
+- [央视公开佤邦副总司令落网画面](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [华为与高通达成协议](http://www.daogukj.com/fgkxwaik/)
+- [敢为人先，向前走，心就属于自己](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [乘联分会称 2026 年 1-8 月中国占世界汽车份额回落至 32%，背后原因有哪些？](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [对蔡康永为“台独”分子站台零容忍](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [WTT祝贺孙颖莎重返世排第一](http://www.daogukj.com/4800229)
+- [张本智和吐槽对手：想赢高手只能乱打](http://www.daogukj.com/1329201)
+- [孙颖莎在中国大满贯面临哪些挑战](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [“实验室制取培根”](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [你吃饭老跟我闺蜜互动什么呀？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [多地影院试水体育赛事大屏直播，能成为影院摆脱经营困境的良药吗？](https://www.zhihu.com/question/2088150134689362273)
+- [《依旧忆苦思甜》](https://b23.tv/BV1mEad6JEs8)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 272538d7b79b82fb643e -->
+<!-- content-fingerprint: 16f858369f07a47320e4 -->
