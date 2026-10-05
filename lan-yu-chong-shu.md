@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 十一游客流行“跳城游”
+# 邓紫棋演唱会大屏一侧起火
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6943383 · 更新：2026-10-05T07:37:07+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6950725 · 更新：2026-10-05T10:25:00+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“十一游客流行“跳城游””位列第 9 位，公开热度指标为 6943383。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“邓紫棋演唱会大屏一侧起火”位列第 9 位，公开热度指标为 6950725。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：今年双节假期，“多城串游”热度持续上升。数据显示，通过飞机、高铁串联多城的游客同比增长14%，约两成游客住进“第二城”。其背后原因是立体交通网络不断完善，如9月28日京港高铁等四条高铁同步开通提升通达性。
+来源公开摘要显示：10月5日，多位网友发视频称，邓紫棋10月4日在深圳的演唱会大屏一侧起火。有网友自称观众表示，起火未影响实际演出。此前，演唱会现场下暴雨，邓紫棋坚持冒雨唱完，台下观众留守观看。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [网友称联系朋友只为找优越感](zi-xiang-mao-dun.md)
-- [部分一线城市月供接近房租说明啥](bei-gong-she-ying.md)
-- [周扬青自嘲脸「馒化」了，什么是「馒化脸」？医美技术发展能避免这种情况吗？](jing-gong-zhi-niao.md)
-- [亚连有点强度都在斩杀上了](hu-jia-hu-wei.md)
+- [刘国正称王楚钦单核扛重担压力巨大](zi-xiang-mao-dun.md)
+- [美专家：欧洲对华贸易可走第三条道路](bei-gong-she-ying.md)
+- [为什么感觉在店里喝到的茶叶，总比自己泡的好喝呢？](jing-gong-zhi-niao.md)
+- [当 代 假 期 现 状](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [官方通报“阿尔山景区200一晚酒店”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [葡萄牙2-1挪威‌‌ 4连胜提前出线](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [李勒优是被利用的最惨的一个](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [女特警礼貌拒绝老外过于热情的动作](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [湖北襄阳夜游太火了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [零跑汽车下线蔡康永全部内容](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [李昊：无所谓 反正他们踢不进](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [原中国电信集团员工实名举报](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [葡萄牙2-1逆转挪威提前进欧国联八强](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [名古屋亚组委主席就赛事运行问题致歉](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李沁赵今麦同框比心](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [葡萄牙2比1挪威](http://www.daogukj.com/axnomarx/)
-- [央视迎来新主播](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [国家队亚运会闭幕发文](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [刘学义回复孔令美](http://www.daogukj.com/axnomarx/)
+- [店还没开就有“差评”了](http://www.movie.hkepx.cn/movie/5482900.htm)
 - [中国人开始放心开电车跑长途了吗](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [男生描述喜欢的女生很少提性格](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [2027 年泰晤士大学排名出炉，清华首次超越欧洲大陆所有高校，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [凌玲：不气盛叫年轻人吗！](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [超10万份孕妇血样被偷运出境](http://www.daogukj.com/9955752)
-- [全国客流持续高位运行](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [过期但可以正常使用的物品](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [网传俄罗斯一实验室助理打破试管后感染鼠疫死亡，近200人被纳入医学观察，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [Re:佩恩从零开始的异世界生活！！！【水门篇 下 】](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [中国正在织六张超级大网](http://www.daogukj.com/9955752)
+- [六张“超级大网” 如何编织](http://www.movie.hkepx.cn/movie/6160167.htm)
 - [【春物语】我的婚后生活果然有问题 第1话：于是，结婚半年的两人还没叫过对方的名字。](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [雷军一口气刷完7期民间拆车视频](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [国庆高速电车充电排队几小时，甚至电量1%趴窝，电车长途真的不适合节假日跑高速吗？](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [网传俄罗斯一实验室助理打破试管后感染鼠疫死亡，近200人被纳入医学观察，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [赵心童吴宜泽世界排名前二](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [中国红闪耀亚运闭幕式](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [于是我写了一首歌（原版）](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [中国健儿追梦之路永不停歇](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [10万游客涌入小县城 文旅局长给铺床](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [大冰直播回应男子想挽回离婚妻子](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [为什么有的人认路靠方向，有的人认路依赖地标和建筑，这两种空间记忆模式有什么区别？](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [“雪姨”王琳晒健身照：马甲线清晰](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [河南爆火景区要IPO了](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [【抢先版】刑满释放遇女友，我被哄骗踏入缅北炼狱！！！](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [欧国联A级联赛第4轮，葡萄牙2比1挪威提前2轮出线，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [德总理会见泽连斯基 现场响起爆炸声](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [中国代表团亚运闭幕式亮相](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [为演好农民,他包整层酒店,设专用电梯?【红毯先生】里的黑色幽默万字拉片深度解读②](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [大国重器公布最新消息](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [民进党用高压水炮对大陆渔船喷射90秒](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [年轻人开始不买景区冤种三件套了](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [神雕结尾，郭靖为什么不再称呼周伯通大哥，反而称周老爷子？](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [官方通报“阿尔山景区200一晚酒店”](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
 - [看完的朋友来说说，如何评价《生化危机：爆发夜》这部电影？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [看完不笑的可以确诊为抑郁了](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [德国教材「很多中国人没有汽车，出行靠自行车或步行」等内容引争议，这真是现行教材吗？为何会出现这种错误？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [女特警礼貌拒绝老外过于热情的动作](http://www.daogukj.com/2395514)
-- [多人练“闪身步”进医院](http://www.daogukj.com/6574038)
-- [胖东来被指招聘性别歧视](http://www.daogukj.com/ajcuxydy/)
-- [黄灿灿被出轨](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [湖北襄阳夜游太火了](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [男子疑因婆媳冲突返家两边否认](http://www.daogukj.com/cfeqrkjc/)
-- [Re:佩恩从零开始的异世界生活！！！【水门篇 下 】](http://www.daogukj.com/rkkegwyy/)
-- [葡萄牙2-1挪威‌‌ 4连胜提前出线](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [周扬青自嘲脸「馒化」了，什么是「馒化脸」？医美技术发展能避免这种情况吗？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [曝乌克兰两个旅临阵脱逃被阻止](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [部分一线城市月供接近房租说明啥](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [13岁于子迪当选亚运女子MVP](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [运动前后拉伸为什么这么重要](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [研二女生坠楼疑因导师压力](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [现在再看，这些话全都是作者对妹妹的思念](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [河南万岁山只见人不见“山”](http://www.daogukj.com/8099191)
-- [有哪些演员演了完全不符合本人气质的角色，结果却意外封神？](http://www.daogukj.com/vrvcskzj/)
-- [换汤不换药的AI短剧还能“不烧心”吗](http://www.daogukj.com/lbbxrvry/)
-- [Mili - Rendezvous（密会）【边狱巴士】](http://www.daogukj.com/9295095)
-- [余承东：华为已量产381款韬芯片](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [女子报冰岛外国团除了导游全是中国人](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [蔡康永现身台独分子竞选会场](http://www.daogukj.com/7435478)
-- [可以说一说你们自己一个人去旅行的感受吗？](http://www.daogukj.com/kwdurrnw/)
-- [西双版纳景区用象粪做文创：卖得不错](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [零跑汽车下线蔡康永全部内容](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [李勒优是被利用的最惨的一个](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [近期画的](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [如何看待台独分子沈伯洋竞选台北市长，蔡康永站台？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [葡萄牙2-1逆转挪威提前进欧国联八强](http://www.daogukj.com/2395514)
+- [日媒：日本正用行动阻碍中日对话](http://www.daogukj.com/6574038)
+- [女特警礼貌拒绝老外过于热情的动作](http://www.daogukj.com/ajcuxydy/)
+- [亚运国足主帅称这代球员有望进世界杯](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [名古屋亚组委主席就赛事运行问题致歉](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [超10万份孕妇血样被偷运出境](http://www.daogukj.com/cfeqrkjc/)
+- [看这个视频我不烧心！](http://www.daogukj.com/rkkegwyy/)
+- [李昊：无所谓 反正他们踢不进](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [为什么感觉在店里喝到的茶叶，总比自己泡的好喝呢？](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [拜合拉木赢球后朝对手“滑翔”庆祝](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [美专家：欧洲对华贸易可走第三条道路](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [杭州商K大面积关停](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [德总理会见乌总统警报爆炸声不断](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [李勒优是被利用的最惨的一个](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [这个bug好啊，这才是我想要的角色界面](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [亚运国足门将笑称夺金：铜牌是玫瑰金](http://www.daogukj.com/8099191)
+- [于是我写了一首歌（原版）](http://www.daogukj.com/vrvcskzj/)
+- [央视迎来两位新主播](http://www.daogukj.com/lbbxrvry/)
+- [奥黛塔，快跟沃来比赛吧！](http://www.daogukj.com/9295095)
+- [小学防欺凌信箱开出四个月前的求助信，校方称「已通过其他渠道反映」，校园信箱沦为摆设了吗？孩子需要它吗？](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [蔡康永为“台独”站台遭品牌切割](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [萧玦发文指控久诚](http://www.daogukj.com/7435478)
+- [我总感觉昆虫从受到致命伤到完全死亡需要的时间比哺乳动物要多好久？事实真的如此吗？](http://www.daogukj.com/kwdurrnw/)
+- [普宁考生称因HIV被拒教师入职](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [央视主持人上课太生动了](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [原中国电信集团员工实名举报](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [十一游客流行“跳城游”](https://www.baidu.com/s?wd=%E5%8D%81%E4%B8%80%E6%B8%B8%E5%AE%A2%E6%B5%81%E8%A1%8C%E2%80%9C%E8%B7%B3%E5%9F%8E%E6%B8%B8%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [邓紫棋演唱会大屏一侧起火](https://www.baidu.com/s?wd=%E9%82%93%E7%B4%AB%E6%A3%8B%E6%BC%94%E5%94%B1%E4%BC%9A%E5%A4%A7%E5%B1%8F%E4%B8%80%E4%BE%A7%E8%B5%B7%E7%81%AB&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 772098d499b5e005c6d2 -->
+<!-- content-fingerprint: 3b5629770b76ab808ab4 -->
