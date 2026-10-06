@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 警惕机票退改、低价订房骗局
+# “稻城亚丁景区封闭”系谣言
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6857497 · 更新：2026-10-06T14:48:36+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6850919 · 更新：2026-10-06T21:48:41+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“警惕机票退改、低价订房骗局”位列第 10 位，公开热度指标为 6857497。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““稻城亚丁景区封闭”系谣言”位列第 10 位，公开热度指标为 6850919。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：国庆长假过半，国家反诈中心提示警惕订票订房类骗局。近期，有不法分子以“航班取消”“改签退款”为由发不明链接盗刷资金，或在社交平台发“低价景区门票”“特价民宿酒店”广告诱导游客私下转账后失联。
+来源公开摘要显示：国庆期间，记者实地探访四川甘孜稻城亚丁景区，澄清网传“封闭”谣言。网传“封闭”实为当地10月2日发提示，严禁擅自进入未开发区域徒步。景区自8月1日起免门票，因国庆预约满额被黄牛炒至500元，但线下登记可免费进。此前今年5月该景区曾因设卡收费被整治，现门票及摆渡车均免费，并设医疗点保障安全。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [代露娃你没试上我进公司了](dong-shi-xiao-pin.md)
-- [稻城亚丁景区封闭？假的](han-dan-xue-bu.md)
+- [00后结婚随礼现状有多离谱](dong-shi-xiao-pin.md)
+- [高速堵车社牛小朋友从前车要来蜜柚](han-dan-xue-bu.md)
 - [为什么很多影视明星的子女基本都在英美读书？](qi-ren-you-tian.md)
-- [【抢先看】重回2002，永不空军的鱼竿被军方收编？军方进仓库一看：激光炮手电、隐身涂层、全球降雨弹……你管这叫鱼竿？](chao-san-mu-si.md)
+- [虽败犹荣](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [缅北电诈武装用AK47扫射逃跑人员](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [穿4斤重登山神器爬山 49.9元/小时](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [年轻人婚礼 不早起不请司仪不办仪式](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [大S学生时期没让阿雅付过饭钱](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [也门政府军西海岸“大反攻”成功了吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [下次回来就是2027年了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [大学生徒步喀纳斯失联 父亲悬赏百万](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [陈思诚这次真进步了吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [男孩买3瓶饮料连中71瓶 店主惊呆](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [游客一进县城就收到文旅局长手机号](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如果银河系里真有比人类早十亿年的文明，它们为什么至今没留下明显痕迹？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [缅北电诈头目赚1亿要分3成给明家](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [2026年中网女单第三轮，中国天才少女孙心然遗憾不敌高芙，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [【抢先看】重回2002，永不空军的鱼竿被军方收编？军方进仓库一看：激光炮手电、隐身涂层、全球降雨弹……你管这叫鱼竿？](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [央视披露缅北电诈真实案例，男子讲述被割肾经历，哪些细节值得关注？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [祁连县回应为何不用体育馆安置](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [也门政府军西海岸“大反攻”成功了吗](http://www.daogukj.com/4734416)
-- [白应苍临刑前说中国动真格了](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [“小传人”学数学](http://www.daogukj.com/eujljnlh/)
-- [WTT中国大满贯孙颖莎梁靖崑开门红](http://www.daogukj.com/3484796)
-- [年轻人婚礼 不早起不请司仪不办仪式](http://www.daogukj.com/6840289)
-- [如何看待小沈阳夫妇电影《什么意思夫妇》逆袭成国庆档票房黑马？你预测之后表现会怎样？](http://www.daogukj.com/8544186)
-- [你牛爷爷只是老了不是提不动刀了，胆敢绑架胡图图？一通电话十亿大军兵临城下！](http://www.daogukj.com/4262842)
-- [穿4斤重登山神器爬山 49.9元/小时](http://www.movie.hkepx.cn/movie/0136106.htm)
-- [“宝藏小城”藏不住了](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [大S学生时期没让阿雅付过饭钱](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [代露娃你没试上我进公司了](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [食人魔王、内战、石油，乌干达百年国运，怎么比小说还离谱【东非04｜乌干达】](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [平陆运河开通后，广西南部有可能会出现一个新一线城市吗？](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [自己会变价的啤酒 一天卖出3000杯](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [《明日方舟》干员「克莱门莎」技能展示PV](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [全球纯油车份额跌破50% 中国跌最猛](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [二爷的弱点是叶腐?](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [纪录片《缅北电诈覆灭纪实》首播，有哪些抓捕细节和内幕值得关注？](http://www.daogukj.com/4133568)
-- [普宁教师岗考生称因HIV体检不合格被教育局劝签自愿放弃聘用，这合理吗？日常教学接触会传染到学生吗？](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [国庆假期已过半，这个假期你们开心吗？](http://www.daogukj.com/0480016)
-- [刘国正复盘亚运会：王楚钦压力巨大](http://www.daogukj.com/4561506)
-- [明家把中国人称为“行走的人民币”](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [诺贝尔奖奖金为何越发越多](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [国庆高速充电桩是不是赚疯了](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [减肥针抑制食欲靠减慢胃排空](http://www.daogukj.com/jbdvxipc/)
-- [电诈主犯反问“杀人要什么感受”](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [缅北有受害者头骨7个弹孔](http://www.daogukj.com/awgjjjvg/)
-- [平时管孩子多被说太严厉，出游时女儿只黏爸爸、刻意疏远我，很难过，该怎么调整心态？](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [夏果新片《山鸟》](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [缅北魏家接班人自曝布局军政两界](http://www.daogukj.com/ditzbwwz/)
-- [明学昌畏罪自杀身亡照片曝光](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [公狗剧场靠“男色经济”1年狂卖1个亿](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [杭天琪女儿曝冯文娟破坏家庭](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [《诡异的她》第一季全集·纯享](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [缅北电诈主犯随机杀人祭天](http://www.daogukj.com/aqmuomii/)
-- [景区回应合影小羊被累瘫](http://www.daogukj.com/phjdnbun/)
-- [【梗百科】娘化马尔福是咋回事？爆火外网？！](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [真实事件不改编](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [终友的酒](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [何超盈仅仅用一年就瘦了100斤](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [韩国博主在延边破大防](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [金价高位震荡普通人该怎么买黄金](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [TES世界赛首发369](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [稻城亚丁景区封闭？假的](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [范玮琪陈建州去了大S墓地](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [德约科维奇中网34胜0负](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [演员冯文娟否认14岁介入别人家庭](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [虽败犹荣](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [如何看待教育部要求辅导员与学生同吃同住同生活、思政工作下沉至学生私生活？](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [全站首个恰饭对决！百万UP主真会做视频吗？](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [游客一进县城就收到文旅局长手机号](http://www.daogukj.com/4734416)
+- [39岁德约加冕中网男单7冠王](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [美军士兵暴行点燃冲绳民众怒火](http://www.daogukj.com/eujljnlh/)
+- [明学昌畏罪自杀身亡照片曝光](http://www.daogukj.com/3484796)
+- [陈思诚这次真进步了吗](http://www.daogukj.com/6840289)
+- [缅方曾称没有中国人死，起初拒绝中国警方从电诈园区带回同胞遗骸，哪些信息值得关注？](http://www.daogukj.com/8544186)
+- [为什么 macOS 比 Windows 好用且美观，但是国内 Windows 依旧是主流操作系统？](http://www.daogukj.com/4262842)
+- [大学生徒步喀纳斯失联 父亲悬赏百万](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [一批大国重器与重点工程迎来新突破](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
+- [男孩买3瓶饮料连中71瓶 店主惊呆](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [00后结婚随礼现状有多离谱](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [谭松韵老年妆化了6个小时](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [李勒优解释自己为什么带现金出门](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [“超长蛋挞”爆火 医生提醒](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [“嘉豪老祖”艾伦沃克，究竟是怎么火起来的？](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [韦世豪被红牌罚下](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [如何看待TES上单zuian签证两次被拒，369紧急成为TES S16首发上单？](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [普宁教师岗考生称因HIV体检不合格被教育局劝签自愿放弃聘用，这合理吗？日常教学接触会传染到学生吗？](http://www.daogukj.com/4133568)
+- [高通澄清华为专利交叉授权，称涉及逻辑折叠（韬定律专利）不属实、高通为净支付方不准确，怎样解读？](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [OPPO 为何要寻求 12 亿美元银团贷款？](http://www.daogukj.com/0480016)
+- [超级富二代3D打印手枪暗杀万亿总裁！淡定吃汉堡等待美警刑侦全明星！](http://www.daogukj.com/4561506)
+- [胡塞称首次实战使用新型自制无人机](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [十人国足 0-1 塔吉克斯坦，韦世豪肘击染红，刘殿座脱手致丢球，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [曝邓紫棋结婚](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [国足vs塔吉克斯坦](http://www.daogukj.com/jbdvxipc/)
+- [佤邦联合军原副总司令落网画面公开，将对缅北电诈清剿及局势带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [德约中网冠军](http://www.daogukj.com/awgjjjvg/)
+- [“我痛恨自己的无知、愚蠢和贪欲”](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [媒体称破铜烂铁、废纸壳、废塑料可能正在创造巨量财富，这是真的吗？为啥「破烂」正在变成黄金赛道？](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [格力技工学校开学，董明珠担任校长，如何评价「入校即入企」的办学模式？](http://www.daogukj.com/ditzbwwz/)
+- [俄罗斯 乌克兰](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [如何看待小沈阳夫妇电影《什么意思夫妇》逆袭成国庆档票房黑马？你预测之后表现会怎样？](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [伦敦买的大本钟冰箱贴图片是郑州](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [《余红旧事》马伊琍张哲华搭戏表现](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [俄已警告各国在乌克兰基辅工作危险](http://www.daogukj.com/aqmuomii/)
+- [孩子打印作业开销让家长直呼扛不住](http://www.daogukj.com/phjdnbun/)
+- [回应视频](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [经济学家：抛美债是市场正常反应](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [【完整版】纪录片《缅北电诈覆灭纪实》第一集《利剑出鞘》](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [“16条人命只剩5具尸体1份骨灰”](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [韦世豪肘击对手被罚下](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [AG 突围赛](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [高速堵车社牛小朋友从前车要来蜜柚](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [警惕机票退改、低价订房骗局](https://www.baidu.com/s?wd=%E8%AD%A6%E6%83%95%E6%9C%BA%E7%A5%A8%E9%80%80%E6%94%B9%E3%80%81%E4%BD%8E%E4%BB%B7%E8%AE%A2%E6%88%BF%E9%AA%97%E5%B1%80&sa=fyb_news&rsv_dl=fyb_news)
+- [“稻城亚丁景区封闭”系谣言](https://www.baidu.com/s?wd=%E2%80%9C%E7%A8%BB%E5%9F%8E%E4%BA%9A%E4%B8%81%E6%99%AF%E5%8C%BA%E5%B0%81%E9%97%AD%E2%80%9D%E7%B3%BB%E8%B0%A3%E8%A8%80&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 92adbdf5e55c8338c045 -->
+<!-- content-fingerprint: df59414bfb830e9af522 -->
