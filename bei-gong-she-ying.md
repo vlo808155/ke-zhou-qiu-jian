@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 十几年前的网游已经可以支持万人以上同时登陆在线，那时候的技术到底是怎么做到的？
+# 破案
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：119 万热度 · 分类：问答 · 更新：2026-10-07T10:25:23+08:00
+> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：1735753 · 分类：小剧场 · 更新：2026-10-07T17:11:33+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“十几年前的网游已经可以支持万人以上同时登陆在线，那时候的技术到底是怎么做到的？”位列第 10 位，公开热度指标为 119 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“破案”位列第 10 位，公开热度指标为 1735753，榜单分类为“小剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：成千上万的人同时移动、战斗、聊天，服务器不可能把每个人看到的一切都完整计算一遍。但多人在线游戏在十几年前就已经能够实现了，到底是怎么维持的？
+来源公开摘要显示：-
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `小剧场`
 
 ## 相关热点
 
-- [带三个姑娘相亲，现场真炸裂，这就是乡村爱情故事吗？](jing-gong-zhi-niao.md)
-- [“高铁座椅成HPV感染重灾区”不实](hu-jia-hu-wei.md)
-- [吴奇隆举国旗遭台湾取消活动](yu-mu-hun-zhu.md)
-- [泰山景区辟谣“躲雨80元一小时”](dong-shi-xiao-pin.md)
+- [“高铁座椅成HPV感染重灾区”不实](jing-gong-zhi-niao.md)
+- [演员王星案](hu-jia-hu-wei.md)
+- [警方辟谣四川五通桥一处楼房垮掉](yu-mu-hun-zhu.md)
+- [如何看待英国首相再提重新入欧，称「希望在有生之年见证」？](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [粤J2888T车主到郑州了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [说话也有恐怖谷效应吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [有些景区靠一个 NPC 带火一座城，也有景区跟风做 NPC 却没什么水花，你觉得成功的关键因素是什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [如何看待 OpenAI 公开 722 份数学手稿，宣布解决包含「准黎曼猜想」的数百个数学问题？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [夫妻在苗圃地采来看似常见的无毒菌菇煮汤，引发食物中毒，该如何避免这种情况？AI识图等辨别方式靠谱吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [2026 国庆档票房 6 天破 10亿，为什么今年的增速变慢了？最终大约会到多少？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [中国的音乐产业为什么会变成一个歌手、平台、听众三方都不满意的诡异产业？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [招募美少女在空中热血战斗？她真的不一样！这款硬核游戏玩起来究竟有多炸裂？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [郭台铭靠AI赚翻了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [粤J2888T车主称修车花了约半台车钱](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [兰香去世时没戴红绳](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [提前返程游客称高速堵成停车场](http://www.daogukj.com/0517179)
-- [破案](http://www.daogukj.com/yzfviyov/)
-- [当你意识到来不及写国庆作业时](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [如何评价闫妮、叶童主演的电影《活色生香》？](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [最危险的是年轻时错过复利](http://www.daogukj.com/1191355)
-- [2599元一桌的婚宴14道主菜上错7道](http://www.movie.hkepx.cn/xiju/7511993.htm)
+- [节后逢寒露 养生主打“秋收敛藏”](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [何卓佳晋级WTT中国大满贯女单16强](http://www.daogukj.com/0517179)
+- [机票价格跳水 多航线比高铁还便宜](http://www.daogukj.com/yzfviyov/)
+- [在泰失联的上海音乐教师已安全回国](http://www.movie.hkepx.cn/xiju/0529283.htm)
+- [千万别用这个姿势坐车](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [缅北白家涉诈超290亿](http://www.daogukj.com/1191355)
+- [中国警方：缅北电诈死灰复燃也不怕](http://www.movie.hkepx.cn/xiju/7511993.htm)
 - [俄研究人员疑染鼠疫死亡近 200 人被隔离，该疫情是否有扩散风险？](http://www.daogukj.com/2850206)
-- [“高铁座椅成HPV感染重灾区”不实](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [有些景区靠一个 NPC 带火一座城，也有景区跟风做 NPC 却没什么水花，你觉得成功的关键因素是什么？](http://www.daogukj.com/5364901)
-- [阿根廷队长完美谢幕](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
-- [带三个姑娘相亲，现场真炸裂，这就是乡村爱情故事吗？](http://www.daogukj.com/nisjsldl/)
-- [26岁白俄罗斯模特被诱骗至缅甸杀害](http://www.daogukj.com/xvspcmfq/)
-- [【算命TV】反封建迷信第一人重拳出击（字面意思）](http://www.daogukj.com/4116400)
-- [C罗重磅声明](http://www.daogukj.com/nncunhqi/)
-- [高速上以为错峰结果堵到怀疑人生](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [夫妻在苗圃地采来看似常见的无毒菌菇煮汤，引发食物中毒，该如何避免这种情况？AI识图等辨别方式靠谱吗？](http://www.daogukj.com/svuwbdap/)
-- [四川宜宾地震](http://www.daogukj.com/qvipjsxc/)
-- [国足主帅说比赛输了但过程能接受](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
-- [孩子才放7天假 家长不该“天塌了”](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [小莲扮演者是被亲生父母遗弃的](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [国际友谊赛，阿根廷 3-0 贝宁，如何评价本场比赛？梅西迎来国家队告别战，你有哪些感触？](http://www.daogukj.com/wvyvpuql/)
-- [中国的音乐产业为什么会变成一个歌手、平台、听众三方都不满意的诡异产业？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
-- [日媒发问中国游客去哪了](http://www.daogukj.com/yktxglwn/)
-- [C罗：结束禁赛后随时准备为国效力](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [曝VOGUE盛典集齐了四大流量花](http://www.daogukj.com/2377613)
-- [家长称孩子打印作业开销太高，四年级一学期单科最高达300元，打印作业应该由家长做吗？怎样能降低成本？](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [缅方曾称没有中国人死，起初拒绝中国警方从电诈园区带回同胞遗骸，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [【完整版】纪录片《缅北电诈覆灭纪实》第二集《犁庭扫穴》](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [小狗被爸妈养一周一天比一天好笑](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [啊啊7月新番你到底给我下了什么药啊！！【泛式】](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [缅北白家涉诈超290亿](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [说话也有恐怖谷效应吗？](http://www.daogukj.com/qkjpzqjb/)
-- [高铁静音车厢是不是馊主意？](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [猫头鹰到底是不祥之鸟，还是被冤枉了？](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [人生中最幸福的瞬间合集](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
-- [高速充电“八分饱”会成常态吗](http://www.daogukj.com/opgycgjr/)
-- [中东“同室操戈”何时休](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [粤J2888T车主到郑州了](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [钟丽缇女儿解释没有考上大学的原因](http://www.daogukj.com/3894638)
-- [书法界不推广简体字的原因是什么？](http://www.daogukj.com/ihugvxjr/)
-- [曝邓紫棋结婚](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [100元不够买三斤鲜牛肉](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [《明日方舟：终末地》特别映像「塔卫二：一号简报」](http://www.daogukj.com/owscegnp/)
-- [俄罗斯鼠疫](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [国足明年1月亚洲杯对手排名](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [被 解 救 的 杰 戈](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [谢楠小儿子用手表拍的曾沛慈唐艺昕](http://www.daogukj.com/9324764)
-- [刘建宏：国足教练团队对球队已失控](http://www.daogukj.com/awlcbyru/)
-- [吴奇隆举国旗遭台湾取消活动](http://www.daogukj.com/5750670)
+- [演员王星案](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
+- [招募美少女在空中热血战斗？她真的不一样！这款硬核游戏玩起来究竟有多炸裂？](http://www.daogukj.com/5364901)
+- [王星被骗至妙瓦底4天被卖3次](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [“高铁座椅成HPV感染重灾区”不实](http://www.daogukj.com/nisjsldl/)
+- [张馨予央视一分钟自画像](http://www.daogukj.com/xvspcmfq/)
+- [不要说自己身体不好长得不行](http://www.daogukj.com/4116400)
+- [粤产剧《兰香如故》热度口碑双爆](http://www.daogukj.com/nncunhqi/)
+- [保时捷中国销量 4 年腰斩，其背后的原因是什么？](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [粤J2888T车主称修车花了约半台车钱](http://www.daogukj.com/svuwbdap/)
+- [今年国庆“充电焦虑”为何不明显了](http://www.daogukj.com/qvipjsxc/)
+- [国际友谊赛，阿根廷 3-0 贝宁，如何评价本场比赛？阿根廷队长迎来国家队告别战，你有哪些感触？](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
+- [王星4天被卖3次](http://www.movie.hkepx.cn/movie/2146522.htm)
+- [假期提前返校到底好了谁](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [不烧心的作业我不写！！！](http://www.daogukj.com/wvyvpuql/)
+- [高铁静音车厢是不是馊主意？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [吴奇隆 不赚钱也是这个立场](http://www.daogukj.com/yktxglwn/)
+- [如何看待 OpenAI 公开 722 份数学手稿，宣布解决包含「准黎曼猜想」的数百个数学问题？](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [柬埔寨太子集团头目陈志真容](http://www.daogukj.com/2377613)
+- [【纪录片】门捷列夫很忙 第1集 门捷列夫不知道](http://www.movie.hkepx.cn/movie/4178444.htm)
+- [缅北电诈犯杀陌生人祭天，明珍珍死刑前微笑接受采访，为什么这些电诈犯这么嚣张？背后可能存在哪些保护伞？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [媒体：A股节后开门红概率较高](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [直击国庆返程高峰路况](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [对面牢玩家一整局都在偷塔，怎么把我的活干了](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [为什么养女儿，不要经常吼她？](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [中国的音乐产业为什么会变成一个歌手、平台、听众三方都不满意的诡异产业？](http://www.daogukj.com/qkjpzqjb/)
+- [英国人迷上了中国车](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [梅尔滕斯首胜高芙](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [第二次来美国，活下去](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [猫喂了没有成求救暗号](http://www.daogukj.com/opgycgjr/)
+- [去台湾地区管辖的马祖列岛旅行...](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [2026 国庆档票房 6 天破 10亿，为什么今年的增速变慢了？最终大约会到多少？](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [【我在现代当幽差】：赶着去投胎啊！！！！【UP动画】](http://www.daogukj.com/3894638)
+- [酒店保洁吐槽带娃拼床复位累到崩溃](http://www.daogukj.com/ihugvxjr/)
+- [如何看待急诊医生上班期间上厕所被投诉脱岗，医生调监控自证清白？](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [为什么呼伦贝尔市划归内蒙古而不是黑龙江呢？](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [电诈头目“江湖哥”佘智江出镜忏悔](http://www.daogukj.com/owscegnp/)
+- [演员王星4天被卖3次](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [高速交警硬核喊话“龟速车”](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [袁励岑/温瑞博逆转日本组合进8强](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [余承东称华为将不得不涨价，存储元器件大涨使每部手机增超两百美元成本，会对消费者及手机市场有多大影响？](http://www.daogukj.com/9324764)
+- [为什么有些学生初中成绩很好，到了高中就跟不上了?](http://www.daogukj.com/awlcbyru/)
+- [警方辟谣四川五通桥一处楼房垮掉](http://www.daogukj.com/5750670)
 
 </details>
 
 ## 原始来源
 
-- [十几年前的网游已经可以支持万人以上同时登陆在线，那时候的技术到底是怎么做到的？](https://www.zhihu.com/question/2079914321405031953)
+- [破案](https://b23.tv/BV1SJpw62E5y)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 58c7e5aec9fe5b80a839 -->
+<!-- content-fingerprint: 0c2ef9228e9309445c9d -->
