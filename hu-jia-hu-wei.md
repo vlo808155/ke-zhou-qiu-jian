@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 头孢停药3天能喝酒？谣言
+# 【剧情】长生契（2026）20【方逸伦 / 谢可寅】
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6849958 · 更新：2026-10-08T09:17:32+08:00
+> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：468167 · 分类：国产剧 · 更新：2026-10-08T15:41:19+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“头孢停药3天能喝酒？谣言”位列第 10 位，公开热度指标为 6849958。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【剧情】长生契（2026）20【方逸伦 / 谢可寅】”位列第 10 位，公开热度指标为 468167，榜单分类为“国产剧”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：央视新闻辟谣：“头孢停药3天就能喝酒”是假的，含甲硫四氮唑侧链的头孢如头孢哌酮、头孢曲松等，停药后至少7天内都应避免饮酒，以防双硫仑样反应。
+来源公开摘要显示：《长生契》讲述了宁长樾与宋亦秋跨越三千年的深沉羁绊。他们在无尽时光中相守，遍历人间烟火，成为彼此唯一的坐标。步入现代，他们开始重新审视永恒的意义，在追寻内心归宿时，一段被漫长岁月尘封的过往与复杂的未解之缘逐渐浮现。面对历史的涟漪与当下的波澜，他们必须做出关于爱与归宿的最终抉择，完成一场与时间和自我的对话。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `国产剧`
 
 ## 相关热点
 
-- [网红小四爷 缅北](yu-mu-hun-zhu.md)
-- [警方辟谣四川五通桥一处楼房垮掉](dong-shi-xiao-pin.md)
-- [医药代表给院长主任们送的现金是怎样查出来的呢？](han-dan-xue-bu.md)
-- [对面牢玩家一整局都在偷塔，怎么把我的活干了](qi-ren-you-tian.md)
+- [头孢停药3天能喝酒？谣言](yu-mu-hun-zhu.md)
+- [抢占李一桐原ID账号被封](dong-shi-xiao-pin.md)
+- [俄罗斯官方将研究员死因定性为不明病因肺炎，为啥外界会联系到「鼠疫」？网传四种感染来源的说法哪种更合理？](han-dan-xue-bu.md)
+- [【完整版】纪录片《缅北电诈覆灭纪实》第三集《共筑天网》](qi-ren-you-tian.md)
 
 ## 站内推荐
 
-- [完美谢幕！39岁梅西👑 1球2助结束21年蓝白生涯 阿根廷3比0贝宁](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [警惕这个“无声的杀手”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [女子买房多年才得知客厅上方有座坟](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [女子听到异响拦车救7人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [国庆假期上海售楼经理忙到脚肿](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [矿山上的铜火锅？！特厨来一个沉浸式吃播！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [《原神》过场动画-「生与死的流速」](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [张雪机车回应女子称男友进ICU想退车](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [何超欣晒何猷君奚梦瑶全家福](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [余承东尊界品牌危机](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [节后急着掉秤？内脏脂肪才是关键](http://www.daogukj.com/1906233)
-- [国乒首次无缘WTT中国大满贯混双冠军](http://www.movie.hkepx.cn/movie/8207551.htm)
-- [泰森已经打不过他了 叫泰罗来吧](http://www.daogukj.com/dztmbdzh/)
-- [国庆高速免费最后1分钟车主卡点通过](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
-- [河北电商据称把成本压到极致，发1万单倒赔130，利润来自「卖纸壳」，是真的吗？河北电商是怎样一个存在？](http://www.movie.hkepx.cn/xiju/7262543.htm)
-- [佤邦 副总司令](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
-- [古代写字要避皇帝讳，那大家如果不知道皇帝名字又避讳不了，那古人是怎么知道皇帝或者新皇帝名字是啥的？](http://www.movie.hkepx.cn/xiju/4947300.htm)
-- [国庆假期北大仓秋收正酣](http://www.movie.hkepx.cn/xiju/5761043.htm)
-- [新娘九个舅舅染不同颜色头发送嫁](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
-- [胡塞武装：对沙特实施三轮打击](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
-- [白俄罗斯女歌手在缅甸遭拐卖后被杀](http://www.movie.hkepx.cn/movie/5688642.htm)
-- [时隔14年进口片再夺国庆档票房日冠](http://www.daogukj.com/jvdbiekb/)
-- [央视称佤邦是电诈主要策源地](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
-- [医药代表给院长主任们送的现金是怎样查出来的呢？](http://www.movie.hkepx.cn/xiju/4016086.htm)
-- [佘智江落网时嚣张妄言人脉能摆平](http://www.movie.hkepx.cn/movie/2656990.htm)
-- [9个舅舅染彩发给侄女婚礼撑腰](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
-- [【春物语】我的婚后生活果然有问题 第3话：雪之下雪乃说，要做就正式地做。](http://www.movie.hkepx.cn/movie/6948720.htm)
-- [一次心跳的0.8秒](http://www.movie.hkepx.cn/movie/3077263.htm)
-- [老师太显小](http://www.movie.hkepx.cn/movie/1951037.htm)
-- [中国警方：缅北电诈死灰复燃也不怕](http://www.daogukj.com/0012222)
-- [对面牢玩家一整局都在偷塔，怎么把我的活干了](http://www.movie.hkepx.cn/movie/6159585.htm)
-- [缅北电诈窝点距我口岸仅200米](http://www.movie.hkepx.cn/xiju/3354539.htm)
-- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.movie.hkepx.cn/movie/4882379.htm)
-- [曝王晓慧有孩子了](http://www.movie.hkepx.cn/movie/1975079.htm)
-- [带三个姑娘相亲，现场真炸裂，这就是乡村爱情故事吗？](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
-- [演员王星4天被卖3次](http://www.movie.hkepx.cn/xiju/1921854.htm)
-- [寒露 贴秋膘](http://www.daogukj.com/4901061)
-- [全球纯燃油车销量占比首次跌破 50%，将对全球汽车产业链格局带来哪些影响？](http://www.daogukj.com/jetdabgu/)
+- [航天人紧急营救北斗卫星](http://www.daogukj.com/1906233)
+- [王曼昱险胜石洵瑶晋级八强](http://www.movie.hkepx.cn/movie/8207551.htm)
+- [国内有哪些「德不配位」的 5A 级景区？](http://www.daogukj.com/dztmbdzh/)
+- [留给“煤老大”的时间不多了](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
+- [如何看待李玉刚宣布《万疆》永久免费授权，任何歌手在演唱会上演唱《万疆》分文不取？](http://www.movie.hkepx.cn/xiju/7262543.htm)
+- [疑似崔晋妈妈朋友圈发文](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
+- [浑身是刺只是保护壳，内心温柔才是真正的优雅。高分电影《刺猬的优雅》](http://www.movie.hkepx.cn/xiju/4947300.htm)
+- [全国秋粮收获过四成](http://www.movie.hkepx.cn/xiju/5761043.htm)
+- [中国自古没有饮用白酒的习惯，为什么50-70后如此爱喝白酒？](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
+- [俄罗斯鼠疫研究所最新情况](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
+- [李一桐原ID换不回来了](http://www.movie.hkepx.cn/movie/5688642.htm)
+- [⚡️黄仁勋 世界巡演⚡️【AI MV大赛】](http://www.daogukj.com/jvdbiekb/)
+- [变形计 丽姐](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
+- [俄罗斯官方将研究员死因定性为不明病因肺炎，为啥外界会联系到「鼠疫」？网传四种感染来源的说法哪种更合理？](http://www.movie.hkepx.cn/xiju/4016086.htm)
+- [古代写字要避皇帝讳，那大家如果不知道皇帝名字又避讳不了，那古人是怎么知道皇帝或者新皇帝名字是啥的？](http://www.movie.hkepx.cn/movie/2656990.htm)
+- [重庆李子坝地下33米藏着一亿现钞](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
+- [3台尊界V800 刹车踏板支架断裂](http://www.movie.hkepx.cn/movie/6948720.htm)
+- [英男子耗时28年从智利徒步到英国](http://www.movie.hkepx.cn/movie/3077263.htm)
+- [人民网评游客被安置到学生宿舍](http://www.movie.hkepx.cn/movie/1951037.htm)
+- [女子要求楼顶藏坟原房东担责](http://www.daogukj.com/0012222)
+- [【完整版】纪录片《缅北电诈覆灭纪实》第三集《共筑天网》](http://www.movie.hkepx.cn/movie/6159585.htm)
+- [杨瀚森抢断后带球推进不慎砸到小腿](http://www.movie.hkepx.cn/xiju/3354539.htm)
+- [尊界V800测试中刹车踏板支架断裂](http://www.movie.hkepx.cn/movie/4882379.htm)
+- [李勒优推荐视频文案](http://www.movie.hkepx.cn/movie/1975079.htm)
+- [小伙结婚邀全国网友吃席：来了130多人](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
+- [高速免费最后60秒工作人员比司机还急](http://www.movie.hkepx.cn/xiju/1921854.htm)
+- [周启豪零封张本智和晋级8强](http://www.daogukj.com/4901061)
+- [医药代表给院长主任们送的现金是怎样查出来的呢？](http://www.daogukj.com/jetdabgu/)
 - [上3休1再上5休2](http://www.daogukj.com/7091816)
-- [当道士下山上大学](http://www.movie.hkepx.cn/movie/5119801.htm)
-- [如果穿越回当年，从一开始就把ipv4设计成ipv6这样会怎么样?](http://www.daogukj.com/eozvjcki/)
-- [国内有哪些「德不配位」的 5A 级景区？](http://www.movie.hkepx.cn/movie/3647409.htm)
-- [俄罗斯现不明原因肺炎死亡病例](http://www.daogukj.com/olnmglro/)
-- [俄鼠疫研究机构员工确诊不明原因肺炎](http://www.movie.hkepx.cn/movie/0305763.htm)
-- [为什么坐车看手机容易晕，自己开车却很少晕车？](http://www.movie.hkepx.cn/xiju/5270802.htm)
-- [警方辟谣四川五通桥一处楼房垮掉](http://www.daogukj.com/novgnuvs/)
-- [研究证实每天睡8小时可能多了](http://www.movie.hkepx.cn/movie/5479779.htm)
-- [女子买房多年才得知客厅上方有座坟](http://www.daogukj.com/pimnqdhd/)
-- [女子听到异响拦车救7人](http://www.movie.hkepx.cn/movie/9614078.htm)
-- [乌空袭俄炼油厂有何目的](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
-- [【春物语】我的婚后生活果然有问题 第2话：兼任讲师的“青春论”，果然没人当真。](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
-- [花1150元网购80斤无人认领盲盒，商家保证血赚不亏，真的吗](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
-- [节后A股要涨了吗](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
-- [金银再度直线跳水](http://www.movie.hkepx.cn/xiju/1743642.htm)
-- [牛顿和爱因斯坦的后人现在如何了？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
-- [怎么看粤J2888T车主被全网关注](http://www.movie.hkepx.cn/movie/7048621.htm)
-- [俄密集轰炸乌克兰导弹工厂有何影响](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
-- [警惕这个“无声的杀手”](http://www.movie.hkepx.cn/movie/9217518.htm)
-- [国庆4斤重“登山外挂”火到峨眉山](http://www.daogukj.com/mmmeuyql/)
-- [“幸好你玩游戏，明白这个视频的意义。”](http://www.movie.hkepx.cn/xiju/2283933.htm)
+- [最后一批返程车主都是大聪明](http://www.movie.hkepx.cn/movie/5119801.htm)
+- [带三个姑娘相亲，现场真炸裂，这就是乡村爱情故事吗？](http://www.daogukj.com/eozvjcki/)
+- [第二次来美国，活下去](http://www.movie.hkepx.cn/movie/3647409.htm)
+- [专家：胡塞把沙特领空划成“战区”](http://www.daogukj.com/olnmglro/)
+- [A股能否迎来年内最后一波行情](http://www.movie.hkepx.cn/movie/0305763.htm)
+- [【EPL表演赛】当CS的最强教练们再次进入服务器](http://www.movie.hkepx.cn/xiju/5270802.htm)
+- [抢占李一桐原ID账号被封](http://www.daogukj.com/novgnuvs/)
+- [节后第一天创业板指大跌](http://www.movie.hkepx.cn/movie/5479779.htm)
+- [张雪机车回应女子称男友进ICU想退车](http://www.daogukj.com/pimnqdhd/)
+- [何超欣晒何猷君奚梦瑶全家福](http://www.movie.hkepx.cn/movie/9614078.htm)
+- [国乒首次无缘中国大满贯混双领奖台，国乒混双优势发生变化了吗？暴露了哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
+- [中国模特勇闯欧洲时装周|面试实录第七集](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
+- [赶紧自查！你的押金可能被“偷”了](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
+- [李在明称「抗日穷三代韩奸掌实权」不能重演，为何韩国清算亲日派如此艰难？](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
+- [寒露时节饮食攻略](http://www.movie.hkepx.cn/xiju/1743642.htm)
+- [C罗公开发声致歉](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
+- [东北一家人牛大妈扮演者彭玉去世](http://www.movie.hkepx.cn/movie/7048621.htm)
+- [蒯曼爆冷止步16强](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
+- [《原神》过场动画-「生与死的流速」](http://www.movie.hkepx.cn/movie/9217518.htm)
+- [金饰克价已暴跌约150元](http://www.daogukj.com/mmmeuyql/)
+- [带班主任体验黄毛的一天](http://www.movie.hkepx.cn/xiju/2283933.htm)
 
 </details>
 
 ## 原始来源
 
-- [头孢停药3天能喝酒？谣言](https://www.baidu.com/s?wd=%E5%A4%B4%E5%AD%A2%E5%81%9C%E8%8D%AF3%E5%A4%A9%E8%83%BD%E5%96%9D%E9%85%92%EF%BC%9F%E8%B0%A3%E8%A8%80&sa=fyb_news&rsv_dl=fyb_news)
+- [【剧情】长生契（2026）20【方逸伦 / 谢可寅】](https://b23.tv/BV13Dem6VEp5)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c165dbbff9b4ce01bb0b -->
+<!-- content-fingerprint: 7fc5619d76724c6c1c49 -->
