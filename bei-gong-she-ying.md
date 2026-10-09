@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 女子在美容院做「排毒水光肌」套餐，灌肠时肠子被捅破致肠穿孔，这有多危险？美容院要承担哪些责任？
+# 葡媒《球报》发布问卷调查，70%的球迷不希望C罗重返国家队，如何看待这份调查结果？
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：139 万热度 · 分类：问答 · 更新：2026-10-09T04:39:48+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：133 万热度 · 分类：问答 · 更新：2026-10-09T08:40:59+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“女子在美容院做「排毒水光肌」套餐，灌肠时肠子被捅破致肠穿孔，这有多危险？美容院要承担哪些责任？”位列第 10 位，公开热度指标为 139 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“葡媒《球报》发布问卷调查，70%的球迷不希望C罗重返国家队，如何看待这份调查结果？”位列第 10 位，公开热度指标为 133 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月6日，据浙医在线：42岁的李女士平时特别注重保养，在美容院砸重金买下了号称能“排毒焕亮水光肌”的高端灌肠排毒套餐。然而，灌肠时，随着不明液体被盲目加压灌入，李女士突然感觉肚子一阵撕裂般的剧痛，瞬间冷汗直冒、几近休克。 被紧急送医抢救后，医生发现，不正规的灌肠操作已经把脆弱的肠子捅破，导致肠穿孔，大量粪便和肠管内容物漏进肚子里，引发了极其凶险的弥漫性腹膜炎，住进了重症监护室。所幸救治及时，最终脱离危险。 浙江省立同德医院肛肠外科主任陈诚豪主任介绍，灌肠，简单说就是将一定量的液体通过肛门注入直肠和结肠，以达到清洁肠道、给药、降温或诊断等目的的一种医疗操
+来源公开摘要显示：https://m.dongqiudi.com/article/6451756.html?frm=copy
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -20,79 +20,79 @@
 
 - [【剧情】长生契（2026）20【方逸伦 / 谢可寅】](jing-gong-zhi-niao.md)
 - [“新疆棕熊索食险酿大祸”系编造](hu-jia-hu-wei.md)
-- [肺鼠疫症状](yu-mu-hun-zhu.md)
+- [俄罗斯鼠疫](yu-mu-hun-zhu.md)
 - [网传喀纳斯棕熊索食系AI编造](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [缅北电诈逃脱者的自救建议：别打车](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [诺奖得主获奖后上班欢呼一片](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [我国房地产进入存量时代，二手房交易占比超 50%，现房销售是大势所趋，普通人买房该如何调整思路？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [越南连续推出多型主战装备，其军工为何能「突然崛起」？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [曝华为 Mate 90 系列手机首销期销量超 27 万台，“超大杯”占比约 40% 你怎么看？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [高速免费最后一刻女子淡定缴费](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [如何看待 DeepSeek 估值已接近 5000 亿元？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [跳水运动员张家齐和她母亲的关系揭示了中国式母女的哪些问题？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [【断网补全计划149】太阳之子，闪身步，不烧心，农大科比，雨中霸王龙，超长蛋挞，疯狂水世界，冰冰冰，咕咕嘎嘎小孩，野人先生罗永浩风波，钟薛高复活](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [有事没事儿，尽喜欢做点好吃的、新鲜玩意给家里人尝一尝！好好吃饭就是好好生活！【睡个好觉】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [警方通报小区楼顶发现可疑骨头](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [张馨予和老公何捷在讨论给鱼坐月子](http://www.daogukj.com/0517179)
-- [妈妈是个超人](http://www.daogukj.com/yzfviyov/)
+- [辽宁挖出的10吨古钱币山](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [松岛辉空/张本美和1-3申裕斌/林钟勋](http://www.daogukj.com/0517179)
+- [崔永元自述：冯小刚乱，徐帆也很乱！范冰冰恬不知耻！我就是要他们完蛋！但葛优我可以忍！](http://www.daogukj.com/yzfviyov/)
 - [【独家】时光代理人 第三季 PartOne 第10集 错位的救赎【8月国创】](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [C罗自曝被主帅两次放鸽子，41岁的他到底图个啥？](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [原来花千骨当时那么惨啊](http://www.daogukj.com/1191355)
+- [一口气训两个](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [人需要一场旷世长久的长假](http://www.daogukj.com/1191355)
 - [82岁老姑娘养老规划太有智慧](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [高血压是最常见的心血管疾病之一](http://www.daogukj.com/2850206)
+- [12306老是说其他不是官方授权，不是官方授权，他们为什么能卖票？他们的票又是从哪里来的？](http://www.daogukj.com/2850206)
 - [“新疆棕熊索食险酿大祸”系编造](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [我国房地产进入存量时代，二手房交易占比超 50%，现房销售是大势所趋，普通人买房该如何调整思路？](http://www.daogukj.com/5364901)
-- [肺鼠疫可飞沫传播](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [跳水运动员张家齐和她母亲的关系揭示了中国式母女的哪些问题？](http://www.daogukj.com/5364901)
+- [新郎婚礼当天去医院看病后离世](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
 - [【剧情】长生契（2026）20【方逸伦 / 谢可寅】](http://www.daogukj.com/nisjsldl/)
-- [女子捡到一袋5元纸币不知如何处理](http://www.daogukj.com/xvspcmfq/)
-- [“站在台中间串两边，全明星百分百参团”【Immortals-Deep】【百分百参团の小曲】](http://www.daogukj.com/4116400)
-- [周启豪零封张本智和晋级8强](http://www.daogukj.com/nncunhqi/)
-- [倪萍发文悼念彭玉](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [曝华为 Mate 90 系列手机首销期销量超 27 万台，“超大杯”占比约 40% 你怎么看？](http://www.daogukj.com/svuwbdap/)
-- [【断网补全计划149】太阳之子，闪身步，不烧心，农大科比，雨中霸王龙，超长蛋挞，疯狂水世界，冰冰冰，咕咕嘎嘎小孩，野人先生罗永浩风波，钟薛高复活](http://www.daogukj.com/qvipjsxc/)
-- [唐驳虎：俄“鼠疫”惊动几大邻国](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
-- [“为了看短剧 我妈两年花22万”](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [赵丽颖 飞天奖](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [如何看待 DeepSeek 估值已接近 5000 亿元？](http://www.daogukj.com/wvyvpuql/)
-- [央视披露紧急营救北斗卫星](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
-- [如何看待欧洲反华决议高票通过](http://www.daogukj.com/yktxglwn/)
-- [朝媒警告美国：台湾问题纯属中国内政](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [新郎婚礼当天去医院看病后离世](http://www.daogukj.com/2377613)
-- [祁连县官方回应征用宿舍事件，称宿舍已复原消杀，给学生发放文创礼包，如何评价这次处置与善后措施？](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [购房者买房多年才得知客厅正上方天台埋着一座土坟，房东和物业应承担责任吗？购房者应怎样维权？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [带班主任体验黄毛的一天](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [肺鼠疫会人传人](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [德法提议设贸易「紧急切断开关」指向中国，将对中欧经贸产生何种影响？](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [高速免费最后一刻女子淡定缴费](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [诺奖得主获奖后上班欢呼一片](http://www.daogukj.com/qkjpzqjb/)
-- [如何看待现在大部分零零后学生几乎不会使用网址进行搜索？](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [如何评价电视剧《我不是大师》大结局？](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [跳水运动员张家齐和她母亲的关系揭示了中国式母女的哪些问题？](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
-- [俄罗斯“不明原因肺炎”事件发酵](http://www.daogukj.com/opgycgjr/)
-- [宇树科技股价较上市高点跌超60%](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [缅北电诈逃脱者的自救建议：别打车](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [李一桐le成断层第一](http://www.daogukj.com/3894638)
-- [国庆电影票房以 11.65 亿收官，创十三年来新低，如何看待国庆档电影票房持续走低？](http://www.daogukj.com/ihugvxjr/)
-- [彭玉从29岁开始演了一辈子老太太](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [空房未用暖气被收违约金](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [挑战负债城市生存，今日犯了暴食之罪](http://www.daogukj.com/owscegnp/)
-- [俄罗斯不明肺炎会传进来吗](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [新娘九个舅舅染不同颜色头发送嫁](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [从未见过如此「好笑」之人丨丞相还挺忙·于洋](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [女局长被举报婚内出轨多人家属发声](http://www.daogukj.com/9324764)
-- [兰州牛肉面馆 “最强大脑”师傅](http://www.daogukj.com/awlcbyru/)
-- [肺鼠疫症状](http://www.daogukj.com/5750670)
+- [考研预报名开启](http://www.daogukj.com/xvspcmfq/)
+- [出重拳：李在明决心终结“韩奸富三代”乱象](http://www.daogukj.com/4116400)
+- [肺鼠疫症状](http://www.daogukj.com/nncunhqi/)
+- [美股收盘：纳指跌逾1% AI概念股承压](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [有事没事儿，尽喜欢做点好吃的、新鲜玩意给家里人尝一尝！好好吃饭就是好好生活！【睡个好觉】](http://www.daogukj.com/svuwbdap/)
+- [“为了看短剧 我妈两年花22万”](http://www.daogukj.com/qvipjsxc/)
+- [泰国王后驾驶战机训练后落泪](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
+- [厄尔尼诺现象预计在12月达到峰值](http://www.movie.hkepx.cn/movie/2146522.htm)
+- [向佐曾因过量喝蛋白粉把肾喝成70岁](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [高芙控诉在与孙心然的比赛发生争议球后，自己遭遇网暴和种族歧视，如何评价这起事件？](http://www.daogukj.com/wvyvpuql/)
+- [网传一车主后备箱装十箱矿泉水被罚，称因为「客货混装」，这是真的吗？后备箱怎么装会违规？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [俄不明原因肺炎地区正解除防疫措施](http://www.daogukj.com/yktxglwn/)
+- [医生：40岁后一定要防猝死](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [肖战 南京演唱会](http://www.daogukj.com/2377613)
+- [如何看待央视六套时隔18年，将于10月10日重播《楚门的世界》？你对该影片有什么感想？](http://www.movie.hkepx.cn/movie/4178444.htm)
+- [如何评价字节Seed团队发现DeepSeek性能漂移？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [广东佛山：发生食源性疾病聚集事件](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [纪委回应女局长被举报婚内出轨多人](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [迈克尔·高启强 世界巡演【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [博主：A股节后或迎“波段修复”](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [如何看待 DeepSeek 估值已接近 5000 亿元？](http://www.daogukj.com/qkjpzqjb/)
+- [全网首发《银松镇》正式版 高质量生化危机+寂静岭风格恐怖游戏](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [如何在中国合法造一把你自己的枪？【鹰哥Studio】](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [“我穿越成了一棵树。”](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [全世界都忍不住要笑了](http://www.daogukj.com/opgycgjr/)
+- [不少网友认为「电诈」的罪名听起来太轻，应归属为「恐怖组织罪」，你咋看？从判罚和定义上来看两者有何区别？](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [高速免费最后一刻女子淡定缴费](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [张本智和被“满电战神”打没电了](http://www.daogukj.com/3894638)
+- [《我到底要怎么救你》](http://www.daogukj.com/ihugvxjr/)
+- [感觉不对劲一定不要回应](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [崔晋李勒优聊天记录](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [诺奖得主获奖后上班欢呼一片](http://www.daogukj.com/owscegnp/)
+- [女儿向八旬母亲借钱救命被拒](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [年轻人养生开始追求极简模式「喝大水、睡大觉、练薄肌」，为什么这种模式开始流行？真有养生效果吗？](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [中国代表在联合国批驳日本](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [胡塞武装人员光着脚唱着歌单手压AK](http://www.daogukj.com/9324764)
+- [油价再大涨](http://www.daogukj.com/awlcbyru/)
+- [俄罗斯鼠疫](http://www.daogukj.com/5750670)
 
 </details>
 
 ## 原始来源
 
-- [女子在美容院做「排毒水光肌」套餐，灌肠时肠子被捅破致肠穿孔，这有多危险？美容院要承担哪些责任？](https://www.zhihu.com/question/2091169766090043415)
+- [葡媒《球报》发布问卷调查，70%的球迷不希望C罗重返国家队，如何看待这份调查结果？](https://www.zhihu.com/question/2091469322023597434)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9171bcb9c1c9eefcd0bc -->
+<!-- content-fingerprint: 0945ad4aac90284aa6d1 -->

@@ -2,11 +2,11 @@
 
 # “新疆棕熊索食险酿大祸”系编造
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6854126 · 更新：2026-10-09T04:39:48+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6858093 · 更新：2026-10-09T08:40:59+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，““新疆棕熊索食险酿大祸”系编造”位列第 10 位，公开热度指标为 6854126。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““新疆棕熊索食险酿大祸”系编造”位列第 10 位，公开热度指标为 6858093。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：近日，网传“喀纳斯游客投喂棕熊，致其疯狂索食险酿大祸”引发关注。景区核实从未发生相关事件，系AI生成的虚假内容。
 
@@ -18,74 +18,74 @@
 
 ## 相关热点
 
-- [肺鼠疫症状](yu-mu-hun-zhu.md)
+- [俄罗斯鼠疫](yu-mu-hun-zhu.md)
 - [网传喀纳斯棕熊索食系AI编造](dong-shi-xiao-pin.md)
-- [如何看待 DeepSeek 估值已接近 5000 亿元？](han-dan-xue-bu.md)
-- [“站在台中间串两边，全明星百分百参团”【Immortals-Deep】【百分百参团の小曲】](qi-ren-you-tian.md)
+- [高芙控诉在与孙心然的比赛发生争议球后，自己遭遇网暴和种族歧视，如何评价这起事件？](han-dan-xue-bu.md)
+- [出重拳：李在明决心终结“韩奸富三代”乱象](qi-ren-you-tian.md)
 
 ## 站内推荐
 
 - [【独家】时光代理人 第三季 PartOne 第10集 错位的救赎【8月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [【断网补全计划149】太阳之子，闪身步，不烧心，农大科比，雨中霸王龙，超长蛋挞，疯狂水世界，冰冰冰，咕咕嘎嘎小孩，野人先生罗永浩风波，钟薛高复活](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [俄罗斯“不明原因肺炎”事件发酵](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [鼠疫到底是什么](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [彭玉从29岁开始演了一辈子老太太](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [“为了看短剧 我妈两年花22万”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [全世界都忍不住要笑了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [曾舜晞19岁至29岁颜值变化](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [感觉不对劲一定不要回应](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [139万元的药一年半才等到第一个患者](http://www.daogukj.com/1906233)
-- [缅北电诈逃脱者的自救建议：别打车](http://www.movie.hkepx.cn/movie/8207551.htm)
-- [妈妈是个超人](http://www.daogukj.com/dztmbdzh/)
-- [“考不上清北就去清北工作”](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
-- [祁连县官方回应征用宿舍事件，称宿舍已复原消杀，给学生发放文创礼包，如何评价这次处置与善后措施？](http://www.movie.hkepx.cn/xiju/7262543.htm)
-- [俄罗斯不明肺炎会传进来吗](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
-- [如何评价电视剧《我不是大师》大结局？](http://www.movie.hkepx.cn/xiju/4947300.htm)
+- [郭晶晶有新身份 霍启刚：特别骄傲](http://www.daogukj.com/1906233)
+- [高速免费最后一刻女子淡定缴费](http://www.movie.hkepx.cn/movie/8207551.htm)
+- [崔永元自述：冯小刚乱，徐帆也很乱！范冰冰恬不知耻！我就是要他们完蛋！但葛优我可以忍！](http://www.daogukj.com/dztmbdzh/)
+- [还我白砂糖](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
+- [如何看待央视六套时隔18年，将于10月10日重播《楚门的世界》？你对该影片有什么感想？](http://www.movie.hkepx.cn/xiju/7262543.htm)
+- [女儿向八旬母亲借钱救命被拒](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
+- [如何在中国合法造一把你自己的枪？【鹰哥Studio】](http://www.movie.hkepx.cn/xiju/4947300.htm)
 - [假期超21亿人次跨区域流动](http://www.movie.hkepx.cn/xiju/5761043.htm)
-- [新娘九个舅舅染不同颜色头发送嫁](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
-- [高速免费最后一刻女子淡定缴费](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
-- [周启豪零封张本智和晋级8强](http://www.movie.hkepx.cn/movie/5688642.htm)
-- [病房现大面积霉菌 医院称不影响健康](http://www.daogukj.com/jvdbiekb/)
-- [原来花千骨当时那么惨啊](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
-- [如何看待 DeepSeek 估值已接近 5000 亿元？](http://www.movie.hkepx.cn/xiju/4016086.htm)
-- [医生：40岁后一定要防猝死](http://www.movie.hkepx.cn/movie/2656990.htm)
-- [新郎婚礼当天去医院看病后离世](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
+- [年轻人养生开始追求极简模式「喝大水、睡大觉、练薄肌」，为什么这种模式开始流行？真有养生效果吗？](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
+- [博主：A股节后或迎“波段修复”](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
+- [肺鼠疫症状](http://www.movie.hkepx.cn/movie/5688642.htm)
+- [女双四强国乒占据三席](http://www.daogukj.com/jvdbiekb/)
+- [人需要一场旷世长久的长假](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
+- [高芙控诉在与孙心然的比赛发生争议球后，自己遭遇网暴和种族歧视，如何评价这起事件？](http://www.movie.hkepx.cn/xiju/4016086.htm)
+- [俄罗斯研究员疑感染肺鼠疫死亡，有哪些问题待厘清？肺鼠疫有多凶险？](http://www.movie.hkepx.cn/movie/2656990.htm)
+- [肖战 南京演唱会](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
 - [超市生存挑战后续！4人吃完整个超市赢100万美金！](http://www.movie.hkepx.cn/movie/6948720.htm)
-- [从未见过如此「好笑」之人丨丞相还挺忙·于洋](http://www.movie.hkepx.cn/movie/3077263.htm)
-- [《要是我能快点长大就好了》](http://www.movie.hkepx.cn/movie/1951037.htm)
-- [奶奶假牙不见小狗露八颗牙](http://www.daogukj.com/0012222)
-- [“站在台中间串两边，全明星百分百参团”【Immortals-Deep】【百分百参团の小曲】](http://www.movie.hkepx.cn/movie/6159585.htm)
-- [唐驳虎：俄“鼠疫”惊动几大邻国](http://www.movie.hkepx.cn/xiju/3354539.htm)
-- [挑战负债城市生存，今日犯了暴食之罪](http://www.movie.hkepx.cn/movie/4882379.htm)
-- [崔晋称会发声明回应](http://www.movie.hkepx.cn/movie/1975079.htm)
-- [在大山支教 学校宿舍水太小又冷，已经半个月没洗澡了，扛不住了抓住假期的尾巴出山进城开房洗澡 买菜 拿物资..](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
+- [中国代表在联合国批驳日本](http://www.movie.hkepx.cn/movie/3077263.htm)
+- [年轻人在横店演反派 阿姨们演娘娘](http://www.movie.hkepx.cn/movie/1951037.htm)
+- [李子坝地下33米藏一亿现钞](http://www.daogukj.com/0012222)
+- [出重拳：李在明决心终结“韩奸富三代”乱象](http://www.movie.hkepx.cn/movie/6159585.htm)
+- [泰国王后驾驶战机训练后落泪](http://www.movie.hkepx.cn/xiju/3354539.htm)
+- [诺奖得主获奖后上班欢呼一片](http://www.movie.hkepx.cn/movie/4882379.htm)
+- [肺鼠疫会人传人](http://www.movie.hkepx.cn/movie/1975079.htm)
+- [向佐喝蛋白粉把肾喝成70岁](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
 - [外交部回应直呼高市早苗名字](http://www.movie.hkepx.cn/xiju/1921854.htm)
-- [金戒指遗失在沙漠被找回](http://www.daogukj.com/4901061)
-- [俄罗斯官方将研究员死因定性为不明病因肺炎，为啥外界会联系到「鼠疫」？网传四种感染来源的说法哪种更合理？](http://www.daogukj.com/jetdabgu/)
-- [如何看待欧洲反华决议高票通过](http://www.daogukj.com/7091816)
-- [电音玩家 VS 摇滚老炮：摇滚协会副会长于谦当场入坑电音现场？](http://www.movie.hkepx.cn/movie/5119801.htm)
-- [C罗自曝被主帅两次放鸽子，41岁的他到底图个啥？](http://www.daogukj.com/eozvjcki/)
-- [为什么说华中科技大学是工科大学中的异类？](http://www.movie.hkepx.cn/movie/3647409.htm)
-- [女局长被举报婚内出轨多人家属发声](http://www.daogukj.com/olnmglro/)
-- [高血压是最常见的心血管疾病之一](http://www.movie.hkepx.cn/movie/0305763.htm)
-- [国庆电影票房以 11.65 亿收官，创十三年来新低，如何看待国庆档电影票房持续走低？](http://www.movie.hkepx.cn/xiju/5270802.htm)
+- [律师见人性阴暗仍快乐](http://www.daogukj.com/4901061)
+- [2026WTT中国大满贯，温瑞博2-3惜败莫雷加德，无缘男单八强，如何评价本场比赛？](http://www.daogukj.com/jetdabgu/)
+- [俄不明原因肺炎地区正解除防疫措施](http://www.daogukj.com/7091816)
+- [张本美和对着镜头吐槽松岛辉空](http://www.movie.hkepx.cn/movie/5119801.htm)
+- [一口气训两个](http://www.daogukj.com/eozvjcki/)
+- [带班主任体验黄毛的一天](http://www.movie.hkepx.cn/movie/3647409.htm)
+- [胡塞武装人员光着脚唱着歌单手压AK](http://www.daogukj.com/olnmglro/)
+- [12306老是说其他不是官方授权，不是官方授权，他们为什么能卖票？他们的票又是从哪里来的？](http://www.movie.hkepx.cn/movie/0305763.htm)
+- [《我到底要怎么救你》](http://www.movie.hkepx.cn/xiju/5270802.htm)
 - [网传喀纳斯棕熊索食系AI编造](http://www.daogukj.com/novgnuvs/)
-- [肖战 南京演唱会](http://www.movie.hkepx.cn/movie/5479779.htm)
-- [俄罗斯“不明原因肺炎”事件发酵](http://www.daogukj.com/pimnqdhd/)
-- [鼠疫到底是什么](http://www.movie.hkepx.cn/movie/9614078.htm)
-- [床车旅行管理正在持续升级](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
-- [《原神》过场动画-「生与死的流速」](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
-- [带班主任体验黄毛的一天](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
-- [张本智和被“满电战神”打没电了](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
-- [李一桐le成断层第一](http://www.movie.hkepx.cn/xiju/1743642.htm)
-- [国内有哪些「德不配位」的 5A 级景区？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
-- [央视披露紧急营救北斗卫星](http://www.movie.hkepx.cn/movie/7048621.htm)
-- [倪萍发文悼念彭玉](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
-- [【断网补全计划149】太阳之子，闪身步，不烧心，农大科比，雨中霸王龙，超长蛋挞，疯狂水世界，冰冰冰，咕咕嘎嘎小孩，野人先生罗永浩风波，钟薛高复活](http://www.movie.hkepx.cn/movie/9217518.htm)
-- [女子开超小养老院只收六人](http://www.daogukj.com/mmmeuyql/)
-- [矿山上的铜火锅？！特厨来一个沉浸式吃播！](http://www.movie.hkepx.cn/xiju/2283933.htm)
+- [俄解除不明原因肺炎防疫措施](http://www.movie.hkepx.cn/movie/5479779.htm)
+- [全世界都忍不住要笑了](http://www.daogukj.com/pimnqdhd/)
+- [曾舜晞19岁至29岁颜值变化](http://www.movie.hkepx.cn/movie/9614078.htm)
+- [看完缅北电诈覆灭纪实纪录片，最让你感慨的是什么？](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
+- [上厕所先洗手还是后洗手](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
+- [广东佛山：发生食源性疾病聚集事件](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
+- [Strata 支持 12GB 显存运行 125B 大模型，其技术难度有多大？](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
+- [张本智和被“满电战神”打没电了](http://www.movie.hkepx.cn/xiju/1743642.htm)
+- [向佐自曝喝蛋白粉把肾喝成了「70 岁」，真的会这样吗？蛋白粉怎样喝才正确？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
+- [网传一车主后备箱装十箱矿泉水被罚，称因为「客货混装」，这是真的吗？后备箱怎么装会违规？](http://www.movie.hkepx.cn/movie/7048621.htm)
+- [美股收盘：纳指跌逾1% AI概念股承压](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
+- [“为了看短剧 我妈两年花22万”](http://www.movie.hkepx.cn/movie/9217518.htm)
+- [苹果欢迎回家发布会定档](http://www.daogukj.com/mmmeuyql/)
+- [国际油价深夜大涨](http://www.movie.hkepx.cn/xiju/2283933.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 79bb0b65e44149430539 -->
+<!-- content-fingerprint: c81a1bd5cee95f3085c7 -->
