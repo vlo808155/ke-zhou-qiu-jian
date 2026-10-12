@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 因长期辱骂江秋莲被判道歉+赔付，网红黄建生公开发文向江秋莲道歉，哪些信息值得关注？
+# 《谁家》一周年献礼
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：96 万热度 · 分类：问答 · 更新：2026-10-12T06:56:46+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：333949 · 分类：搞笑 · 更新：2026-10-12T10:17:45+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“因长期辱骂江秋莲被判道歉+赔付，网红黄建生公开发文向江秋莲道歉，哪些信息值得关注？”位列第 11 位，公开热度指标为 96 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《谁家》一周年献礼”位列第 11 位，公开热度指标为 333949，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：致歉声明 本人黄建生，系微博账号“种牙匠黄建生”（UID：5694463602）的使用人。根据已生效的广东省广州市中级人民法院（2026）粤01民终20765号民事判决书认定：本人在上述微博账号中持续发布针对江秋莲女士的言论，其中使用了“野蛮人”“贪得无厌”“穷凶极恶”“幽灵”等带有明显贬损色彩的词汇。上述言论已超出对公共事件和公众人物进行合理质疑、批评的范畴，足以降低江秋莲女士的社会评价，给江秋莲女士造成精神伤害与不良社会影响。 本人尊重并服从法院判决，现向江秋莲女士郑重公开赔礼道歉，以消除影响、恢复其名誉。 致歉人：黄建生 2026年10月10日
+来源公开摘要显示：-
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [“和公主，在荒岛求生。”](qi-ren-you-tian.md)
-- [二十年夫妻因1万元打斗致丈夫死亡](chao-san-mu-si.md)
-- [央视曝投资1.2亿项目仅建5个棚](dui-niu-tan-qin.md)
-- [身高2米2网红小玥去世年仅26岁](mang-ren-mo-xiang.md)
+- [胖东来施工现场 干净得像AI](qi-ren-you-tian.md)
+- [利雅得机场遭袭瞬间](chao-san-mu-si.md)
+- [农业大棚开工一年即烂尾 负责人失联](dui-niu-tan-qin.md)
+- [曼城 3-0 送十人利物浦首败，哈兰德谢尔基破门，如何评价这场比赛？](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
 - [郑钦文首夺中网冠军](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [专家：合肥全城飘香非常罕见](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [中国人亲历机场遇袭：多人被巨响吓哭](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [OpenAI 发布 175 页四维挂谷猜想证明稿，这意味着什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [后来的我才明白...](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [蒙古国草原火情蔓延至我边境](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [如何看待腾讯QClaw停运后，网易LobsterAI发信称「不会将用户体验与数据当作内部赛马筹码」？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [【阿哈巨献】全城沦陷！四大虚狩都被邦布病毒感染！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [我们来到了地中海，重走《奥德赛》十年回家路！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [郑钦文：自己太想赢 赛前不停呕吐](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [央视曝投资1.2亿项目仅建5个棚](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [关羽全新双血条机制登场！](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [大二专科生称靠切片三年赚七百万](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [郑钦文回应夺冠后唱歌](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [农业大棚开工一年即烂尾 负责人失联](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [河南小吃开伦敦首店 一碗胡辣汤87元](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [郑钦文红袍加身举金杯旋转拍照](http://www.movie.hkepx.cn/movie/6633099.htm)
 - [史上最大退休潮来了，未来 14 年，平均每天 6 万人退休 ​，养老金体系该如何应对？](http://www.daogukj.com/qaspagub/)
-- [这种神人游戏怎么还在出新作啊？](http://www.daogukj.com/vbdopqig/)
-- [郑钦文收获明年澳网的种子席位](http://www.daogukj.com/gkqacstr/)
-- [媒体曝46岁「数学家」用AI炒股登上富豪榜，年赚642亿，如何看待这一造富神话？对普通人有借鉴意义吗？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [周鸿祎攀岩摔伤致左膝粉碎性骨折](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [郑钦文决赛上演闪身步](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [周鸿祎左膝粉碎性骨折](http://www.daogukj.com/qkmfzgih/)
-- [郑钦文 排名](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [广东 5 人吃野生红尾鲤确诊哈夫病，这种病是如何引发的？日常吃鱼该怎样防范？](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [网传缅北诈骗盯上泰百粉丝](http://www.daogukj.com/pgcqzahm/)
-- [也是当上外卖大法官了](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [女生被迫吸二手烟怒吼抽烟的把烟掐了](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [也是当上外卖大法官了](http://www.daogukj.com/vbdopqig/)
+- [大二专科生称靠切片三年赚七百万](http://www.daogukj.com/gkqacstr/)
+- [儿科医生按号顺序抢救车祸重伤儿童，后一位家长插队被拒后打电话投诉，此事背后反映了哪些问题？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [央视曝投资1.2亿项目仅建5个棚](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [曝李勒优和崔晋妈妈闹掰的原因](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [专家：今年暖冬基本确定](http://www.daogukj.com/qkmfzgih/)
+- [“被这个巨无霸震撼到了”](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [关羽全新双血条机制登场！](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [国际油价拉升 黄金下跌](http://www.daogukj.com/pgcqzahm/)
+- [记者暗访“搭子”社交：疑现色情服务](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [侯明昊工作室 别扯了单身勿扰](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
 - [本周这些数据值得关注](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [ai现在发展到什么程度了？](http://www.daogukj.com/5083848)
+- [12个脑洞大开的做饭方式！](http://www.daogukj.com/5083848)
 - [【邓肯】新发恐怖事件！女企业家被儿子雇人送入老年护理中心丨诡异的五亿高中生坠楼谜案！](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [郑钦文狂揽115万美元奖金](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [搜“中国石油”被导航到“中国加油”](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [如何评价郑钦文拿到中国球手的第一个中网冠军？这也是李娜之后中国网球的第二个WTA1000大师赛冠军？](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [女子3个月对盒马399件商品申请仅退款，快递员取件退还吃剩的，涉嫌诈骗罪被采取刑事强制，如何看待此事？](http://www.daogukj.com/5655258)
-- [河南小吃开伦敦首店 一碗胡辣汤87元](http://www.daogukj.com/5414627)
-- [李娜之后苦等14年](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [第四届衢州烂柯杯世界围棋公开赛，韩国申真谞、申旻埈、卞相壹、李志贤包揽四强，如何看待这一结果？](http://www.daogukj.com/4208506)
-- [老护士辞职后儿科投诉翻倍](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [沙特遭遇十年来最惨袭击](http://www.daogukj.com/7752186)
-- [倒查三年流水，顶级商K集体关门！商K经济终于崩盘了？](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [央视曝光个别地区蔬菜大棚撂荒](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [牛弹琴：泽连斯基最凶险的时刻来了](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [加油新规11月1日起全面实施](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [社保](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [媒体曝46岁「数学家」用AI炒股登上富豪榜，年赚642亿，如何看待这一造富神话？对普通人有借鉴意义吗？](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [父母因堆积废品生病 男子无奈举报](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [在 学 校 最 害 怕 的 声 音？](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [胡歌被问工作的意义，坦言拍《仙剑3》时也曾觉得无聊，但演员先要养活自己，如何看待理想和谋生之间的取舍？](http://www.daogukj.com/5655258)
+- [李娜之后苦等14年](http://www.daogukj.com/5414627)
+- [三步一“公主” 五步一“娘娘”](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [新人第1次编曲耶](http://www.daogukj.com/4208506)
+- [郑钦文回应夺冠：压力大到呕吐](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [泽连斯基回应特朗普说乌需要新总统](http://www.daogukj.com/7752186)
+- [请尊重一下你的前额叶](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [松岛辉空王曼昱长大了怎么不笑了](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [人民日报评刹车踏板风波](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [历史上关羽的谥号是壮缪侯，这个谥号是个恶谥吗？](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [如何评价《兰香如故》中赵星棠因家族奉行“女子无才便是德”而不识字，连账目都要依赖婢女青葙处理？](http://www.movie.hkepx.cn/movie/4507886.htm)
 - [郑钦文首夺中网冠军](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [如果把我和男朋友这几年的约会地点列出来](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
-- [中网女单决赛，郑钦文 2-0 战胜安德列娃夺得冠军，如何评价本场比赛以及她的亮眼表现？](http://www.daogukj.com/plfvnmnj/)
-- [二十年夫妻因1万元打斗致丈夫死亡](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [我们来到了地中海，重走《奥德赛》十年回家路！](http://www.daogukj.com/5346308)
-- [后来的我才明白...](http://www.daogukj.com/mwxqddka/)
-- [被骗缅北女孩遭遇惨不忍睹](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [专家：合肥全城飘香非常罕见](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [张雪机车德比斯锁定年度总亚军](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [大闸蟹价格大跌](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [逃离闪电侠黄金费德熊！你好邻居Mod](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [中国人亲历机场遇袭：多人被巨响吓哭](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [李九 AG](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [外地务工人员2元彩票中500万](http://www.daogukj.com/ictnjmqu/)
-- [中国混动车在欧洲要被“限流”了](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [我国验证出一种全新抗癌疗法，一针纳米材料打进肿瘤可让癌细胞生锈死亡，原理是什么？这一成果具有哪些意义？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [关晓彤回应去宋雨琦演唱会](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [如何看待中国和巴西网友激情对线互开左籍？](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [男子国庆被排 7 天班 1 天都没去遭开除，法院判公司合法解除，从法律角度该如何解读？](http://www.daogukj.com/plfvnmnj/)
+- [利雅得机场遭袭瞬间](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [逃离闪电侠黄金费德熊！你好邻居Mod](http://www.daogukj.com/5346308)
+- [我们来到了地中海，重走《奥德赛》十年回家路！](http://www.daogukj.com/mwxqddka/)
+- [真的建议大家要对钱有概念](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [蒙古国草原火情蔓延至我边境](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [为什么喝酒喝到微醺会让人感到快乐？](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [73 岁林毅夫终成世界计量经济学会士，含金量如何？](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [“上大学该谈个女朋友了”。我呀？我去谈恋爱啊？！那无敌了……](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [如何看待腾讯QClaw停运后，网易LobsterAI发信称「不会将用户体验与数据当作内部赛马筹码」？](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [单位欠缴社保最高罚三倍](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [郑钦文对手调侃：观众对我支持太少](http://www.daogukj.com/ictnjmqu/)
+- [人民日报评郑钦文夺冠](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [郑钦文成为中网历史上首位本土女单冠军，你认为她有机会在职业生涯内超越李娜的历史地位吗？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [李娜 郑钦文](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [因长期辱骂江秋莲被判道歉+赔付，网红黄建生公开发文向江秋莲道歉，哪些信息值得关注？](https://www.zhihu.com/question/2092373331072612285)
+- [《谁家》一周年献礼](https://b23.tv/BV1H2p765E1b)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9d8565f46c2ae42cd193 -->
+<!-- content-fingerprint: 4a893d69976625fc2770 -->
