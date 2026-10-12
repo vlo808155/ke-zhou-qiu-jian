@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 农业大棚开工一年即烂尾 负责人失联
+# 8千元狗仅退款商家驱车600公里寻狗
 
-> 来源：今日头条热榜 · 排名：第 12 位 · 热度：14629072 · 更新：2026-10-12T10:17:45+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6757312 · 更新：2026-10-12T17:30:48+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“农业大棚开工一年即烂尾 负责人失联”位列第 12 位，公开热度指标为 14629072。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“8千元狗仅退款商家驱车600公里寻狗”位列第 11 位，公开热度指标为 6757312。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：10月11日，山西晋中顾客刘先生称网购的8000元小狗已病死，暂未提供证明。此前其申请“仅退款”不退狗，山东济宁商家驱车600公里上门寻狗。目前调解方案为赔偿三四千元，双方均不满并打算起诉。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [曼城 3-0 送十人利物浦首败，哈兰德谢尔基破门，如何评价这场比赛？](mang-ren-mo-xiang.md)
-- [关羽全新双血条机制登场！](yuan-mu-qiu-yu.md)
-- [沙特机场遭袭新画面曝光](sha-ji-qu-luan.md)
-- [侯明昊工作室 别扯了单身勿扰](yin-zhen-zhi-ke.md)
+- [谭松韵下部剧是春禾之上](mang-ren-mo-xiang.md)
+- [全市场超4300只个股下挫](yuan-mu-qiu-yu.md)
+- [如何评价真人化 AI 漫剧《持械入宋》？](sha-ji-qu-luan.md)
+- [《生》生命是什么](yin-zhen-zhi-ke.md)
 
 ## 站内推荐
 
-- [“被这个巨无霸震撼到了”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [央视曝投资1.2亿项目仅建5个棚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [松岛辉空王曼昱长大了怎么不笑了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [王曼昱松岛辉空酷姐酷弟夺冠都不笑](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [人民日报评刹车踏板风波](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [奥迪全系买一赠一？上汽奥迪回应](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [电脑卖不动了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [全民“大烧心时代”来了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [21岁女生五脏六腑全长反](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [武林外传最有教育意义的一集](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [也是当上外卖大法官了](http://www.daogukj.com/7783346)
-- [郑钦文回应夺冠后唱歌](http://www.movie.hkepx.cn/xiju/0144340.htm)
-- [慎点！可能是你见过最变态最猎奇尺度最大的游戏！！！！《克里夫·巴克的养鬼吃人》究竟讲了什么？？？](http://www.movie.hkepx.cn/xiju/5872465.htm)
-- [新娘父亲一句“吃好喝好”直接开席](http://www.daogukj.com/xyupryli/)
-- [节后错峰出游持续升温](http://www.daogukj.com/6352765)
-- [霸王茶姬买一送一](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
-- [为什么大部分医院的院长副院长都是心外科胸外科上任的？](http://www.movie.hkepx.cn/xiju/6435292.htm)
-- [人社部提出「通过政策优化、数据找人等措施，力争基本养老保险参保率稳定在95%以上」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
-- [历史上关羽的谥号是壮缪侯，这个谥号是个恶谥吗？](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
-- [媒体：最好的郑钦文正在回来](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
-- [国际油价拉升 黄金下跌](http://www.daogukj.com/1493456)
-- [泽连斯基回应特朗普说乌需要新总统](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
-- [郑钦文教练祝贺她开演唱会](http://www.daogukj.com/wecagjke/)
-- [人民日报评刹车踏板风波](http://www.daogukj.com/8911687)
-- [“被这个巨无霸震撼到了”](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [郑钦文决赛闪身步躲球](http://www.movie.hkepx.cn/xiju/6645788.htm)
-- [单位欠缴社保最高罚三倍](http://www.movie.hkepx.cn/xiju/9394899.htm)
-- [胖东来施工现场 干净得像AI](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
-- [蒙古国草原火情蔓延至我边境](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [媒体曝46岁「数学家」用AI炒股登上富豪榜，年赚642亿，如何看待这一造富神话？对普通人有借鉴意义吗？](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [刘国梁女儿刘宇婕登顶中国女子公开赛](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
-- [河南小吃开伦敦首店 一碗胡辣汤87元](http://www.daogukj.com/sfshhzje/)
-- [短剧男演员凭什么日薪五六万](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [李娜之后苦等14年](http://www.daogukj.com/6469340)
-- [14岁女孩肚大如怀孕](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [我国验证出一种全新抗癌疗法，一针纳米材料打进肿瘤可让癌细胞生锈死亡，原理是什么？这一成果具有哪些意义？](http://www.movie.hkepx.cn/xiju/6637455.htm)
-- [《纽约时报》评选 21 世纪百佳剧集《绝命毒师》登顶，这份榜单符合你的预期吗？](http://www.daogukj.com/ezqthdyk/)
-- [侯明昊工作室 别扯了单身勿扰](http://www.movie.hkepx.cn/movie/8362403.htm)
-- [三步一“公主” 五步一“娘娘”](http://www.daogukj.com/blmliwwv/)
-- [玩家变成魔王，魔王却成了勇者，这款27年前的游戏竟有隐藏结局！](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
-- [郑钦文回应夺冠：压力大到呕吐](http://www.daogukj.com/6808681)
-- [真的建议大家要对钱有概念](http://www.daogukj.com/8913120)
-- [郑钦文首夺中网冠军](http://www.daogukj.com/8931072)
-- [男子国庆被排 7 天班 1 天都没去遭开除，法院判公司合法解除，从法律角度该如何解读？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [如何看待腾讯QClaw停运后，网易LobsterAI发信称「不会将用户体验与数据当作内部赛马筹码」？](http://www.movie.hkepx.cn/xiju/2847418.htm)
-- [大二专科生称靠切片三年赚七百万](http://www.daogukj.com/nrrtwuij/)
-- [曼城 3-0 送十人利物浦首败，哈兰德谢尔基破门，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
-- [嫁金钗定档](http://www.daogukj.com/emrfuprm/)
-- [利雅得机场遭袭瞬间](http://www.movie.hkepx.cn/movie/7899876.htm)
-- [媒体评郑钦文中网夺冠：凤凰涅槃](http://www.movie.hkepx.cn/xiju/7135879.htm)
-- [“拖鞋军”打瘫沙特首都机场](http://www.daogukj.com/obfbkvuj/)
-- [关羽全新双血条机制登场！](http://www.movie.hkepx.cn/xiju/2876935.htm)
-- [霸王茶姬小程序崩了](http://www.movie.hkepx.cn/xiju/8438607.htm)
-- [郑钦文对手调侃：观众对我支持太少](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
-- [王曼昱说对日本球员只有一点优势了](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
-- [本周这些数据值得关注](http://www.daogukj.com/8210319)
-- [儿科医生按号顺序抢救车祸重伤儿童，后一位家长插队被拒后打电话投诉，此事背后反映了哪些问题？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [女生被迫吸二手烟怒吼抽烟的把烟掐了](http://www.movie.hkepx.cn/xiju/1710411.htm)
-- [这些文物见证伟大远征](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
-- [记者暗访“搭子”社交：疑现色情服务](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
+- [张家齐妈妈引争议后，傅园慧爸爸意外迎来「宣发期」，网友称赞他是好爸爸，他好在哪？哪些言行值得家长学习？](http://www.daogukj.com/7783346)
+- [“拖鞋军”已成中东狠角色](http://www.movie.hkepx.cn/xiju/0144340.htm)
+- [你有没有带爸妈解锁过某个手机功能，让他们发现「手机还能这样用」？教爸妈学新的电子技能到底有多难？](http://www.movie.hkepx.cn/xiju/5872465.htm)
+- [我们来到了地中海，重走《奥德赛》十年回家路！](http://www.daogukj.com/xyupryli/)
+- [未来5年卫生健康领域将迎这些发展](http://www.daogukj.com/6352765)
+- [爱用洗衣凝珠的人天塌了](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
+- [人民日报评郑钦文夺冠](http://www.movie.hkepx.cn/xiju/6435292.htm)
+- [央视曝投资1.2亿项目仅建5个棚](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
+- [郑钦文对手输球告状：没有加油声](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
+- [smart精灵2号高定版限量开售](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
+- [演员拍戏 吸甲醛](http://www.daogukj.com/1493456)
+- [郑钦文晒长城捧奖杯照片](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
+- [王楚钦世界排名第5](http://www.daogukj.com/wecagjke/)
+- [武林外传最有教育意义的一集](http://www.daogukj.com/8911687)
+- [奥迪全系买一赠一？上汽奥迪回应](http://www.movie.hkepx.cn/movie/7897439.htm)
+- [男生梦到妈妈去世 醒来后情绪崩溃](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [领克轿车翻下百米悬崖车主生还](http://www.movie.hkepx.cn/xiju/9394899.htm)
+- [郑钦文右肩受伤，退出 2026 年武汉网球公开赛，她的伤势有多严重？对后续比赛影响有多大？](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
+- [外交部：美方应当慎重处理台湾问题](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
+- [外交部：同“台独”绑在一起没有前途](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [31岁抗癌博主东东离世 去世前狂吃冰](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [跟着AI教学能否实现薯条自由？](http://www.daogukj.com/sfshhzje/)
+- [徐良 脱粉](http://www.movie.hkepx.cn/xiju/2060263.htm)
+- [洗衣凝珠 安全隐患](http://www.daogukj.com/6469340)
+- [欧方确认不针对歧视中国产品企业](http://www.movie.hkepx.cn/movie/8131985.htm)
+- [日本用工市场再现「挑企业」潮，12.1万求职者对应49.9万岗位，应届生薪资普涨达40%，你怎么看？](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [广州一放生团体因官方报备太严格，直接放生两万条鲮鱼，还有放生者称「做善事干吗报备」，随意放生有啥危害？](http://www.daogukj.com/ezqthdyk/)
+- [《生》生命是什么](http://www.movie.hkepx.cn/movie/8362403.htm)
+- [男子同酒楼同时与2女子办婚宴百日宴](http://www.daogukj.com/blmliwwv/)
+- [也门胡塞武装与沙特冲突起因是什么？双方此前有哪些恩怨？](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
+- [刘国梁16岁女儿夺冠](http://www.daogukj.com/6808681)
+- [AI短剧正在围猎中年男性](http://www.daogukj.com/8913120)
+- [霸王茶姬店员劝退消费者](http://www.daogukj.com/8931072)
+- [周鸿祎攀岩从 3 米高处摔下，左膝粉碎性骨折，攀岩有哪些易被忽视的风险？攀岩时需要做好哪些防护？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
+- [“中国天眼”发现真实宇宙三体世界](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [赛力斯涨停](http://www.daogukj.com/nrrtwuij/)
+- [谭松韵下部剧是春禾之上](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
+- [中国公民亲历机场袭击：从座位上弹飞](http://www.daogukj.com/emrfuprm/)
+- [玩家变成魔王，魔王却成了勇者，这款27年前的游戏竟有隐藏结局！](http://www.movie.hkepx.cn/movie/7899876.htm)
+- [敌敌畏消杀事件已有涉案人员被捕](http://www.movie.hkepx.cn/xiju/7135879.htm)
+- [霸王茶姬就崩了致歉：急急急](http://www.daogukj.com/obfbkvuj/)
+- [全市场超4300只个股下挫](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [男子肝癌晚期临终前曾特别想吃冰](http://www.movie.hkepx.cn/xiju/8438607.htm)
+- [特朗普为何“大撒币”？中期选举究竟有多重要？【纸牌屋现实版】](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
+- [成毅饰演王轩青年王展飞](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
+- [红星照耀中国](http://www.daogukj.com/8210319)
+- [莫氏鸡煲莫叔称为养鸡场砸了 600 万，儿女都已辞职，很可能会再背上一身债务，如何看待他的选择？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
+- [deepseek 翻唱《人是猫》真完整版，大肥鱼觉得人和猫一样可爱,所以人是猫](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [“进厂游”为何火了起来](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
+- [江淮汽车10月12日开盘大跌，市值跌破500亿，午间收盘重回 500亿，江淮汽车未来股价还将如何变化？](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
 </details>
 
 ## 原始来源
 
-- [农业大棚开工一年即烂尾 负责人失联](https://www.toutiao.com/trending/7695387010010365971/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227695387010010365971%22%2C%22hot_board_impr_id%22%3A%222026101210174319CF3EABBE310F46ED48%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [8千元狗仅退款商家驱车600公里寻狗](https://www.baidu.com/s?wd=8%E5%8D%83%E5%85%83%E7%8B%97%E4%BB%85%E9%80%80%E6%AC%BE%E5%95%86%E5%AE%B6%E9%A9%B1%E8%BD%A6600%E5%85%AC%E9%87%8C%E5%AF%BB%E7%8B%97&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 584e55fdeb0e041317ec -->
+<!-- content-fingerprint: b03fa9923717f1ab2515 -->
