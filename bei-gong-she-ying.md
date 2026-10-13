@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待海贼王漫画1187话，山治觉醒霸王色霸气？
+# 同姓的人一定拥有共同的祖先吗？
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：142 万热度 · 分类：问答 · 更新：2026-10-13T16:22:53+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：79 万热度 · 分类：问答 · 更新：2026-10-14T00:14:59+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待海贼王漫画1187话，山治觉醒霸王色霸气？”位列第 10 位，公开热度指标为 142 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“同姓的人一定拥有共同的祖先吗？”位列第 10 位，公开热度指标为 79 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：山治的霸王色霸气看来真的要觉醒了！
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](jing-gong-zhi-niao.md)
-- [男子标注贩毒人员车辆为某品牌被抓](hu-jia-hu-wei.md)
-- [警方已确认与未成年金赛纶交往男星](yu-mu-hun-zhu.md)
-- [男子造谣多名游泳者死亡被依法处理](dong-shi-xiao-pin.md)
+- [《硬邦邦の八字》](jing-gong-zhi-niao.md)
+- [长期用电动牙刷牙龈萎缩出血？误区](hu-jia-hu-wei.md)
+- [金晨说王楚然在现发撒得开](yu-mu-hun-zhu.md)
+- [2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [缅北魏家犯罪集团案一审宣判，魏怀仁、陈大卫、廖景芳被判死刑，哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [35岁前策划用5万元的token做出纯AI游戏，他说“单人能搓《原神》”，你认为这是暴论还是预言？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [商人侵害14岁女孩案女孩确诊PTSD，至今无法就学就业，法律如何为其提供更充分赔偿？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [拦不住！当5岁小孩非要尝试重庆火锅...](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [乔丹比赛球衣拍出1400万美元](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [王星被胁迫借下的网贷该不该还](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [为什么这么多人讨厌陈岩石夫妇在饭桌上向沙瑞金告状的行为？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [男群演疑似猥亵女演员 剧组回应](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [肖战全票发售撕开行业潜规则遮羞布](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [苹果发布会](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [雅思](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [央视曝光大棚闲置后当地连夜开会](http://www.daogukj.com/0517179)
-- [《两种肚子》流的是同一种血。](http://www.daogukj.com/yzfviyov/)
-- [“各位都什么原因没买一艘呢”](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [看演唱会送好莱坞？华晨宇火星演唱会2.0全揭秘！](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [特朗普为什么突然“倒向”俄罗斯](http://www.daogukj.com/1191355)
-- [缅北四大家族三个已被中国宣判](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [问界汽车拟于2027年进入欧洲市场，赛力斯曾表示正推进问界车型全系出海，在海外还能复制国内热度吗？](http://www.daogukj.com/2850206)
-- [男子标注贩毒人员车辆为某品牌被抓](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [商人侵害14岁女孩案女孩确诊PTSD，至今无法就学就业，法律如何为其提供更充分赔偿？](http://www.daogukj.com/5364901)
-- [机器狗第一次进哀牢山就拍到冥界之花](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
-- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](http://www.daogukj.com/nisjsldl/)
-- [楼上百日宴楼下婚宴最无辜的是孩子](http://www.daogukj.com/xvspcmfq/)
-- [《硬邦邦の八字》](http://www.daogukj.com/4116400)
-- [北美花生晒字节跳动入职邮件和工卡](http://www.daogukj.com/nncunhqi/)
-- [外交部：对中国经济发展前景有信心](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [乔丹比赛球衣拍出1400万美元](http://www.daogukj.com/svuwbdap/)
-- [中方坚决反对印度方公布所谓标准地名](http://www.daogukj.com/qvipjsxc/)
-- [男群演疑似猥亵女演员 剧组回应](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
-- [夫妻点一杯58元咖啡只能一人落座](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [荒木飞吕彦称不理解《新世纪福音战士》等作品中「内心不想战斗的主角」，你更喜欢哪种？](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [一梯一户真的安全吗？运行规则是啥？](http://www.daogukj.com/wvyvpuql/)
-- [鸡蛋价格一个月下跌近 25%，从 6 元跌回 4 元时代，背后是什么原因？接下来还会继续降价吗？](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
-- [3人死刑！缅北魏家犯罪集团案宣判](http://www.daogukj.com/yktxglwn/)
-- [星野源新垣结衣孩子出生](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [吃播女网红去世前多次展示手背上的针眼](http://www.daogukj.com/2377613)
-- [“轮回百世，嘴硬百世。”](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [媒体曝付费可进「中国天眼」核心区，中科院已成立调查组，这会对科研观测造成哪些危害？暴露出哪些管理问题？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [肖战工作室呼吁抵制黄牛票](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [缅北四大家族覆灭时间线](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [乌铜走银](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [24岁女吃播猝死 或因缺钾](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [35岁前策划用5万元的token做出纯AI游戏，他说“单人能搓《原神》”，你认为这是暴论还是预言？](http://www.daogukj.com/qkjpzqjb/)
-- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [赵露思亲友自嗨神作《我不是npc》](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [“新月飨宴”主题活动故事视频爆料：——“欢迎光临午夜的魔法厨房！今日是谁携美味闪亮登场？”](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
-- [网红晚安安从35楼坠落生还 右腿截肢](http://www.daogukj.com/opgycgjr/)
-- [大蛇盘踞厕所 消防出勤30多次终抓获](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [缅北魏家犯罪集团案一审宣判，魏怀仁、陈大卫、廖景芳被判死刑，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [缅北魏家犯罪集团覆灭始末](http://www.daogukj.com/3894638)
-- [精神小妹误闯天家](http://www.daogukj.com/ihugvxjr/)
-- [华为披露下一代麒麟芯片进展](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [华熙生物原首席科学家郭学平病逝](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [国考岗位](http://www.daogukj.com/owscegnp/)
-- [肖战要求100%公开售票](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [男生梦到妈妈去世醒来后情绪崩溃](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [网红晚安安自述从35楼坠楼生还经历](http://www.daogukj.com/9324764)
-- [泽连斯基提60天全面停火有何考量](http://www.daogukj.com/awlcbyru/)
-- [警方已确认与未成年金赛纶交往男星](http://www.daogukj.com/5750670)
+- [10岁女童被男老师摸脸家长索赔20万](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [百果园2年亏掉了7个亿](http://www.daogukj.com/0517179)
+- [住手 你们不要再摇花手了](http://www.daogukj.com/yzfviyov/)
+- [老了也要保持卡点上班的优雅习惯【AI全民制作人】](http://www.movie.hkepx.cn/xiju/0529283.htm)
+- [手机不好卖了](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [79岁老干妈陶华碧用AI一年赚54亿](http://www.daogukj.com/1191355)
+- [吃播网红干饭莹去世](http://www.movie.hkepx.cn/xiju/7511993.htm)
+- [菲副总统怒批总统对中国鲁莽挑衅](http://www.daogukj.com/2850206)
+- [长期用电动牙刷牙龈萎缩出血？误区](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
+- [男群演疑似猥亵女演员 剧组回应](http://www.daogukj.com/5364901)
+- [红果短剧千万别下载](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [《硬邦邦の八字》](http://www.daogukj.com/nisjsldl/)
+- [血液太“黏”的5个信号](http://www.daogukj.com/xvspcmfq/)
+- [重庆市原市长黄奇帆被查](http://www.daogukj.com/4116400)
+- [如何评价动画电影《小猪佩奇·完美假期》？](http://www.daogukj.com/nncunhqi/)
+- [被送蛋！张帅止步武网首轮](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [苹果发布会](http://www.daogukj.com/svuwbdap/)
+- [湖北一老人下地干活被气枪击中身亡](http://www.daogukj.com/qvipjsxc/)
+- [50块钱可以在熟食店卖那些东西？](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
+- [机器狗第1次进哀牢山就拍到冥界之花](http://www.movie.hkepx.cn/movie/2146522.htm)
+- [赵露思亲友自嗨神作《我不是npc》](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [传奇历史人物志——普朗克](http://www.daogukj.com/wvyvpuql/)
+- [79岁老干妈陶华碧用AI一年赚了54亿](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [缅北四大家族3个已被中国宣判](http://www.daogukj.com/yktxglwn/)
+- [63小时？疯狂就在当下！！面包车直达新疆！赛里木湖！没白活！](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [居民投诉月亮太亮影响睡觉白岩松回应](http://www.daogukj.com/2377613)
+- [如何看待Andrej Karpathy提出「AI能力认知漏斗」，少数专业人士已开始有「眩晕感」？](http://www.movie.hkepx.cn/movie/4178444.htm)
+- [雷波县教师被安排与「耻辱」二字合影，近 50 天仍未公布调查结果，为啥迟迟不公布？调查的难点在哪儿？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [任泽平谈诺贝尔经济学奖](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [老人凌晨下地干活被气枪击中身亡](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [机器狗进哀牢山拍到“冥界之花”](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [为什么这么多人讨厌陈岩石夫妇在饭桌上向沙瑞金告状的行为？](http://www.daogukj.com/qkjpzqjb/)
+- [“史上最大最荒谬的IPO”](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [送1.9元汽水患者连续投诉医生2年](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [在冬夜，一块蛋糕，两个冻人](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [女子高铁上和男友开免提打1小时电话](http://www.daogukj.com/opgycgjr/)
+- [好好好，在暗部狙击我是吧！？鬼叔食堂！](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [王星被胁迫借下的网贷该不该还](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [超级“干净”的巴基斯坦汽水工厂，是一代人永远无法磨灭的伤痛](http://www.daogukj.com/3894638)
+- [黄奇帆接受审查调查](http://www.daogukj.com/ihugvxjr/)
+- [如果你有25万的存款，面对1500的衣服裤子你会不会犹豫啊？](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [出去旅行有必要发朋友圈嘛?](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [男生高考522分被调剂马术专业学钉蹄](http://www.daogukj.com/owscegnp/)
+- [你们认为芯片圈里哪家公司的产品命名最为混乱？](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [苹果正式进军智能家居市场](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [AI女爱豆因怀孕暂停活动](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [德柱超市打工初体验](http://www.daogukj.com/9324764)
+- [2026 年诺贝尔经济学奖表彰宏观经济研究，为什么经济学家仍难以预测经济危机？](http://www.daogukj.com/awlcbyru/)
+- [金晨说王楚然在现发撒得开](http://www.daogukj.com/5750670)
 
 </details>
 
 ## 原始来源
 
-- [如何看待海贼王漫画1187话，山治觉醒霸王色霸气？](https://www.zhihu.com/question/2057422653670084939)
+- [同姓的人一定拥有共同的祖先吗？](https://www.zhihu.com/question/2091486108169379965)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 70aa4570b7f9f5d4c6c4 -->
+<!-- content-fingerprint: fc91ab2bbe892a64c39b -->
