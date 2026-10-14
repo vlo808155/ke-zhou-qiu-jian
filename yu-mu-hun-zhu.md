@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 长期用电动牙刷牙龈萎缩出血？误区
+# 基米呐基米，生殖隔离我也认！
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6854148 · 更新：2026-10-14T05:20:12+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：728374 · 分类：汪星人 · 更新：2026-10-14T08:25:49+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“长期用电动牙刷牙龈萎缩出血？误区”位列第 10 位，公开热度指标为 6854148。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“基米呐基米，生殖隔离我也认！”位列第 11 位，公开热度指标为 728374，榜单分类为“汪星人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，北京网络举报辟谣称，网传“长期使用电动牙刷会导致牙釉质变薄、牙龈萎缩出血”系流传很广的口腔护理误区。规范使用合格电动牙刷不会损伤牙釉质和牙龈，其定时、控压设计反而比手动刷牙更护齿，牙龈出血多因硬毛刷头、暴力横刷或牙周炎等问题，建议选软毛刷头、轻贴牙面清洁，出血持续及时就医。
+来源公开摘要显示：AI生成仅供娱乐 基米呀基米，狗哥断不了情根~
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `汪星人`
 
 ## 相关热点
 
-- [吃播网红干饭莹去世](dong-shi-xiao-pin.md)
-- [2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？](han-dan-xue-bu.md)
-- [超级“干净”的巴基斯坦汽水工厂，是一代人永远无法磨灭的伤痛](qi-ren-you-tian.md)
-- [中科院回应“住酒店可进天眼核心区”](chao-san-mu-si.md)
+- [男群演疑似猥亵女演员 剧组回应](dong-shi-xiao-pin.md)
+- [赛力斯起诉AI造谣问界者索赔百万](han-dan-xue-bu.md)
+- [如何评价10月13日正式推出的Gemini 4 Argon？](qi-ren-you-tian.md)
+- [睁眼就是豪赌！炒股买房婚恋整容，韩国普通人的人生只能有一种答案？｜地球观察局EP03【视频播客】](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [机器狗第1次进哀牢山就拍到冥界之花](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [“0糖”到底有没有糖](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [湖北一老人下地干活被气枪击中身亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [73岁迟重瑞面色红润热情回应路人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [同姓的人一定拥有共同的祖先吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [10万亿“沉睡”公积金正在激活](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [真实姓名被9年未联系友人用作昵称](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [为什么这么多人讨厌陈岩石夫妇在饭桌上向沙瑞金告状的行为？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [金秀贤方索赔升至300亿韩元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [男子在悬空寺做引体向上被立案](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【A2O】A2O LITE 'NEON' Official Video](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [79岁老干妈陶华碧用AI一年赚54亿](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [中科院回应“住酒店可进天眼核心区”](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [雷波县教师被安排与「耻辱」二字合影，近 50 天仍未公布调查结果，为啥迟迟不公布？调查的难点在哪儿？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [大闸蟹为何跌出“地板价”](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [同姓的人一定拥有共同的祖先吗？](http://www.daogukj.com/4734416)
-- [王星被胁迫借下的网贷该不该还](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [患者送1.9元汽水后举报工作人员收礼](http://www.daogukj.com/eujljnlh/)
-- [全球硫磺价格暴涨近10倍](http://www.daogukj.com/3484796)
-- [湖北一老人下地干活被气枪击中身亡](http://www.daogukj.com/6840289)
-- [男生高考522分被调剂马术专业，成为在校本科生中唯一持证钉蹄师，前景如何？能带给选专业的学生哪些启发？](http://www.daogukj.com/8544186)
-- [家有儿女早就教了我们正确的爱情观](http://www.daogukj.com/4262842)
-- [“0糖”到底有没有糖](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [许子东称金庸、倪匡、亦舒均来自江南，如何理解香港通俗文学的地域性？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [国内首款！《燕云十六声》携手英伟达将正式支持 DLSS 5，画质突破性革新！](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [方便面煮着吃为什么比泡着吃更香？](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [睁眼就是豪赌！炒股买房婚恋整容，韩国普通人的人生只能有一种答案？｜地球观察局EP03【视频播客】](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [宜宾一摊主被顾客差评后遭网暴，最后不堪重压选择跳河轻生，如何避免这种悲剧再次发生？](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [欧冠](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [男子在悬空寺做引体向上被立案](http://www.daogukj.com/4734416)
+- [雷波县教师被安排与「耻辱」二字合影，近 50 天仍未公布调查结果，为啥迟迟不公布？调查的难点在哪儿？](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.daogukj.com/eujljnlh/)
+- [国考报名](http://www.daogukj.com/3484796)
+- [为什么这么多人讨厌陈岩石夫妇在饭桌上向沙瑞金告状的行为？](http://www.daogukj.com/6840289)
+- [机器狗第一次进哀牢山就拍到冥界之花](http://www.daogukj.com/8544186)
+- [护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了](http://www.daogukj.com/4262842)
+- [真实姓名被9年未联系友人用作昵称](http://www.movie.hkepx.cn/movie/0136106.htm)
 - [未来五年看病就医会有哪些新变化](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [73岁迟重瑞面色红润热情回应路人](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [吃播网红干饭莹去世](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [住手 你们不要再摇花手了](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [苹果正式进军智能家居市场](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [或许在某个平行宇宙中，他们的故事是这样展开的.....](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [兵器工业集团与东风汽车签合作协议](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [霸王茶姬和奥迪买一送一谁赢谁输](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [方便面煮着吃为什么比泡着吃更香？](http://www.daogukj.com/4133568)
-- [一男子在悬空寺古建筑横梁做引体向上，警方已立案，涉事者将承担哪些责任？](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [35焦段做1.2光圈意义是什么?](http://www.daogukj.com/0480016)
-- [AI女爱豆因怀孕暂停活动](http://www.daogukj.com/4561506)
-- [79岁老干妈陶华碧用AI一年赚了54亿](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [厚本回应特殊面容](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [江淮汽车股价一度大涨近 9%，这一轮上涨是否预示市场情绪迎来反转？涨势能持续多久？](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [京城大师赛蹄蹄作弊被抓](http://www.daogukj.com/jbdvxipc/)
-- [苹果发布3款新品](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [金秀贤金赛纶反转再反转](http://www.daogukj.com/awgjjjvg/)
-- [有的孩子膝盖摔破了贴上创可贴还继续玩，有的稍微摔下什么伤都没有还哭成泪人，背后的真相是什么？](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [胖东来真的不靠超市赚钱吗](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [买黄金的人变了](http://www.daogukj.com/ditzbwwz/)
-- [《暗影崛起》佐樱感情线挽尊是否必要？](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [马竞半场1比0曼联](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [“红军药”变身“金疙瘩”](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [被送蛋！张帅止步武网首轮](http://www.daogukj.com/aqmuomii/)
-- [1.9元汽水收礼事件发生于2023年](http://www.daogukj.com/phjdnbun/)
-- [赵露思亲友自嗨神作《我不是npc》](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [男群演疑似猥亵女演员 剧组回应](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [《复联5》前必看！《复联4》后到底发生了啥？](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [黄奇帆被查](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [郑钦文夺冠父亲给她泼冷水](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [人民日报评“双汇处罚到人”](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [金秀贤方索赔升至300亿韩元](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [男群演疑似猥亵女演员 剧组回应](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [为什么晴朗的夜晚反而更冷？这是由什么原因导致的，从气象学角度该如何解释？](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [PS5 全机型遭底层漏洞破解，会对索尼主机生态产生哪些冲击？](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [拍个小品](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [再访](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [比亚迪大汉正式上市](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [住手 你们不要再摇花手了](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [家有儿女早就教了我们正确的爱情观](http://www.daogukj.com/4133568)
+- [79岁老干妈陶华碧用AI一年赚54亿](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [高中同学分的糖疑为褪黑素软糖](http://www.daogukj.com/0480016)
+- [第一次听说生理性喜欢是这种感觉](http://www.daogukj.com/4561506)
+- [台退役中将戴脚镣高喊：中国必将统一](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [苹果发布3款新品](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [中国为何主动砍新能源车出口退税](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [吃播网红干饭莹去世](http://www.daogukj.com/jbdvxipc/)
+- [《复联5》前必看！《复联4》后到底发生了啥？](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [深入大兴安岭腹地，跟随护林员徒步](http://www.daogukj.com/awgjjjvg/)
+- [人民日报评“双汇处罚到人”](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [传奇历史人物志——普朗克](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [Gemini 4全球上线](http://www.daogukj.com/ditzbwwz/)
+- [73岁迟重瑞面色红润热情回应路人](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [胖东来真的不靠超市赚钱吗](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [向太说张家齐妈妈谎话连篇](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [德柱超市打工初体验](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [长期用电动牙刷牙龈萎缩出血？误区](http://www.daogukj.com/aqmuomii/)
+- [如何看待Andrej Karpathy提出「AI能力认知漏斗」，少数专业人士已开始有「眩晕感」？](http://www.daogukj.com/phjdnbun/)
+- [女子6毫米结节确诊乳腺癌](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [逃离城市，白天鞣制鹿皮夜晚炖肉汤躲进石头安全屋取暖，开始迎接漫长而寒冷野外生活](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [高志凯：台海若爆发战争没开战就结束](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [33岁销冠确诊胃癌晚期后突然被辞退](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [报告：英伟达中国AI芯片份额跌至34%](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [大闸蟹为何跌出“地板价”](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [奥利塞扔球砸人染红](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [赛力斯起诉AI造谣问界者索赔百万](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [长期用电动牙刷牙龈萎缩出血？误区](https://www.baidu.com/s?wd=%E9%95%BF%E6%9C%9F%E7%94%A8%E7%94%B5%E5%8A%A8%E7%89%99%E5%88%B7%E7%89%99%E9%BE%88%E8%90%8E%E7%BC%A9%E5%87%BA%E8%A1%80%EF%BC%9F%E8%AF%AF%E5%8C%BA&sa=fyb_news&rsv_dl=fyb_news)
+- [基米呐基米，生殖隔离我也认！](https://b23.tv/BV1uaWA6HESq)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 57cc7af79e2e1359af1a -->
+<!-- content-fingerprint: 4b4f494dc9ea7fb51757 -->

@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 一口气看懂2026物理诺奖：什么是冰立方？如何把南极变成宇宙望远镜？内容由浅入深，非常精彩。请坐稳扶好！
+# 朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？
 
-> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：226607 · 分类：计算机技术 · 更新：2026-10-14T05:20:12+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：122 万热度 · 分类：问答 · 更新：2026-10-14T08:25:49+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“一口气看懂2026物理诺奖：什么是冰立方？如何把南极变成宇宙望远镜？内容由浅入深，非常精彩。请坐稳扶好！”位列第 12 位，公开热度指标为 226607，榜单分类为“计算机技术”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？”位列第 13 位，公开热度指标为 122 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：地球南极冰下约两公里深处，埋藏着 5160 个感光传感器。它们把约一立方公里的天然冰体，变成了一台没有镜片的宇宙望远镜——冰立方。那么，科学家为什么选择南极？又如何把传感器埋进两公里深的冰层？以及怎样从海量干扰中，找出来自遥远宇宙的“幽灵粒子”——中微子呢？本期从宇宙射线之谜讲起，完整拆解冰立方的探测原理、建设过程和重要发现，带你看懂弗朗西斯·哈尔岑获得 2026 年诺贝尔物理学奖背后的故事。
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `计算机技术`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [霸王茶姬和奥迪买一送一谁赢谁输](sha-ji-qu-luan.md)
-- [女子高铁上和男友开免提打1小时电话](yin-zhen-zhi-ke.md)
-- [湖北一老人下地干活被气枪击中身亡](ke-zhou-qiu-jian.md)
-- [拜仁0比2落后维京](yan-er-dao-ling.md)
+- [住手 你们不要再摇花手了](sha-ji-qu-luan.md)
+- [“红军药”变身“金疙瘩”](yin-zhen-zhi-ke.md)
+- [为什么这么多人讨厌陈岩石夫妇在饭桌上向沙瑞金告状的行为？](ke-zhou-qiu-jian.md)
+- [玩家变成魔王，魔王却成了勇者，这款27年前的游戏竟有隐藏结局！](yan-er-dao-ling.md)
 
 ## 站内推荐
 
-- [高志凯：台海若爆发战争没开战就结束](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [机器狗进哀牢山拍到“冥界之花”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [被送蛋！张帅止步武网首轮](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [国考报考](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [男群演疑似猥亵女演员 剧组回应](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [多国外长集中表态支持乌克兰](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [在冬夜，一块蛋糕，两个冻人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [长期用电动牙刷牙龈萎缩出血？误区](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [同卵双胞胎能长得几乎一样，为什么偏偏复制不了指纹？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [逃离城市，白天鞣制鹿皮夜晚炖肉汤躲进石头安全屋取暖，开始迎接漫长而寒冷野外生活](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [大闸蟹为何跌出“地板价”](http://www.daogukj.com/3439248)
-- [赵露思亲友自嗨神作《我不是npc》](http://www.movie.hkepx.cn/xiju/5723356.htm)
-- [王星被胁迫借下的网贷该不该还](http://www.daogukj.com/6000433)
-- [《暗影崛起》佐樱感情线挽尊是否必要？](http://www.daogukj.com/7456083)
-- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
-- [苹果发布3款新品](http://www.movie.hkepx.cn/movie/2238087.htm)
-- [如何评价动画电影《小猪佩奇·完美假期》？](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
-- [Z114次列车成候鸟老人迁徙核心通道](http://www.movie.hkepx.cn/xiju/4841059.htm)
-- [家有儿女早就教了我们正确的爱情观](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
-- [菲副总统怒批总统对中国鲁莽挑衅](http://www.movie.hkepx.cn/xiju/8193455.htm)
-- [有的孩子膝盖摔破了贴上创可贴还继续玩，有的稍微摔下什么伤都没有还哭成泪人，背后的真相是什么？](http://www.movie.hkepx.cn/xiju/1574035.htm)
-- [朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？](http://www.movie.hkepx.cn/xiju/0717269.htm)
-- [湖北一老人下地干活被气枪击中身亡](http://www.daogukj.com/9326450)
-- [“0糖”到底有没有糖](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
-- [79岁老干妈陶华碧用AI一年赚54亿](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
-- [送1.9元汽水患者连续投诉医生2年](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
-- [警方已确认与未成年金赛纶交往男星](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
-- [今天的飞拉达不简单啊，上来就是悬崖小飞车！](http://www.movie.hkepx.cn/xiju/7062133.htm)
-- [长期用电动牙刷牙龈萎缩出血？误区](http://www.daogukj.com/amzovuov/)
-- [16岁女孩打咏春拳快出残影](http://www.daogukj.com/2011735)
-- [乌铜走银](http://www.movie.hkepx.cn/xiju/2237302.htm)
-- [吃播网红干饭莹去世](http://www.movie.hkepx.cn/movie/3232131.htm)
-- [发生在你身边的传闻！请辨别它是真是假！《走进科学》游戏版！](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
-- [79岁老干妈陶华碧用AI一年赚了54亿](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
-- [男群演疑似猥亵女演员 剧组回应](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
-- [被送蛋！张帅止步武网首轮](http://www.movie.hkepx.cn/movie/7476543.htm)
-- [马竞半场1比0曼联](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
-- [金秀贤金赛纶反转再反转](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
-- [媒体评女子因老板拍肩上菜摔盘走人](http://www.daogukj.com/7278634)
-- [大心脏行为实力排行（胆小者谨慎观看）](http://www.daogukj.com/kjritwpu/)
-- [你们认为芯片圈里哪家公司的产品命名最为混乱？](http://www.movie.hkepx.cn/movie/7092438.htm)
+- [欧冠](http://www.daogukj.com/3439248)
+- [女子6毫米结节确诊乳腺癌](http://www.movie.hkepx.cn/xiju/5723356.htm)
+- [雷波县教师被安排与「耻辱」二字合影，近 50 天仍未公布调查结果，为啥迟迟不公布？调查的难点在哪儿？](http://www.daogukj.com/6000433)
+- [73岁迟重瑞面色红润热情回应路人](http://www.daogukj.com/7456083)
+- [向太说张家齐妈妈谎话连篇](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
+- [《复联5》前必看！《复联4》后到底发生了啥？](http://www.movie.hkepx.cn/movie/2238087.htm)
+- [机器狗进哀牢山拍到“冥界之花”](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
+- [绝命毒师男演员34岁自杀](http://www.movie.hkepx.cn/xiju/4841059.htm)
+- [护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
+- [厚卫衣配短裤 妈见打](http://www.movie.hkepx.cn/xiju/8193455.htm)
+- [人民日报评“双汇处罚到人”](http://www.movie.hkepx.cn/xiju/1574035.htm)
+- [老人凌晨下地干活被气枪击中身亡](http://www.movie.hkepx.cn/xiju/0717269.htm)
+- [为什么这么多人讨厌陈岩石夫妇在饭桌上向沙瑞金告状的行为？](http://www.daogukj.com/9326450)
+- [真实姓名被9年未联系友人用作昵称](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
+- [国内首款！《燕云十六声》携手英伟达将正式支持 DLSS 5，画质突破性革新！](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
+- [苹果、微软股价齐创新高](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
+- [炸串摊主被差评后跳河轻生](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
+- [沙特发动百余次空袭 胡塞武装报复升级](http://www.movie.hkepx.cn/xiju/7062133.htm)
+- [基米呐基米，生殖隔离我也认！](http://www.daogukj.com/amzovuov/)
+- [宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？](http://www.daogukj.com/2011735)
+- [叫“大学”的都比叫“学院”的强吗？](http://www.movie.hkepx.cn/xiju/2237302.htm)
+- [男群演疑似猥亵女演员 剧组回应](http://www.movie.hkepx.cn/movie/3232131.htm)
+- [网传郑钦文团队一天就得花五万多块，是这样吗？职业网球选手的运营模式是怎样的？](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
+- [台退役中将戴脚镣高喊：中国必将统一](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
+- [逃离城市，白天鞣制鹿皮夜晚炖肉汤躲进石头安全屋取暖，开始迎接漫长而寒冷野外生活](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
+- [长期用电动牙刷牙龈萎缩出血？误区](http://www.movie.hkepx.cn/movie/7476543.htm)
+- [胖东来真的不靠超市赚钱吗](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
+- [深入大兴安岭腹地，跟随护林员徒步](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
+- [郑钦文夺冠父亲给她泼冷水](http://www.daogukj.com/7278634)
+- [如果你有25万的存款，面对1500的衣服裤子你会不会犹豫啊？](http://www.daogukj.com/kjritwpu/)
+- [AI女爱豆因怀孕暂停活动](http://www.movie.hkepx.cn/movie/7092438.htm)
 - [未来五年看病就医会有哪些新变化](http://www.movie.hkepx.cn/movie/3129013.htm)
-- [33岁销冠确诊胃癌晚期后突然被辞退](http://www.movie.hkepx.cn/xiju/7500457.htm)
-- [1.9元汽水收礼事件发生于2023年](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
-- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.daogukj.com/pgoxgqgc/)
-- [《复联5》前必看！《复联4》后到底发生了啥？](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
-- [机器狗第1次进哀牢山就拍到冥界之花](http://www.daogukj.com/euynrtzl/)
-- [男生高考522分被调剂马术专业，成为在校本科生中唯一持证钉蹄师，前景如何？能带给选专业的学生哪些启发？](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
-- [2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？](http://www.movie.hkepx.cn/xiju/8147435.htm)
-- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.daogukj.com/soikllri/)
-- [金晨说王楚然在现发撒得开](http://www.daogukj.com/3156407)
-- [疑似肖战经纪人朋友圈](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
-- [AI女爱豆因怀孕暂停活动](http://www.movie.hkepx.cn/xiju/1247424.htm)
-- [“红军药”变身“金疙瘩”](http://www.daogukj.com/urlgwtmt/)
-- [国考报考](http://www.movie.hkepx.cn/movie/3044896.htm)
-- [缅北四大家族3个已被中国宣判](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
-- [江淮汽车股价一度大涨近 9%，这一轮上涨是否预示市场情绪迎来反转？涨势能持续多久？](http://www.movie.hkepx.cn/xiju/3522057.htm)
-- [老人凌晨下地干活被气枪击中身亡](http://www.daogukj.com/1068378)
-- [霸王茶姬和奥迪买一送一谁赢谁输](http://www.movie.hkepx.cn/xiju/2722752.htm)
-- [住手 你们不要再摇花手了](http://www.movie.hkepx.cn/xiju/6955801.htm)
+- [缅北四大家族3个已被中国宣判](http://www.movie.hkepx.cn/xiju/7500457.htm)
+- [如何看待Andrej Karpathy提出「AI能力认知漏斗」，少数专业人士已开始有「眩晕感」？](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
+- [【短的发布会】阔滑盖空调?海信空调智慧风 E5L会躲人?](http://www.daogukj.com/pgoxgqgc/)
+- [高志凯：台海若爆发战争没开战就结束](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
+- [10万亿“沉睡”公积金正在激活](http://www.daogukj.com/euynrtzl/)
+- [机器狗第一次进哀牢山就拍到冥界之花](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
+- [赛力斯起诉AI造谣问界者索赔百万](http://www.movie.hkepx.cn/xiju/8147435.htm)
+- [王星被胁迫借下的网贷该不该还](http://www.daogukj.com/soikllri/)
+- [皮莱是谁？2026诺贝尔和平奖背后的政治博弈](http://www.daogukj.com/3156407)
+- [学生备注“多添米饭” 老板塞了200元](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
+- [第一次听说生理性喜欢是这种感觉](http://www.movie.hkepx.cn/xiju/1247424.htm)
+- [德柱超市打工初体验](http://www.daogukj.com/urlgwtmt/)
+- [同卵双胞胎能长得几乎一样，为什么偏偏复制不了指纹？](http://www.movie.hkepx.cn/movie/3044896.htm)
+- [专家：中国核力量能摧毁任何来犯之敌](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
+- [中国为何主动砍新能源车出口退税](http://www.movie.hkepx.cn/xiju/3522057.htm)
+- [男生高考522分被调剂马术专业，成为在校本科生中唯一持证钉蹄师，前景如何？能带给选专业的学生哪些启发？](http://www.daogukj.com/1068378)
+- [住手 你们不要再摇花手了](http://www.movie.hkepx.cn/xiju/2722752.htm)
+- [为什么晴朗的夜晚反而更冷？这是由什么原因导致的，从气象学角度该如何解释？](http://www.movie.hkepx.cn/xiju/6955801.htm)
 
 </details>
 
 ## 原始来源
 
-- [一口气看懂2026物理诺奖：什么是冰立方？如何把南极变成宇宙望远镜？内容由浅入深，非常精彩。请坐稳扶好！](https://b23.tv/BV17LWA6AE9Y)
+- [朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？](https://www.zhihu.com/question/418887484)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e5738c3f05c8b70b68bb -->
+<!-- content-fingerprint: 2249b600be058016d53d -->

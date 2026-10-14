@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 16岁女孩打咏春拳快出残影
+# 宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6948136 · 更新：2026-10-14T05:20:12+08:00
+> 来源：知乎热榜 · 排名：第 10 位 · 热度：124 万热度 · 分类：问答 · 更新：2026-10-14T08:25:49+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“16岁女孩打咏春拳快出残影”位列第 9 位，公开热度指标为 6948136。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？”位列第 10 位，公开热度指标为 124 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，福建莆田一名16岁女孩练习咏春木人桩法，因动作行云流水、视频无加速且出拳快出残影引发关注，该女孩已习武3年。
+来源公开摘要显示：10月12日，宇树科技创始人王兴兴再次给出具身智能临界点到来的时间判断。他认为，（距离）具身智能的临界点速度可能相对较快，快的话甚至一两年都有可能。 王兴兴预计，明年ChatGPT-7的发布，很有可能会击穿具身智能目前的瓶颈。 此前，王兴兴曾多次判断具身智能技术临界点的到来时间。2025年8月，他在世界机器人大会上表示，顺利的话一两年或两三年、最慢三到五年，人形机器人有望迎来“ChatGPT时刻”。 今年8月，他给出的判断是快则两到三年、慢则五到十年。此次，他再次给出最快一两年的乐观预期。 王兴兴指出，AI技术进步速度非常快，每隔一两个月都有较大更新。前
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [金秀贤金赛纶反转再反转](zi-xiang-mao-dun.md)
-- [被送蛋！张帅止步武网首轮](bei-gong-she-ying.md)
-- [35焦段做1.2光圈意义是什么?](jing-gong-zhi-niao.md)
-- [发生在你身边的传闻！请辨别它是真是假！《走进科学》游戏版！](hu-jia-hu-wei.md)
+- [深入大兴安岭腹地，跟随护林员徒步](zi-xiang-mao-dun.md)
+- [长期用电动牙刷牙龈萎缩出血？误区](bei-gong-she-ying.md)
+- [高中同学分的糖疑为褪黑素软糖](jing-gong-zhi-niao.md)
+- [网传郑钦文团队一天就得花五万多块，是这样吗？职业网球选手的运营模式是怎样的？](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [厚卫衣配短裤 妈见打](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [1.9元汽水收礼事件发生于2023年](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [黄奇帆被查](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [如何评价动画电影《小猪佩奇·完美假期》？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [出去旅行有必要发朋友圈嘛?](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [金晨回应现发4更换常驻嘉宾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [如何看待Andrej Karpathy提出「AI能力认知漏斗」，少数专业人士已开始有「眩晕感」？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [33岁销冠确诊胃癌晚期后突然被辞退](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [机器狗进哀牢山拍到“冥界之花”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [79岁老干妈陶华碧用AI一年赚了54亿](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [同姓的人一定拥有共同的祖先吗？](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [金晨说王楚然在现发撒得开](http://www.daogukj.com/axnomarx/)
-- [33岁销冠确诊胃癌晚期后突然被辞退](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [《暗影崛起》佐樱感情线挽尊是否必要？](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [血液太“黏”的5个信号](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [胖东来真的不靠超市赚钱吗](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [79岁老干妈陶华碧用AI一年赚54亿](http://www.daogukj.com/9955752)
+- [男子在悬空寺做引体向上被立案](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [皮莱是谁？2026诺贝尔和平奖背后的政治博弈](http://www.daogukj.com/axnomarx/)
+- [缅北四大家族3个已被中国宣判](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [73岁迟重瑞面色红润热情回应路人](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [年轻人为什么反感新科技](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [方便面煮着吃为什么比泡着吃更香？](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [传奇历史人物志——普朗克](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [国内首款！《燕云十六声》携手英伟达将正式支持 DLSS 5，画质突破性革新！](http://www.daogukj.com/9955752)
 - [未来五年看病就医会有哪些新变化](http://www.movie.hkepx.cn/movie/6160167.htm)
 - [我去当司机大家觉得有搞头嘛！](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [4800元学习机AI讲题6遍讲出6个样](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [“红军药”变身“金疙瘩”](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [PS5 全机型遭底层漏洞破解，会对索尼主机生态产生哪些冲击？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [买黄金的人变了](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [如何评价老干妈引入AI 用于检验辣椒品质，将600人生产线减至48人？AI 能给食品制造业带来啥改变？](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [德柱超市打工初体验](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [33岁销冠确诊胃癌晚期突然被辞退](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [Gemini 4全球上线](http://www.movie.hkepx.cn/xiju/9543845.htm)
 - [永不褪色的红飘带](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [肖战演唱会官宣](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [我对不同假期的态度](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
 - [红色热土上的新答卷](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [机器狗第1次进哀牢山就拍到冥界之花](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [红果短剧千万别下载](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [住手 你们不要再摇花手了](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [马竞半场1比0曼联](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [男生高考522分被调剂马术专业，成为在校本科生中唯一持证钉蹄师，前景如何？能带给选专业的学生哪些启发？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [苹果正式进军智能家居市场](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [如何评价动画电影《小猪佩奇·完美假期》？](http://www.daogukj.com/2395514)
-- [机器狗进哀牢山拍到“冥界之花”](http://www.daogukj.com/6574038)
-- [大闸蟹为何跌出“地板价”](http://www.daogukj.com/ajcuxydy/)
-- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [出去旅行有必要发朋友圈嘛?](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [老人凌晨下地干活被气枪击中身亡](http://www.daogukj.com/cfeqrkjc/)
-- [在冬夜，一块蛋糕，两个冻人](http://www.daogukj.com/rkkegwyy/)
-- [1.9元汽水收礼事件发生于2023年](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [35焦段做1.2光圈意义是什么?](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [菲副总统怒批总统对中国鲁莽挑衅](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [被送蛋！张帅止步武网首轮](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [第一次听说生理性喜欢是这种感觉](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [全球硫磺价格暴涨近10倍](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [媒体评女子因老板拍肩上菜摔盘走人](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [今天的飞拉达不简单啊，上来就是悬崖小飞车！](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [王星被胁迫借下的网贷该不该还](http://www.daogukj.com/8099191)
-- [国考报考](http://www.daogukj.com/vrvcskzj/)
-- [郑钦文回应为何摘掉老爸帽子](http://www.daogukj.com/lbbxrvry/)
-- [《复联5》前必看！《复联4》后到底发生了啥？](http://www.daogukj.com/9295095)
-- [护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [江淮汽车股价一度大涨近 9%，这一轮上涨是否预示市场情绪迎来反转？涨势能持续多久？](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [真实姓名被9年未联系友人用作昵称](http://www.daogukj.com/7435478)
-- [大心脏行为实力排行（胆小者谨慎观看）](http://www.daogukj.com/kwdurrnw/)
-- [老人下地干活被气枪击中身亡](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [兵器工业集团与东风汽车签合作协议](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [黄奇帆被查](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [10万亿“沉睡”公积金正在激活](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [女子高铁上和男友开免提打1小时电话](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [为什么晴朗的夜晚反而更冷？这是由什么原因导致的，从气象学角度该如何解释？](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [胖东来真的不靠超市赚钱吗](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [机器狗第一次进哀牢山就拍到冥界之花](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [拍个小品](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [老人凌晨下地干活被气枪击中身亡](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [机器狗进哀牢山拍到“冥界之花”](http://www.daogukj.com/2395514)
+- [在冬夜，一块蛋糕，两个冻人](http://www.daogukj.com/6574038)
+- [欧冠](http://www.daogukj.com/ajcuxydy/)
+- [向太说张家齐妈妈谎话连篇](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [79岁老干妈陶华碧用AI一年赚了54亿](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [男生高考522分被调剂马术专业，成为在校本科生中唯一持证钉蹄师，前景如何？能带给选专业的学生哪些启发？](http://www.daogukj.com/cfeqrkjc/)
+- [日本5373家企业倒闭意味着什么](http://www.daogukj.com/rkkegwyy/)
+- [如何看待Andrej Karpathy提出「AI能力认知漏斗」，少数专业人士已开始有「眩晕感」？](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [高中同学分的糖疑为褪黑素软糖](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [厚卫衣配短裤 妈见打](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [长期用电动牙刷牙龈萎缩出血？误区](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [苹果正式进军智能家居市场](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [国考报名](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [郑钦文夺冠父亲给她泼冷水](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [沙特发动百余次空袭 胡塞武装报复升级](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [雷波县教师被安排与「耻辱」二字合影，近 50 天仍未公布调查结果，为啥迟迟不公布？调查的难点在哪儿？](http://www.daogukj.com/8099191)
+- [同卵双胞胎能长得几乎一样，为什么偏偏复制不了指纹？](http://www.daogukj.com/vrvcskzj/)
+- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.daogukj.com/lbbxrvry/)
+- [高志凯：台海若爆发战争没开战就结束](http://www.daogukj.com/9295095)
+- [PS5 全机型遭底层漏洞破解，会对索尼主机生态产生哪些冲击？](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [中国为何主动砍新能源车出口退税](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [一男子在悬空寺古建筑横梁做引体向上，警方已立案，涉事者将承担哪些责任？](http://www.daogukj.com/7435478)
+- [如果你有25万的存款，面对1500的衣服裤子你会不会犹豫啊？](http://www.daogukj.com/kwdurrnw/)
+- [霸王茶姬和奥迪买一送一谁赢谁输](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [比亚迪大汉正式上市](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [33岁销冠确诊胃癌晚期后突然被辞退](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [16岁女孩打咏春拳快出残影](https://www.baidu.com/s?wd=16%E5%B2%81%E5%A5%B3%E5%AD%A9%E6%89%93%E5%92%8F%E6%98%A5%E6%8B%B3%E5%BF%AB%E5%87%BA%E6%AE%8B%E5%BD%B1&sa=fyb_news&rsv_dl=fyb_news)
+- [宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？](https://www.zhihu.com/question/2093281358667956441)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a2085b1e4bed2d73f31b -->
+<!-- content-fingerprint: fd05fbbc5d56ff858ac6 -->

@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？
+# 赛力斯起诉AI造谣问界者索赔百万
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-10-14T05:20:12+08:00
+> 来源：微博热搜 · 排名：第 12 位 · 热度：240044 · 分类：互联网 · 更新：2026-10-14T08:25:49+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？”位列第 11 位，公开热度指标为 59 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“赛力斯起诉AI造谣问界者索赔百万”位列第 12 位，公开热度指标为 240044，榜单分类为“互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据新华社10月13日消息，中央机关及其直属机构2027年度考试录用公务员报名即将开始，共计划招录3.57万人。考生可于10月14日8:00至10月24日18:00期间进行网上报名，公共科目笔试将于11月29日举行。 13日，国考专题网站发布了公告及报名即将开始的消息稿。其中，消息稿介绍，本次考试录用公务员工作主要有4个方面特点——突出政治标准、严守公平底线、坚持基层导向、精准科学选人。 长安街知事注意到，在严守公平底线方面， 国家公务员局表示，打击防范“公考围岗”舞弊行为，报考者需登录专题网站在规定时间内完成注册后，通过电子社保卡等进行实名实人认证，才能
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `互联网`
 
 ## 相关热点
 
-- [超级“干净”的巴基斯坦汽水工厂，是一代人永远无法磨灭的伤痛](qi-ren-you-tian.md)
-- [中科院回应“住酒店可进天眼核心区”](chao-san-mu-si.md)
-- [黄奇帆被查](dui-niu-tan-qin.md)
-- [夫妻点一杯58元咖啡只能一人落座，市监局称「一人一座一消费」合理与否不能一刀切判定，如何理解此事？](mang-ren-mo-xiang.md)
+- [如何评价10月13日正式推出的Gemini 4 Argon？](qi-ren-you-tian.md)
+- [睁眼就是豪赌！炒股买房婚恋整容，韩国普通人的人生只能有一种答案？｜地球观察局EP03【视频播客】](chao-san-mu-si.md)
+- [33岁销冠确诊胃癌晚期后突然被辞退](dui-niu-tan-qin.md)
+- [田馥甄我不配唱给你听是我不配](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
-- [缅北四大家族3个已被中国宣判](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [郑钦文回应为何摘掉老爸帽子](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [全球硫磺价格暴涨近10倍](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [肖战演唱会官宣](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [专家：中国核力量能摧毁任何来犯之敌](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [苏联版“空中监狱”是什么？【神奇组织55】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [国考报名](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [方便面煮着吃为什么比泡着吃更香？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [我对不同假期的态度](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [厚卫衣配短裤 妈见打](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [黄奇帆被查](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [厚本回应特殊面容](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [王星被胁迫借下的网贷该不该还](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [【A2O】A2O LITE 'NEON' Official Video](http://www.daogukj.com/qaspagub/)
-- [男群演疑似猥亵女演员 剧组回应](http://www.daogukj.com/vbdopqig/)
-- [拜仁0比2落后维京](http://www.daogukj.com/gkqacstr/)
-- [雷波县教师被安排与「耻辱」二字合影，近 50 天仍未公布调查结果，为啥迟迟不公布？调查的难点在哪儿？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [兵器工业集团与东风汽车签合作协议](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [送1.9元汽水患者连续投诉医生2年](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [机器狗进哀牢山拍到“冥界之花”](http://www.daogukj.com/qkmfzgih/)
-- [33岁销冠确诊胃癌晚期后突然被辞退](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [一口气看懂2026物理诺奖：什么是冰立方？如何把南极变成宇宙望远镜？内容由浅入深，非常精彩。请坐稳扶好！](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [同姓的人一定拥有共同的祖先吗？](http://www.daogukj.com/pgcqzahm/)
-- [胖东来真的不靠超市赚钱吗](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [女子高铁上和男友开免提打1小时电话](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [金晨回应现发4更换常驻嘉宾](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [33岁销冠确诊胃癌晚期后突然被辞退](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [苹果发布3款新品](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [雷波县教师被安排与「耻辱」二字合影，近 50 天仍未公布调查结果，为啥迟迟不公布？调查的难点在哪儿？](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [许子东称金庸、倪匡、亦舒均来自江南，如何理解香港通俗文学的地域性？](http://www.daogukj.com/qaspagub/)
+- [逃离城市，白天鞣制鹿皮夜晚炖肉汤躲进石头安全屋取暖，开始迎接漫长而寒冷野外生活](http://www.daogukj.com/vbdopqig/)
+- [玩家变成魔王，魔王却成了勇者，这款27年前的游戏竟有隐藏结局！](http://www.daogukj.com/gkqacstr/)
+- [宜宾一摊主被顾客差评后遭网暴，最后不堪重压选择跳河轻生，如何避免这种悲剧再次发生？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [比亚迪大汉正式上市](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [苹果、微软股价齐创新高](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [在冬夜，一块蛋糕，两个冻人](http://www.daogukj.com/qkmfzgih/)
+- [缅北四大家族3个已被中国宣判](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [男子在悬空寺做引体向上被立案](http://www.daogukj.com/pgcqzahm/)
+- [传奇历史人物志——普朗克](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [“红军药”变身“金疙瘩”](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
 - [永不褪色的红飘带](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [方便面煮着吃为什么比泡着吃更香？](http://www.daogukj.com/5083848)
+- [家有儿女早就教了我们正确的爱情观](http://www.daogukj.com/5083848)
 - [我去当司机大家觉得有搞头嘛！](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [菲副总统怒批总统对中国鲁莽挑衅](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [马竞半场1比0曼联](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [国考报考](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [一男子在悬空寺古建筑横梁做引体向上，警方已立案，涉事者将承担哪些责任？](http://www.daogukj.com/5655258)
-- [第一次听说生理性喜欢是这种感觉](http://www.daogukj.com/5414627)
-- [“0糖”到底有没有糖](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [PS5 全机型遭底层漏洞破解，会对索尼主机生态产生哪些冲击？](http://www.daogukj.com/4208506)
-- [金秀贤金赛纶反转再反转](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [高志凯：台海若爆发战争没开战就结束](http://www.daogukj.com/7752186)
-- [今天的飞拉达不简单啊，上来就是悬崖小飞车！](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [16岁女孩打咏春拳快出残影](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [江淮汽车股价一度大涨近 9%，这一轮上涨是否预示市场情绪迎来反转？涨势能持续多久？](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [吃播网红干饭莹去世](http://www.movie.hkepx.cn/movie/4507886.htm)
-- [缅北四大家族3个已被中国宣判](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [在冬夜，一块蛋糕，两个冻人](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [厚卫衣配短裤 妈见打](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [胖东来真的不靠超市赚钱吗](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [同卵双胞胎能长得几乎一样，为什么偏偏复制不了指纹？](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [79岁老干妈陶华碧用AI一年赚54亿](http://www.daogukj.com/5655258)
+- [苹果正式进军智能家居市场](http://www.daogukj.com/5414627)
+- [真实姓名被9年未联系友人用作昵称](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [33岁销冠确诊胃癌晚期突然被辞退](http://www.daogukj.com/4208506)
+- [深入大兴安岭腹地，跟随护林员徒步](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [多国外长集中表态支持乌克兰](http://www.daogukj.com/7752186)
+- [沙特发动百余次空袭 胡塞武装报复升级](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [中国为何主动砍新能源车出口退税](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [大闸蟹为何跌出“地板价”](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [男群演疑似猥亵女演员 剧组回应](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [专家：中国核力量能摧毁任何来犯之敌](http://www.movie.hkepx.cn/movie/4528248.htm)
+- [日本5373家企业倒闭意味着什么](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
 - [老人凌晨下地干活被气枪击中身亡，持气枪打猎合法吗？案件还有哪些疑点待查？涉事人员将承担什么法律责任？](http://www.daogukj.com/plfvnmnj/)
-- [中科院回应“住酒店可进天眼核心区”](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [或许在某个平行宇宙中，他们的故事是这样展开的.....](http://www.daogukj.com/5346308)
-- [肖战演唱会官宣](http://www.daogukj.com/mwxqddka/)
-- [血液太“黏”的5个信号](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [郑钦文回应为何摘掉老爸帽子](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [《暗影崛起》佐樱感情线挽尊是否必要？](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [全球硫磺价格暴涨近10倍](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [AI女爱豆因怀孕暂停活动](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [警方已确认与未成年金赛纶交往男星](http://www.daogukj.com/ictnjmqu/)
-- [有的孩子膝盖摔破了贴上创可贴还继续玩，有的稍微摔下什么伤都没有还哭成泪人，背后的真相是什么？](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [男生高考522分被调剂马术专业，成为在校本科生中唯一持证钉蹄师，前景如何？能带给选专业的学生哪些启发？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [79岁老干妈陶华碧用AI一年赚54亿](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [睁眼就是豪赌！炒股买房婚恋整容，韩国普通人的人生只能有一种答案？｜地球观察局EP03【视频播客】](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [再访](http://www.daogukj.com/5346308)
+- [我对不同假期的态度](http://www.daogukj.com/mwxqddka/)
+- [年轻人为什么反感新科技](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [73岁迟重瑞面色红润热情回应路人](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [PS5 全机型遭底层漏洞破解，会对索尼主机生态产生哪些冲击？](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [【短的发布会】阔滑盖空调?海信空调智慧风 E5L会躲人?](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [国考报名](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [第一次听说生理性喜欢是这种感觉](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [炸串摊主被差评后跳河轻生](http://www.daogukj.com/ictnjmqu/)
+- [人民日报评“双汇处罚到人”](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [机器狗第一次进哀牢山就拍到冥界之花](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [国内首款！《燕云十六声》携手英伟达将正式支持 DLSS 5，画质突破性革新！](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？](https://www.zhihu.com/question/2093290893197272727)
+- [赛力斯起诉AI造谣问界者索赔百万](https://s.weibo.com/weibo?q=%E8%B5%9B%E5%8A%9B%E6%96%AF%E8%B5%B7%E8%AF%89AI%E9%80%A0%E8%B0%A3%E9%97%AE%E7%95%8C%E8%80%85%E7%B4%A2%E8%B5%94%E7%99%BE%E4%B8%87)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 69b6ddac08375e37d68c -->
+<!-- content-fingerprint: 499c7bab099fdcd8a562 -->
