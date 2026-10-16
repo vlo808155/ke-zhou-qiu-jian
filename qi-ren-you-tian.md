@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 何小鹏谈特斯拉Roadster会飞
+# 传祺越7满油满电不补能，上海温州往返1000公里能行吗？
 
-> 来源：微博热搜 · 排名：第 12 位 · 热度：605398 · 分类：汽车 · 更新：2026-10-16T17:52:43+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：186200 · 分类：日常 · 更新：2026-10-16T22:32:54+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“何小鹏谈特斯拉Roadster会飞”位列第 12 位，公开热度指标为 605398，榜单分类为“汽车”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“传祺越7满油满电不补能，上海温州往返1000公里能行吗？”位列第 11 位，公开热度指标为 186200，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：满油满电从上海回温州，全程不补能，挑战1000公里，看看越7到底能跑多远。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `汽车`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [泽连斯基为何不辞职也不举行大选](chao-san-mu-si.md)
-- [李在明颠覆性推动韩国「双首都迁都」，将外交部、国防部等迁出首尔，全部集中到世宗，怎么看他这一举措？](dui-niu-tan-qin.md)
-- [思路打开，面包丝信手拈来！今天吃千丝万缕虾和红米肠，一顿漂亮饭给娃小嘴吃的倍儿甜！](mang-ren-mo-xiang.md)
-- [新人结婚当天婚房被烧了](yuan-mu-qiu-yu.md)
+- [徐艺洋回应生子：就1个孩子 自己生的](chao-san-mu-si.md)
+- [黄子韬谁欺负我老婆了](dui-niu-tan-qin.md)
+- [庾澄庆说不会和伊能静同框](mang-ren-mo-xiang.md)
+- [珠穆朗玛峰只有一半在中国，为何全世界都认为是我国的？](yuan-mu-qiu-yu.md)
 
 ## 站内推荐
 
-- [如何看待13岁女团成员出道仅数小时被曝父母恶意欠薪且被执行345 万，母亲道歉并承诺会尽快解决？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [冯远征苦恼招不到一米六几的女演员](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [陈奕迅演唱会官宣](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [曝何穗面试维密被拒](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [周迅凭《初次尝到寂寞》获釜山电影节最佳女演员，加封国际 A 类影后，当下在华语演员里，她处于什么地位？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [大厂员工吐槽新来的校招生特别mean，被回复不mean根本过不了面试，真的吗？面试到底在选什么样的人？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [李在明颠覆性推动韩国「双首都迁都」，将外交部、国防部等迁出首尔，全部集中到世宗，怎么看他这一举措？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [AI消失前的最后一天……](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [AL最发愁的居然是不会吵架？拷打Tarzan&Shanks的职业秘辛【视频播客 | 元来如此EP.08】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [我对不同假期的态度](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [「豆包对低认知人群有权威性」引热议，你怎么看这一说法？缺乏辨别力更容易盲目相信 AI，还是会更抵触？](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
-- [南宁一烧鸡商贩戴手套抠脚？不实](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
-- [黄海南部连续47天禁入藏了什么深意](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
-- [如何看待申真谞获得烂柯杯世界围棋冠军，成为九冠王，彻底超越柯洁？](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
-- [珠穆朗玛峰只有一半在中国，为何全世界都认为是我国的？](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
-- [上海阿姨迷路骑40公里到苏州](http://www.movie.hkepx.cn/xiju/2772866.htm)
+- [傅首尔新片投资5000万票房仅8万](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
+- [洛阳辟谣挖出“传国玉玺”](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
+- [一天天的就不能消停会 Ep.26 【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
+- [河北卫视靠孙颖莎收视登顶了](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
+- [嫁金钗](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
+- [全球智能手机出货量第三季度同比降 22% ，创有纪录以来最大降幅，背后是什么原因？](http://www.movie.hkepx.cn/xiju/2772866.htm)
 - [《绝区零》菲欧妮角色展示 | 不要死挑战](http://www.movie.hkepx.cn/movie/8157133.htm)
-- [《啦嗒铛》1.0正式发售宣传片 | GSE](http://www.movie.hkepx.cn/movie/3703338.htm)
-- [洛阳辟谣挖出“传国玉玺”](http://www.movie.hkepx.cn/xiju/3368241.htm)
-- [网友自带菜被餐厅多收 300 元，店家称贴有禁带告示对方不听，市监所称会组织调解，店家这么收费合理吗？](http://www.movie.hkepx.cn/movie/9040401.htm)
-- [180名中国华文教师不得不离开菲律宾](http://www.movie.hkepx.cn/movie/7194765.htm)
-- [为病妻做的游戏全世界都嗑到了](http://www.movie.hkepx.cn/movie/6128990.htm)
-- [周迅凭《初次尝到寂寞》获釜山电影节最佳女演员，加封国际 A 类影后，当下在华语演员里，她处于什么地位？](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
-- [黄子韬绣红旗人设被质疑割裂](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
-- [Tarzan谈被LNG解约](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
-- [男子偷自行车骑42公里回家被拘](http://www.movie.hkepx.cn/movie/4858272.htm)
-- [多个手机品牌集体宣布降价](http://www.daogukj.com/bfxepwya/)
-- [四川雷波县学生分低教师拍照事件最新调查结果公布，县长被调离，如何看待该处罚结果？还有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/4024765.htm)
-- [中方：中国核力量与美俄不在一个量级](http://www.movie.hkepx.cn/xiju/0737631.htm)
-- [价值万元的哈根达斯融化 顺丰赔2千](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
-- [枪械为什么要造得这么容易拆卸，连个螺丝都不用？](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
-- [全新Roadster登场⚡️](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
-- [外交部：中方从不刻意追求贸易顺差](http://www.movie.hkepx.cn/xiju/7334347.htm)
-- [渔猎齐哥再曝硫磺桂花加工细节](http://www.daogukj.com/7849300)
-- [25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？](http://www.daogukj.com/aozagmkd/)
-- [泽连斯基为何不辞职也不举行大选](http://www.daogukj.com/ioafjlkc/)
-- [新人结婚当天婚房被烧了](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
-- [普通人能接住马龙的发球吗?](http://www.movie.hkepx.cn/xiju/2137446.htm)
-- [全国粮食标准仓仓容达7.3亿吨](http://www.daogukj.com/0166884)
-- [全球智能手机出货量第三季度同比降 22% ，创有纪录以来最大降幅，背后是什么原因？](http://www.movie.hkepx.cn/movie/0848231.htm)
-- [iPhone Duo今晚8点开抢](http://www.daogukj.com/tckpumpu/)
-- [社会终于来毒打我父母了！！！！](http://www.daogukj.com/0292547)
-- [批改作业是教师基本育人职责](http://www.daogukj.com/hejavvee/)
-- [男子中1000万不到一月仅剩28元](http://www.movie.hkepx.cn/xiju/2863382.htm)
-- [我造了一块会飞的滑板...](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
-- [宵禁｜鼓敲满一千下，长安城会发生什么（4K成片）](http://www.daogukj.com/gurgtiup/)
-- [女子用1314等金额转走前任近20万](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
-- [日本误报称发生9.9级地震](http://www.daogukj.com/nlwlvqny/)
-- [王老菊教你治愈节奏](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
-- [【独家】时光代理人 第三季 PartOne 第11集 消失的出口【8月国创】](http://www.daogukj.com/4367144)
-- [男子中1000万不到一月花到仅剩28元](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
-- [电竞手机赛道开启新一轮内卷](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
-- [特斯拉新款 Roadster 正式亮相，能实现离地升空、空中翻滚，如何评价？你看好它的市场前景吗？](http://www.movie.hkepx.cn/movie/3421929.htm)
-- [9.9级地震是什么概念](http://www.movie.hkepx.cn/xiju/7147911.htm)
-- [1.3万亿“国家长钱”到位](http://www.movie.hkepx.cn/xiju/5231443.htm)
-- [思路打开，面包丝信手拈来！今天吃千丝万缕虾和红米肠，一顿漂亮饭给娃小嘴吃的倍儿甜！](http://www.daogukj.com/hwjpoycr/)
-- [李在明颠覆性推动韩国「双首都迁都」，将外交部、国防部等迁出首尔，全部集中到世宗，怎么看他这一举措？](http://www.movie.hkepx.cn/movie/7786575.htm)
-- [AI消失前的最后一天……](http://www.movie.hkepx.cn/movie/1630389.htm)
-- [菲律宾换平台再闯黄岩岛意欲何为](http://www.daogukj.com/ijajouly/)
-- [陈奕迅演唱会官宣](http://www.daogukj.com/7130534)
+- [曲家文被查 已退休三年多](http://www.movie.hkepx.cn/movie/3703338.htm)
+- [枪械为什么要造得这么容易拆卸，连个螺丝都不用？](http://www.movie.hkepx.cn/xiju/3368241.htm)
+- [孙颖莎省运会火炬手直播在线人数超百万](http://www.movie.hkepx.cn/movie/9040401.htm)
+- [赌石少年困在直播间：再切一刀就回本](http://www.movie.hkepx.cn/movie/7194765.htm)
+- [张凌赫丞磊女主全重复了](http://www.movie.hkepx.cn/movie/6128990.htm)
+- [我对不同假期的态度](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
+- [多个手机品牌集体宣布降价](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
+- [⚡️鬼畜者联盟，集合！【宗主豪华版】⚡️](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
+- [为什么 HR 大部分都是女性呢？](http://www.movie.hkepx.cn/movie/4858272.htm)
+- [多家银行严查贷款违规流入股市](http://www.daogukj.com/bfxepwya/)
+- [妻子监控取证丈夫出轨不被法院采纳](http://www.movie.hkepx.cn/xiju/4024765.htm)
+- [男子中1000万不到一月花到仅剩28元](http://www.movie.hkepx.cn/xiju/0737631.htm)
+- [女子在自己手机上登录前男友账号以「1314」等金额转走近二十万，法院判决全部返还，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
+- [徐艺洋 孩子是我自己生的](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
+- [专家：日本全境都在解放军射程范围内](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
+- [A股 回购浪潮](http://www.movie.hkepx.cn/xiju/7334347.htm)
+- [全新Roadster登场⚡️](http://www.daogukj.com/7849300)
+- [国务院免去王刚原职 此前已履新河北](http://www.daogukj.com/aozagmkd/)
+- [徐艺洋回应生子：就1个孩子 自己生的](http://www.daogukj.com/ioafjlkc/)
+- [珠穆朗玛峰只有一半在中国，为何全世界都认为是我国的？](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
+- [李昀锐好像要爱死孟子义了](http://www.movie.hkepx.cn/xiju/2137446.htm)
+- [中央红军长征路线全览](http://www.daogukj.com/0166884)
+- [“这波秒开仙人，直接把六小龄童看呆了！”](http://www.movie.hkepx.cn/movie/0848231.htm)
+- [梁文锋量化发家史](http://www.daogukj.com/tckpumpu/)
+- [特朗普称马斯克“80%是超级天才”](http://www.daogukj.com/0292547)
+- [四部门组织30余家车企座谈，加强产品研发测试验证管理，要求不得作虚假、夸大或引人误解的宣传，怎样解读？](http://www.daogukj.com/hejavvee/)
+- [张镇麟16分6板正负值+28全场最高](http://www.movie.hkepx.cn/xiju/2863382.htm)
+- [传国玉玺最后一次可信的出现是什么时候？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
+- [洛阳博物馆闭馆是因挖出传国玉玺？假](http://www.daogukj.com/gurgtiup/)
+- [iPhone Duo发货已排到明年](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
+- [如何看待微软已完成2.8T大模型的预训练？](http://www.daogukj.com/nlwlvqny/)
+- [李斌谈特斯拉会飞：这个我们真没有](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
+- [张雪机车再冲第七冠](http://www.daogukj.com/4367144)
+- [【昨日海】YW-EX-1至YW-EX-8突袭 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
+- [操 控 买 瓜 2.0](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
+- [片酬20万吴孟达为何还要演《流浪地球》？黄金配角的孤注一掷！【大结局】](http://www.movie.hkepx.cn/movie/3421929.htm)
+- [存款利率普遍上调了](http://www.movie.hkepx.cn/xiju/7147911.htm)
+- [王一博这个镜头40w](http://www.movie.hkepx.cn/xiju/5231443.htm)
+- [庾澄庆说不会和伊能静同框](http://www.daogukj.com/hwjpoycr/)
+- [黄子韬谁欺负我老婆了](http://www.movie.hkepx.cn/movie/7786575.htm)
+- [日本误报称发生 9.9 级地震，出现这种情况可能是因为啥原因？9.9 级地震是什么概念？](http://www.movie.hkepx.cn/movie/1630389.htm)
+- [【绝密大坝】猛攻哥来了！！！](http://www.daogukj.com/ijajouly/)
+- [AI消失前的最后一天……](http://www.daogukj.com/7130534)
 
 </details>
 
 ## 原始来源
 
-- [何小鹏谈特斯拉Roadster会飞](https://s.weibo.com/weibo?q=%E4%BD%95%E5%B0%8F%E9%B9%8F%E8%B0%88%E7%89%B9%E6%96%AF%E6%8B%89Roadster%E4%BC%9A%E9%A3%9E)
+- [传祺越7满油满电不补能，上海温州往返1000公里能行吗？](https://b23.tv/BV1xYJQ63E3G)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 134cf674adfc2cd4058e -->
+<!-- content-fingerprint: 11037ae636e75e039010 -->
