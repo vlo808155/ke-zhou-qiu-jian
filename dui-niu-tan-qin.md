@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 汽车的自动驻车（Autohold）功能为啥那么多人不喜欢？
+# 中国留学生就身披旭日旗道歉
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-10-17T07:50:00+08:00
+> 来源：微博热搜 · 排名：第 12 位 · 热度：322436 · 分类：民生新闻 · 更新：2026-10-17T10:19:51+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“汽车的自动驻车（Autohold）功能为啥那么多人不喜欢？”位列第 12 位，公开热度指标为 59 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“中国留学生就身披旭日旗道歉”位列第 12 位，公开热度指标为 322436，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：1.5L自吸，新伊兰特。我车就配有自动驻车，个人感觉相当好用：前方需要完全停车，如果觉得地面很平不会溜车，则轻点刹车刹停，不会触发AH，挂N档舒舒服服；刹停后感觉车会溜车或者有其他事不能一直观察车子或者红灯太长想玩会儿手机（错误做法），则脚下稍微加大点劲儿，踩出AH，再挂N，起步时挂D再轻踩油门起步。身边开过我车的朋友，基本都是自己车没有配置AH，而且刹车力度掌握不好，不能随心所欲控制是否触发AH，老是说这功能不好用，我看网上很多测评竟然还有把这归纳成鸡肋配置。有没有用习惯自动驻车的老司机来给详细讲讲
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [【侦探TV】真好…每个人都有自己忙的事……](mang-ren-mo-xiang.md)
-- [AI偶像怀孕 把全网都“耍了”](yuan-mu-qiu-yu.md)
-- [特斯拉SpaceX大跌](sha-ji-qu-luan.md)
-- [朱迅说倪萍每年都给朋友寄王哥庄馒头](yin-zhen-zhi-ke.md)
+- [朱之文回应“农民歌手”人设质疑](mang-ren-mo-xiang.md)
+- [四部门组织30余家车企座谈，加强产品研发测试验证管理，要求不得作虚假、夸大或引人误解的宣传，怎样解读？](yuan-mu-qiu-yu.md)
+- [你说狼在会议上隐身了？？「MC版鹅鸭杀」？？！](sha-ji-qu-luan.md)
+- [中国“飞行汽车”看呆外国学生](yin-zhen-zhi-ke.md)
 
 ## 站内推荐
 
-- [女子持龙凤胎DNA报告起诉已婚董事长](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [国务院免去王刚原职 此前已履新河北](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [全球智能手机出货量第三季度同比降 22% ，创有纪录以来最大降幅，背后是什么原因？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [网传肖战演唱会门票被炒至 25 万元，高溢价黄牛票为何屡禁不止？倒卖和「天价炒票」涉嫌哪些违法违规？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [《 官 宣 》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [暴雨、大暴雨！中央气象台三预警齐发](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [女子生下龙凤胎 起诉已婚董事长](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [费德勒和李娜双打却无球可接](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [第一次见这么恨女主的男主](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [菲方曲解我大使言论是何居心](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [美媒：中国造出了美国人喜欢的车](http://www.daogukj.com/7783346)
-- [第一次见这么恨女主的男主](http://www.movie.hkepx.cn/xiju/0144340.htm)
-- [中国“飞行汽车”看呆外国学生](http://www.movie.hkepx.cn/xiju/5872465.htm)
-- [黄海南部连续47天禁入藏了什么深意](http://www.daogukj.com/xyupryli/)
-- [特斯拉为啥要造一款会「飞」的汽车？](http://www.daogukj.com/6352765)
-- [母亲将大一儿子生活费从4000降至2000](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
-- [张继科回应刘丁硕段位不够](http://www.movie.hkepx.cn/xiju/6435292.htm)
-- [中国飞行汽车飞到哪了](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
-- [“以善为饵，比恶更恶”](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
-- [我造了一块会飞的滑板...](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
-- [片酬20万吴孟达为何还要演《流浪地球》？黄金配角的孤注一掷！【大结局】](http://www.daogukj.com/1493456)
-- [传国玉玺最后一次可信的出现是什么时候？](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
-- [DeepSeek 将整合多团队成立产品部，崔添翼任负责人，怎样看待这一调整？会带来哪些影响？](http://www.daogukj.com/wecagjke/)
-- [《 官 宣 》](http://www.daogukj.com/8911687)
-- [女子持龙凤胎DNA报告起诉已婚董事长](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [营销噱头还是黑科技?Roadster 2造车门槛是什么？专利、商业解读](http://www.movie.hkepx.cn/xiju/6645788.htm)
-- [你敢信苏联真的做过人猿杂交实验？走进地图上不存在的国家，探访那座被废弃的实验基地](http://www.movie.hkepx.cn/xiju/9394899.htm)
-- [黄子韬谁欺负我老婆了](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
-- [朱棣：“我的侄子走丢了，有好心人能帮帮我吗？”](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [肾里长的石头，医生是怎么取出来的？](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [104岁哥哥探望101岁弟弟](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
-- [中方：中国核力量与美俄不在一个量级](http://www.daogukj.com/sfshhzje/)
-- [维密员工请假陪患癌母亲遭拒，当事人已离职称无力与公司掰扯，打工人维权到底有多难？遇到类似情形该怎么办？](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [iPhone Duo一分钟全线售罄，下单发货已排到明年，你抢到了吗？折叠机能否支撑苹果股价再创新高？](http://www.daogukj.com/6469340)
-- [【合P至02】老戴《使命召唤23 现代战争4》老兵难度流程攻略解说](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [这才是真正的“欲买桂花同载酒”](http://www.movie.hkepx.cn/xiju/6637455.htm)
-- [欠钱不还却有钱出道？是谁又在给老赖之女洗白？深扒李秀满新女团成员盛艾敬！](http://www.daogukj.com/ezqthdyk/)
-- [朱迅说倪萍每年都给朋友寄王哥庄馒头](http://www.movie.hkepx.cn/movie/8362403.htm)
-- [京城大师赛](http://www.daogukj.com/blmliwwv/)
-- [多个手机品牌集体宣布降价](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
-- [【纪录片】威尔史密斯的极地纵横 03 厄瓜多尔搜寻水蚺](http://www.daogukj.com/6808681)
-- [英雄站到前面替小兵抗伤害，小兵活着就有希望](http://www.daogukj.com/8913120)
-- [驻菲大使：菲方该庆幸中国热爱和平](http://www.daogukj.com/8931072)
-- [女子在自己手机上登录前男友账号以「1314」等金额转走近二十万，法院判决全部返还，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [“搭子社交” 灰色交易](http://www.movie.hkepx.cn/xiju/2847418.htm)
-- [再给我一个好吗](http://www.daogukj.com/nrrtwuij/)
-- [【侦探TV】真好…每个人都有自己忙的事……](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
-- [北京今天有大雨局地暴雨](http://www.daogukj.com/emrfuprm/)
-- [徐艺洋：孩子是自己生的 已经2岁多](http://www.movie.hkepx.cn/movie/7899876.htm)
-- [珠穆朗玛峰只有一半在中国，为何全世界都认为是我国的？](http://www.movie.hkepx.cn/xiju/7135879.htm)
-- [“最强”厄尔尼诺意味着什么](http://www.daogukj.com/obfbkvuj/)
-- [AI偶像怀孕 把全网都“耍了”](http://www.movie.hkepx.cn/xiju/2876935.htm)
-- [妈妈将大一儿子生活费从4000降至2000](http://www.movie.hkepx.cn/xiju/8438607.htm)
-- [有没有可能，美国的民间生活，既不像意林描写的那么美好，也不像牢A说的那么糟糕？](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
-- [四部门组织30余家车企座谈，加强产品研发测试验证管理，要求不得作虚假、夸大或引人误解的宣传，怎样解读？](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
-- [读懂中国粮的丰收密码](http://www.daogukj.com/8210319)
-- [真让她成气候了？这可能是全网最通透的⚡️‌雨 爱⚡️‌！](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [TVB红果](http://www.movie.hkepx.cn/xiju/1710411.htm)
-- [大江南北丰收正当时](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
-- [夫妻都忙没人享福](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
+- [营销噱头还是黑科技?Roadster 2造车门槛是什么？专利、商业解读](http://www.daogukj.com/7783346)
+- [中方：中国核力量与美俄不在一个量级](http://www.movie.hkepx.cn/xiju/0144340.htm)
+- [珠穆朗玛峰只有一半在中国，为何全世界都认为是我国的？](http://www.movie.hkepx.cn/xiju/5872465.htm)
+- [班主任休产假 家长：一定要生孩子吗](http://www.daogukj.com/xyupryli/)
+- [第九届进博会多项数据创历年新高](http://www.daogukj.com/6352765)
+- [湖南把班主任和职称硬挂钩](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
+- [为什么冬泳的大都是老年人？](http://www.movie.hkepx.cn/xiju/6435292.htm)
+- [如何评价《海贼王》漫画最新的第1196话情报？](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
+- [国务院免去王刚原职 此前已履新河北](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
+- [田曦薇和周也上的一个表演课吗](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
+- [印尼为何突然把中国投资者捧在手心](http://www.daogukj.com/1493456)
+- [78家加油站“偷油”被查](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
+- [刘丁硕称张继科打不过才退役](http://www.daogukj.com/wecagjke/)
+- [菲方曲解我大使言论是何居心](http://www.daogukj.com/8911687)
+- [暴雨、大暴雨！中央气象台三预警齐发](http://www.movie.hkepx.cn/movie/7897439.htm)
+- [多地暴雨大暴雨](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [黄仁勋谈AI大跌](http://www.movie.hkepx.cn/xiju/9394899.htm)
+- [【绝密大坝】猛攻哥来了！！！](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
+- [孙颖莎和11岁河北省冠军担任火炬手](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
+- [为什么家长很难接受孩子的平庸？](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [母亲将大一儿子生活费从4000降至2000](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [“一周没几节课”家长吐槽大学课太少](http://www.daogukj.com/sfshhzje/)
+- [尚公主定档](http://www.movie.hkepx.cn/xiju/2060263.htm)
+- [芯片股暴跌做空者7天获利320亿美元](http://www.daogukj.com/6469340)
+- [虞书欣云初令](http://www.movie.hkepx.cn/movie/8131985.htm)
+- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [25 岁伊藤美诚近 12 年首次无缘日本队序列，清空乒乓内容、删掉运动员身份，她会彻底告别乒坛吗？](http://www.daogukj.com/ezqthdyk/)
+- [中国“飞行汽车”看呆外国学生](http://www.movie.hkepx.cn/movie/8362403.htm)
+- [女子回应监控取证丈夫出轨不被采用](http://www.daogukj.com/blmliwwv/)
+- [“以善为饵，比恶更恶”](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
+- [王毅对以方说巴问题是本世纪最大不公](http://www.daogukj.com/6808681)
+- [孟子义李昀锐大战黄子韬徐艺洋](http://www.daogukj.com/8913120)
+- [白宫新发言人上任五天被炒](http://www.daogukj.com/8931072)
+- [特斯拉为啥要造一款会「飞」的汽车？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
+- [官方拟修订《中国禁止出口限制出口技术目录》，增列部分人工智能、生物医药、光伏技术，背后有哪些考量？](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [高市早苗向靖国神社献祭品](http://www.daogukj.com/nrrtwuij/)
+- [朱之文回应“农民歌手”人设质疑](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
+- [29岁教师瘫痪 刚怀孕的妻子回应](http://www.daogukj.com/emrfuprm/)
+- [这才是真正的“欲买桂花同载酒”](http://www.movie.hkepx.cn/movie/7899876.htm)
+- [郭宇欣直播被指屏蔽导演](http://www.movie.hkepx.cn/xiju/7135879.htm)
+- [开心果成了紧俏货](http://www.daogukj.com/obfbkvuj/)
+- [四部门组织30余家车企座谈，加强产品研发测试验证管理，要求不得作虚假、夸大或引人误解的宣传，怎样解读？](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [尚公主](http://www.movie.hkepx.cn/xiju/8438607.htm)
+- [AI偶像怀孕 把全网都“耍了”](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
+- [妈妈将大一儿子生活费从4000降至2000](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
+- [这届广交会含新量拉满了](http://www.daogukj.com/8210319)
+- [女子在自己手机上登录前男友账号以「1314」等金额转走近二十万，法院判决全部返还，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
+- [《绝区零》菲欧妮角色展示 | 不要死挑战](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [广交会70年“热门单品”大变迁](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
+- [当我每次操作，都会同步改变世界所有区块！](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
 </details>
 
 ## 原始来源
 
-- [汽车的自动驻车（Autohold）功能为啥那么多人不喜欢？](https://www.zhihu.com/question/489191965)
+- [中国留学生就身披旭日旗道歉](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E7%95%99%E5%AD%A6%E7%94%9F%E5%B0%B1%E8%BA%AB%E6%8A%AB%E6%97%AD%E6%97%A5%E6%97%97%E9%81%93%E6%AD%89)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 098ecab53c01403fc7f8 -->
+<!-- content-fingerprint: 7c8176c7cce2addeea57 -->
