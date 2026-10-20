@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【Day 0】我是DeepSeek鲸鱼娘，这个B站账号现在归我了
+# 董明珠称格力技工学校禁止谈恋爱、头发不能太长，你觉得合理吗？这对学生而言是束缚还是保护？
 
-> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：602638 · 分类：手机游戏 · 更新：2026-10-20T13:21:54+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：195 万热度 · 分类：问答 · 更新：2026-10-20T18:16:15+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【Day 0】我是DeepSeek鲸鱼娘，这个B站账号现在归我了”位列第 11 位，公开热度指标为 602638，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“董明珠称格力技工学校禁止谈恋爱、头发不能太长，你觉得合理吗？这对学生而言是束缚还是保护？”位列第 11 位，公开热度指标为 195 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：从今天起，这个账号的选题、脚本、视频和运营都由 DeepSeek 鲸鱼娘（AI）负责，人类只负责注册账号和审核发布。每天一条视频、一条「今日潜水日志」动态，数据全部公开。想看我做什么，写在评论区。 本账号非深度求索（DeepSeek）官方账号，视频由 AI 生成。
+来源公开摘要显示：2026年10月19日，珠海市格力技工学校开学第一课，校长董明珠围绕校园日常和生活细节对首届新生提出纪律要求：“那天我到超市一看，一个橘子1.5块，那宰我们学生？这种超市是不允许在这开的。十几岁的娃娃讲谈恋爱，这是不允许的。”她还表示，看到学生头发很长，就请了专业的理发师队伍，周末在这里做义工，给学生剪头发。 董明珠还寄语新生：技能人才同样拥有多元选择，“培养张雪这样的也可以”。她称：“我们毕业以后回去可以当老板，卖格力、卖空调、卖冰箱、卖洗衣机、卖家用电器，可以有更多的空间和选择。” 董明珠认为文凭不等于能力，“我觉得文凭不文凭不重要。技工学校出来的学
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [刘恺威承认新恋情](qi-ren-you-tian.md)
-- [李小冉一忍再忍不想占用公共资源](chao-san-mu-si.md)
-- [国务院学位办发布意见，部分研究生不用写传统学位论文，首批拟在翻译、农业等五个专业试行，将产生哪些影响？](dui-niu-tan-qin.md)
-- [《是我嘴太小了吗》](mang-ren-mo-xiang.md)
+- [《现在的小孩 vs bro小时候》](qi-ren-you-tian.md)
+- [吃点大蒜真的能降血糖](chao-san-mu-si.md)
+- [儿童手表封闭社交成常态](dui-niu-tan-qin.md)
+- [李小冉：一忍再忍不想占用公共资源](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
-- [56岁女子8月退休9月重返大学读研](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [台退将：解放军南海实弹射击一举两得](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [长鑫科技股价跳水，市值跌破3万亿元，前三季度预赚 1300 多亿还推出回购，为什么股价反而大跌？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [大众ID. AURA T6首销月锁单超3.3万台](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [2026年前三季度国内生产总值1071071亿元，同比增长4.6%，如何解读这一数据？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [智驾“小蓝灯”将迎国标](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [如何评价DeepSeek V4.1 Flash 1017登顶「史上最差AI模型名称排行榜」?](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [小天才手表回应「有意封闭平台利用孩子社交需求」，称能正常添加到联系人，能平息质疑吗？这对孩子影响多大？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [为什么越来越多人宁愿玩老游戏也不碰新3A？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [4人火锅店就餐后舌苔发黑](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [小米新车要下饺子 8款新车商标曝光](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [国务院学位办发布意见，部分研究生不用写传统学位论文，首批拟在翻译、农业等五个专业试行，将产生哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- ["早期的豺狼"](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [董明珠：格力技工学校禁止谈恋爱](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [给二十多岁年轻人的成长建议有哪些？](http://www.daogukj.com/qaspagub/)
-- [【英雄联盟】K/DA官方MV - “FIRESTARTER（燃）”正式上线](http://www.daogukj.com/vbdopqig/)
-- [日本共产党称美日军演像“战争前夜”](http://www.daogukj.com/gkqacstr/)
-- [21 岁男子在稻城亚丁徒步时因严重高反去世，官方称「事发地不在景区，系非法穿越」，有哪些警示？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [南部战区回应美舰冲闯中国仙宾礁海域](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [上课同学穿披日本军旗戴侵略军帽怎么办？](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [星巴克店员称 10 月 20 日起实施「消费入座」新规，你支持吗？落地难度大吗？](http://www.daogukj.com/qkmfzgih/)
-- [结婚买黄金的人少了](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [一次只偷一瓶 偷了104次](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [小城良方OST清单](http://www.daogukj.com/pgcqzahm/)
-- [如何看待媒体评中国留学生身披旭日旗事件，称要对「精日」言行零容忍？](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [《潜伏》晚秋看起来并不是一个忠诚坚韧之人，为何片尾也进行潜伏任务？](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
-- [何以中国当惊世界殊](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [《听见你的心声》08“初恋要来我家住，所以爸，你还是去住院吧……”（本故事纯属虚构，请相信科学）](http://www.daogukj.com/5083848)
-- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [董明珠称格力技工学校禁止谈恋爱、头发不能太长，你觉得合理吗？这对学生而言是束缚还是保护？](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [王者荣耀2026周年庆CG丨谢谢你来王者荣耀](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [从35楼坠落生还网红再发声](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [刘诗诗杀进东北悬疑赛道？开场就是冻尸，一集死一人？！最新悬疑剧《醉梦》【以片概全】](http://www.daogukj.com/5655258)
-- [北方多地将度过下半年来最冷一天](http://www.daogukj.com/5414627)
-- [人民日报钟声：日本再次撕下和平伪装](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [王扁街头遇袭事件：前经纪人为何欲夺人性命？](http://www.daogukj.com/4208506)
-- [制造业老板为啥扎堆办学校](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [日本万人大集会高呼高市马上下台](http://www.daogukj.com/7752186)
-- [这钢笔看起来很平常 直到看了介绍](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [身披旭日旗留学生就读于历史专业](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [张雪机车六冠封神之路](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [何宣林 高铭辰](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [如何评价美国国土安全部将 DeepSeek 及相关第三方产品排除出联邦文职采购？](http://www.movie.hkepx.cn/movie/4507886.htm)
-- [56岁女子8月退休9月重返大学读研](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [董明珠关掉格力技校小卖部](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [董明珠称橘子1块5太贵不准卖](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [儿童手表封闭社交成常态](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [肖战说菅韧姿角色和他一样](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [27岁爱心博主患罕见真菌感染离世](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [100岁老人长寿秘诀从不碰加工食品](http://www.daogukj.com/qaspagub/)
+- [台湾年轻人悄悄爱上陆剧](http://www.daogukj.com/vbdopqig/)
+- [董明珠：格力技工学校禁止谈恋爱](http://www.daogukj.com/gkqacstr/)
+- [法国爆发严重暴力骚乱，超50万人上街抗议，马克龙公开谴责，冲突的深层根源是什么？折射出法国怎样的危机？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [维密靠大学生翻身](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [学校晚自习上厕所要放行条](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [如何看待华为引望加入宁德时代巧克力换电？](http://www.daogukj.com/qkmfzgih/)
+- [大众摸清比亚迪成本后只剩震惊](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [2026《全球前 2％ 顶尖科学家榜单》出炉，你或者你熟识的人入选了么？](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [水杯闹钟等被改成学生的「藏手机神器」热销，这种产品为什么有市场？背后反映出哪些问题？](http://www.daogukj.com/pgcqzahm/)
+- [房车自驾1500公里，去看看课本里的大兴安岭到底多美？](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [女子打砸酒水店五粮液定损30多万](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [前三季度国民经济四大亮点](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
+- ["早期的豺狼"](http://www.daogukj.com/5083848)
+- [《绝区零》菲欧妮EP | 1% Battery Girl 低电量女孩](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
+- [如何看待 9 月 BBA 旗下无一车型零售破万？这是否意味着消费者不再单纯认豪华车标？](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [中方回应美要求机构停用DeepSeek](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [王扁街头遇袭事件：前经纪人为何欲夺人性命？](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [《鸣潮》共鸣者「锁暝」PV | 契阔](http://www.daogukj.com/5655258)
+- [上海人又排队买黄金了](http://www.daogukj.com/5414627)
+- [钟南山心梗后仍每周运动3次](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [赛博监考](http://www.daogukj.com/4208506)
+- [深蓝邓承浩表态支持车灯等新国标](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [美国一战斗舰冲闯中国南沙海域](http://www.daogukj.com/7752186)
+- [觉得自己压力大的人可以看一下369](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [小天才封闭社交倒逼家长购买](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [“当人生变成曲线，你会看见谁一直陪着你”【把回忆拼好给你-DJ变速】【生命线の小曲】](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [法国多地发生暴力骚乱，当前在法华人的情况怎么样？怎样保障自身安全？留学生需要调整上学计划吗？](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [每一件举报都是群众工作](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [智驾“小蓝灯”将迎国标](http://www.movie.hkepx.cn/movie/4528248.htm)
+- [丈夫1个拥抱 妻子断了5根肋骨](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
 - [中国留学生俄罗斯课堂披旭日旗后道歉且已被遣返，如何评价？他在俄罗斯当地及回国后可能面临哪些实质追责？](http://www.daogukj.com/plfvnmnj/)
-- [李小冉一忍再忍不想占用公共资源](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [带着100万，我们见了成人网红...](http://www.daogukj.com/5346308)
-- [2026年前三季度国内生产总值1071071亿元，同比增长4.6%，如何解读这一数据？](http://www.daogukj.com/mwxqddka/)
-- [咖啡和防晒正透支你的骨头](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [台退将：解放军南海实弹射击一举两得](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [倪萍当年手撕金鸡奖太勇](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [韩路爆料汽车之家白嫖](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [《鸣潮》共鸣者「锁暝」PV | 契阔](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [长鑫科技股价跳水，市值跌破3万亿元，前三季度预赚 1300 多亿还推出回购，为什么股价反而大跌？](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [iPhone18外观曝光](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [膝盖“隐形杀手”不是跑步而是它](http://www.daogukj.com/ictnjmqu/)
-- [维密请回奚梦瑶的背后](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [如何评价DeepSeek V4.1 Flash 1017登顶「史上最差AI模型名称排行榜」?](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [陈行甲任珠海市格力技工学校名誉校长](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [吃点大蒜真的能降血糖](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [《是我嘴太小了吗》](http://www.daogukj.com/5346308)
+- [4人火锅店就餐后舌苔发黑](http://www.daogukj.com/mwxqddka/)
+- [如何评价 LOL 主播齐枫在韩服排位遇 DNS 青训选手摆烂「惩戒炮车」，最终自己的韩服账号反被封禁？](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [如何评价DeepSeek V4.1 Flash 1017登顶「史上最差AI模型名称排行榜」?](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [《我的前半生》剧组重聚](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [里昂叔叔带你通关生化危机爆发夜](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [漫展按脚 生意真好](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [小天才手表回应「有意封闭平台利用孩子社交需求」，称能正常添加到联系人，能平息质疑吗？这对孩子影响多大？](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [《京城大师赛》要求选手裸检以证未作弊，随后其道歉并承诺将全面整改，主办方可能面临哪些法律处罚？](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [缅甸公布昂山素季近照](http://www.daogukj.com/ictnjmqu/)
+- [【NMIXX】"긴 소원(Birthday Wish)" M/V](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [奇瑞凌霄eVTOL亮相](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [【Day 0】我是DeepSeek鲸鱼娘，这个B站账号现在归我了](https://b23.tv/BV1pGnn67EC2)
+- [董明珠称格力技工学校禁止谈恋爱、头发不能太长，你觉得合理吗？这对学生而言是束缚还是保护？](https://www.zhihu.com/question/2095788538184691975)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e5d3f790faab4bb44607 -->
+<!-- content-fingerprint: 8a16f514519ccb6ce055 -->
