@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？
+# 孙坚 一边拍戏一边还债
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：128 万热度 · 分类：问答 · 更新：2026-10-22T19:57:10+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6761641 · 更新：2026-10-23T01:04:07+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？”位列第 12 位，公开热度指标为 128 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“孙坚 一边拍戏一边还债”位列第 11 位，公开热度指标为 6761641。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月21日，截至港股收盘，腾讯控股股价跌破400港元，收报393.8港元，创下近一年新低，跌幅达4.04%。今年年初，腾讯股价一度冲高至633.7港元附近，对应市值约5.76万亿港元，目前其总市值回落至3.58万亿港元，年内累计跌幅接近四成。 https://mp.weixin.qq.com/s/dGGAWILCkLDvQnH93gWD1A
+来源公开摘要显示：近日，孙坚自曝长期一边高强度拍戏一边还债，姐姐月子中心费用、弟弟购房缺口及200万元欠款、母亲理疗费等开销都由他承担。因生父、继父先后离世，他长期不敢拒绝家人，直到去年才第一次对家人说“没钱”。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [【逗鱼时刻】第500期 我还要再更500期！](dui-niu-tan-qin.md)
-- [女子叫了辆顺风车司机竟然是自己](mang-ren-mo-xiang.md)
-- [许飞退出06超女群](yuan-mu-qiu-yu.md)
-- [外地患者组团到高校传播艾滋病不实](sha-ji-qu-luan.md)
+- [41岁女子存百万后去世](dui-niu-tan-qin.md)
+- [72岁李雪健再登舞台](mang-ren-mo-xiang.md)
+- [如何评价宇树发布全新机器人「H2-X功夫传奇 守护」，宣称能徒手抬车、勇斗歹徒？在实际生活中会用在哪？](yuan-mu-qiu-yu.md)
+- [这是“巫毒”陷阱！](sha-ji-qu-luan.md)
 
 ## 站内推荐
 
 - [《影之刃零》最终预告](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [《最绝望の守门员》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [乌克兰最好的结局是成为芬兰吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [24岁美国乡下大学天才"讲师"：叛逆狂人的潇洒生活！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [荣耀Robot Phone上手体验：形态特别，用起来咋样？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [青海玉树4.3级地震](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [一张快递单能扒出多少秘密](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [孙俪手机上几乎没有社交媒体](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [解放军演练海岛起降](http://www.daogukj.com/4141941)
-- [美国政府指示各机构停用 DeepSeek ，外交部表示反对将科技经贸问题政治化，美国此举有何意图？](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
-- [《最绝望の守门员》](http://www.movie.hkepx.cn/xiju/6168121.htm)
-- [【逗鱼时刻】第500期 我还要再更500期！](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
-- [iPhone Duo折叠3000次后折痕加深](http://www.movie.hkepx.cn/xiju/3455382.htm)
-- [问界M9碰撞后逃生窗口](http://www.daogukj.com/7265089)
-- [员工离职情绪高涨 宝马关闭补偿计划](http://www.daogukj.com/3085948)
-- [泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
-- [女子叫了辆顺风车司机竟然是自己](http://www.daogukj.com/jtbnzsng/)
-- [再鉴定几个洛克王国的精灵](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
-- [外地患者组团到高校传播艾滋病不实](http://www.movie.hkepx.cn/xiju/3032776.htm)
-- [《代号：神不言》UFSH2026参会实机技术演示&实机特别影像](http://www.daogukj.com/5882217)
-- [重庆拟追责问责公职人员94人](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
-- [张本智和被打出0-11惨败](http://www.daogukj.com/0190432)
-- [曝某明星长期借不到高定，自费购买礼服后引该品牌PR暴怒，可能会是谁？为啥自费购买也会引起高奢品牌不满？](http://www.movie.hkepx.cn/xiju/9120157.htm)
-- [媒体：中东有3场危机正在联动叠加](http://www.daogukj.com/nzmqevzx/)
-- [许飞退出06超女群](http://www.daogukj.com/qnzjxpsz/)
-- [北京市副市长夏林茂被查](http://www.daogukj.com/7347029)
-- [明天尚公主就抬嫁金钗在单更什么](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
-- [车灯新国标公布后，「外显大屏」形态的像素灯将成为历史，汽车大灯的技术发展方向将如何调整？](http://www.movie.hkepx.cn/movie/1119983.htm)
-- [银行回应每天仅营业3.5小时](http://www.movie.hkepx.cn/xiju/8115054.htm)
-- [人民日报谈星巴克消费入座](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
-- [女子离婚后发现前夫婚内继承 400 多万房款，起诉要求分割这笔钱财，法院判决支持，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
-- [解放军13艘次船舰位台岛周边活动](http://www.daogukj.com/2641155)
-- [多款 3A 老游戏被 AI 光速反编译并移植网页端，将对游戏行业带来哪些冲击？](http://www.movie.hkepx.cn/movie/4750298.htm)
-- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
-- [为什么我国的中学生大部分都不会做引体向上？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
-- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.daogukj.com/3850819)
-- [中国经济运行的3个突出特点](http://www.movie.hkepx.cn/xiju/8710542.htm)
-- [张智霖：19岁的儿子未必帅过55岁的我](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
-- [西安阿达西称现在没有利润还贴钱](http://www.daogukj.com/9307696)
-- [麻六记曾一年给阿宽食品创收2亿元](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
-- [特朗普称将砸逾 4 亿美元助共和党选举，或成美国历史上烧钱最多的中期选举，共和党胜算有多大？](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
-- [李子祺回应自称参加过4级手术](http://www.movie.hkepx.cn/xiju/1094677.htm)
-- [马嘉祺艾米 偏偏宠爱](http://www.movie.hkepx.cn/movie/2883011.htm)
-- [李信！永远的TOP1！！！](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
-- [泽连斯基对领土态度为什么突然松动](http://www.movie.hkepx.cn/xiju/0265151.htm)
-- [全球总决赛回忆挑战，谁是LPL全能王？【开麦了LPL】](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
-- [“青年养老院”房费最低每月900元](http://www.movie.hkepx.cn/movie/6584812.htm)
-- [张雪机车员工：食堂阿姨手往多了抖](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
-- [日本教练队员都没等张本智和先行离开](http://www.daogukj.com/6360237)
-- [刘德华杭州演唱会“3+3”模式曝光](http://www.daogukj.com/7781714)
-- [24岁美国乡下大学天才"讲师"：叛逆狂人的潇洒生活！](http://www.movie.hkepx.cn/xiju/0430082.htm)
-- [参与过四级手术](http://www.movie.hkepx.cn/movie/1491579.htm)
-- [张本智和被打0-11惨败](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
-- [到底是谁开着空调还要裹毯子啊？！](http://www.movie.hkepx.cn/movie/3946221.htm)
-- [帅哥摊主带火夜市一条街](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
-- [iPhone Duo要开卖了微信等应用还没适配，为何会出现这样的错位？这会对购买意愿有多大影响？](http://www.movie.hkepx.cn/xiju/7034358.htm)
-- [沈阳商场保洁大叔高颜值出圈](http://www.movie.hkepx.cn/xiju/0218818.htm)
-- [张萌断交后也会给马天宇买礼物](http://www.daogukj.com/nlksxqaw/)
+- [张本智和被打出0-11惨败](http://www.daogukj.com/4141941)
+- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](http://www.play.hengshemaoyi.cn/kongbu/1560184.htm)
+- [荣耀Robot Phone上手体验：形态特别，用起来咋样？](http://www.movie.hkepx.cn/xiju/6168121.htm)
+- [41岁女子存百万后去世](http://www.play.hengshemaoyi.cn/xiju/9169559.htm)
+- [演唱会黄牛一个月获利100万](http://www.movie.hkepx.cn/xiju/3455382.htm)
+- [曝某明星长期借不到高定，自费购买礼服后引该品牌PR暴怒，可能会是谁？为啥自费购买也会引起高奢品牌不满？](http://www.daogukj.com/7265089)
+- [李雪健这段无声演绎看哭了](http://www.daogukj.com/3085948)
+- [婚礼发言说虽然不是我的妻子](http://www.play.hengshemaoyi.cn/xiju/9041824.htm)
+- [72岁李雪健再登舞台](http://www.daogukj.com/jtbnzsng/)
+- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/1753405.htm)
+- [这是“巫毒”陷阱！](http://www.movie.hkepx.cn/xiju/3032776.htm)
+- [折1万次，会坏吗？iPhone Duo深度评测](http://www.daogukj.com/5882217)
+- [张萌后悔找马天宇上节目](http://www.play.hengshemaoyi.cn/kongbu/5165566.htm)
+- [大火逼近中国 日本道歉岂能只道一半](http://www.daogukj.com/0190432)
+- [为防沉迷 红果短剧“自砍摇钱树”](http://www.movie.hkepx.cn/xiju/9120157.htm)
+- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.daogukj.com/nzmqevzx/)
+- [如何评价宇树发布全新机器人「H2-X功夫传奇 守护」，宣称能徒手抬车、勇斗歹徒？在实际生活中会用在哪？](http://www.daogukj.com/qnzjxpsz/)
+- [全球70%网站都危险了](http://www.daogukj.com/7347029)
+- [白鹿工作室注销](http://www.play.hengshemaoyi.cn/kongbu/6788785.htm)
+- [国乒男团夺亚锦赛第26冠](http://www.movie.hkepx.cn/movie/1119983.htm)
+- [国乒女团2比3日本女团](http://www.movie.hkepx.cn/xiju/8115054.htm)
+- [西藏7级地震](http://www.play.hengshemaoyi.cn/kongbu/0135100.htm)
+- [西藏那曲市巴青县发生 7.0 级地震，当地目前具体情况如何？你那边有震感吗？](http://www.play.hengshemaoyi.cn/kongbu/9341366.htm)
+- [“锁暝 好高好高哦~”](http://www.daogukj.com/2641155)
+- [女子离婚后发现前夫婚内继承 400 多万房款，起诉要求分割这笔钱财，法院判决支持，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/4750298.htm)
+- [土耳其新教材虚构新疆历史](http://www.play.hengshemaoyi.cn/xiju/7971458.htm)
+- [如何评价SemiAnalysis认为DeepSeek与华为已形成共生关系？](http://www.play.hengshemaoyi.cn/kongbu/4213825.htm)
+- [国乒女团 桥本帆乃香](http://www.daogukj.com/3850819)
+- [向着胜利再出发](http://www.movie.hkepx.cn/xiju/8710542.htm)
+- [人民日报评综艺里医学生盲猜病情](http://www.play.hengshemaoyi.cn/xiju/9114846.htm)
+- [北京市副市长夏林茂被查](http://www.daogukj.com/9307696)
+- [为啥孙策传位给其弟孙权，而不是儿子？](http://www.play.hengshemaoyi.cn/kongbu/1696992.htm)
+- [那曲本次地震为震中近5年最大地震](http://www.play.hengshemaoyi.cn/kongbu/8017057.htm)
+- [韩国要收回美国权力指挥美军](http://www.movie.hkepx.cn/xiju/1094677.htm)
+- [台学者：大陆海警船你威胁得了吗](http://www.movie.hkepx.cn/movie/2883011.htm)
+- [亚锦赛国乒女团决赛不敌日本](http://www.play.hengshemaoyi.cn/xiju/7364308.htm)
+- [在星巴克开会1小时被提醒点单5次](http://www.movie.hkepx.cn/xiju/0265151.htm)
+- [黄婷婷李艺彤闹掰谁在释怀谁在获利](http://www.play.hengshemaoyi.cn/xiju/4656677.htm)
+- [国乒女团2比3日本 获亚锦赛亚军](http://www.movie.hkepx.cn/movie/6584812.htm)
+- [外地患者组团到高校传播艾滋病不实](http://www.play.hengshemaoyi.cn/kongbu/4126437.htm)
+- [养一头牛至少赚2000多元](http://www.daogukj.com/6360237)
+- [多地辟谣外地患者到高校传播艾滋病](http://www.daogukj.com/7781714)
+- [孙俪手机上几乎没有社交媒体](http://www.movie.hkepx.cn/xiju/0430082.htm)
+- [人民日报评星巴克“消费入座”](http://www.movie.hkepx.cn/movie/1491579.htm)
+- [捷达M6上市 售价7.98万起](http://www.play.hengshemaoyi.cn/kongbu/7929319.htm)
+- [乌克兰外长会见中国大使：感谢中方](http://www.movie.hkepx.cn/movie/3946221.htm)
+- [郭雪芙被曝在日遇害身亡 后援会辟谣](http://www.play.hengshemaoyi.cn/xiju/2647079.htm)
+- [有哪些在体制内里明白的道理？](http://www.movie.hkepx.cn/xiju/7034358.htm)
+- [后会友期 想请不敢请的都放观察室了](http://www.movie.hkepx.cn/xiju/0218818.htm)
+- [你知道的最冷最冷的冷知识是啥？](http://www.daogukj.com/nlksxqaw/)
 
 </details>
 
 ## 原始来源
 
-- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](https://www.zhihu.com/question/2096284238119228758)
+- [孙坚 一边拍戏一边还债](https://www.baidu.com/s?wd=%E5%AD%99%E5%9D%9A+%E4%B8%80%E8%BE%B9%E6%8B%8D%E6%88%8F%E4%B8%80%E8%BE%B9%E8%BF%98%E5%80%BA&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9a722e704e768558781a -->
+<!-- content-fingerprint: 1436f6c048dfe7b18d7d -->
