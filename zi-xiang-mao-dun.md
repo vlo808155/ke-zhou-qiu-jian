@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 父亲突发脑梗儿子用豆包抢出救命时间
+# 蓉城球迷拉横幅控诉主帅
 
-> 来源：今日头条热榜 · 排名：第 10 位 · 热度：4694712 · 分类：新事件上榜 · 更新：2026-10-24T15:12:21+08:00
+> 来源：今日头条热榜 · 排名：第 10 位 · 热度：4077593 · 分类：热门事件 · 更新：2026-10-24T20:03:12+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“父亲突发脑梗儿子用豆包抢出救命时间”位列第 10 位，公开热度指标为 4694712，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“蓉城球迷拉横幅控诉主帅”位列第 10 位，公开热度指标为 4077593，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [为什么腾讯有了QQ这么庞大的用户基础群之后要开发微信呢？](bei-gong-she-ying.md)
+- [为什么现在很多公立的幼儿园不教拼音，但是到了小学默认你是会拼音的状态？](bei-gong-she-ying.md)
 - [【纪录片】中国救护2 06 此去仍有光](jing-gong-zhi-niao.md)
-- [四价流感疫苗消失了？真相来了](hu-jia-hu-wei.md)
-- [黄多多说自己的头号粉丝是妹妹](yu-mu-hun-zhu.md)
+- [地震躲“生命三角”避险不靠谱](hu-jia-hu-wei.md)
+- [曝刘学义张予曦差点结婚](yu-mu-hun-zhu.md)
 
 ## 站内推荐
 
-- [济南月牙泉“一帘秋瀑”持续在线](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [李雪健已无法说话 仅靠表情完成演出](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [你怎么看毛不易在女性好友婚礼上的致辞，算越界吗？为什么「结婚越来越不意味着什么」引发热议？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [《洛克王国：世界》S5赛季奇遇新精灵登场！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [四人行，必有一怂蛋](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [范丞丞确认出演璀璨之上](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [张雪改良米饭为何引发打工人共情](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [四价流感疫苗消失了？真相来了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [内娱密集曝出好多新孩子，被网友戏称「大怀孕时代」，为什么最近很多明星选择怀孕生子？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [年轻人吐槽扔垃圾时小区老人当面翻垃圾、伸手拿纸箱，这种「扔垃圾羞耻症」背后折射出什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [寄件人取消订单 快递公司处罚快递员](http://www.movie.hkepx.cn/movie/6811296.htm)
-- [iPhone Duo开售，每人限购两部，你买到了吗？很多人刚开箱就屏幕开裂，你遇到了吗？使用感受如何？](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
-- [首部龙标AI电影正式上映](http://www.movie.hkepx.cn/movie/3422828.htm)
-- [【2026全球总决赛】10月24日 BLG vs MKOI](http://www.daogukj.com/ydwohxdl/)
-- [胡先煦拉开王安宇眼罩一起欣赏](http://www.movie.hkepx.cn/xiju/2720207.htm)
-- [老人去世后再婚配偶与儿子抢夺骨灰](http://www.movie.hkepx.cn/movie/8905156.htm)
-- [只有369摸到过高地](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
-- [跟风“喝大水”谨防“水中毒”](http://www.movie.hkepx.cn/movie/6751227.htm)
-- [突然get到了杨超越毫不费力的绝美](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
-- [AI对年轻人的影响被严重低估了](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
-- [《绝区零》先导演示丨挽昼](http://www.movie.hkepx.cn/movie/6134002.htm)
-- [李雪健已无法说话 仅靠表情完成演出](http://www.movie.hkepx.cn/xiju/5097281.htm)
-- [BLG不夺冠雷鸟退全款](http://www.movie.hkepx.cn/xiju/1723334.htm)
-- [我的天呐！这S赛太让人痛苦了，突破历史的首日全败！观众做了什么坏事要熬夜看这种比赛？【1酱赛评S赛瑞士轮Day1】](http://www.daogukj.com/8560862)
-- [10 月 23 日北方多地出现火箭云，你看到了吗？这是什么原理？](http://www.movie.hkepx.cn/movie/0534103.htm)
-- [林涛任福建省委副书记](http://www.daogukj.com/egppjxgx/)
-- [西藏巴青县地震前后遥感图发布](http://www.daogukj.com/kdnhmkcj/)
-- [😨"后室里的乌鲁鲁3"😰](http://www.daogukj.com/khgfsqiu/)
-- [国务院定调：减缓AI应用就业替代影响](http://www.movie.hkepx.cn/xiju/9522986.htm)
-- [领导让你去他车里拿茅台，但车里没有怎么办？](http://www.daogukj.com/sygihuae/)
-- [为什么江西小炒火遍江南？](http://www.daogukj.com/sucemorm/)
-- [刘亦菲上场前欧阳娜娜给她换伞](http://www.movie.hkepx.cn/xiju/6593136.htm)
-- [如何评价博主称“游戏劫持了人生最珍贵的算力，导致现实问题一个都没碰”的观点？](http://www.daogukj.com/pencausq/)
-- [S16 全球总决赛瑞士轮首日 LPL 战队四战全败创联赛最差开局成绩，如何评价首日他们的表现？](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
-- [泽连斯基含泪谈俄乌冲突：我夜不能寐](http://www.daogukj.com/2517745)
-- [黄多多说自己的头号粉丝是妹妹](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
-- [如何评价英国拟征收看剧税，观看 YouTube、Netflix 等网络流媒体需每年缴纳 180 英镑？](http://www.movie.hkepx.cn/xiju/5387412.htm)
-- [黄海冰演《嫁金钗》皇帝被错认樊少皇](http://www.movie.hkepx.cn/movie/2763004.htm)
-- [老年人摔倒后身体断崖式衰退真相](http://www.movie.hkepx.cn/xiju/8265001.htm)
+- [菲防长提着纸糊的盾牌对中国发起冲锋](http://www.movie.hkepx.cn/movie/6811296.htm)
+- [毛不易 情商](http://www.play.hengshemaoyi.cn/xiju/3874824.htm)
+- [菲防长叫嚣“战争行为”恐吓中国](http://www.movie.hkepx.cn/movie/3422828.htm)
+- [宇树机器人侧空翻表演时甩断腿，问题可能出在哪里？出现这种情况正常吗？](http://www.daogukj.com/ydwohxdl/)
+- [ON疑似被打哭边走边擦泪](http://www.movie.hkepx.cn/xiju/2720207.htm)
+- [为什么我说英语? 【手搓动画大赛】](http://www.movie.hkepx.cn/movie/8905156.htm)
+- [😨"后室里的乌鲁鲁3"😰](http://www.play.hengshemaoyi.cn/kongbu/4650184.htm)
+- [曝手机平板产品线将停更](http://www.movie.hkepx.cn/movie/6751227.htm)
+- [我遇到一个蜘蛛侠，在路边罚站了18年……](http://www.play.hengshemaoyi.cn/xiju/9709821.htm)
+- [苏州市委书记范波会见谷爱凌](http://www.play.hengshemaoyi.cn/xiju/9998507.htm)
+- [如何看待泰国旅游部长称「普通游客不会遭绑架」，这类问题「只出现在中国游客」？实际情况是怎样的？](http://www.movie.hkepx.cn/movie/6134002.htm)
+- [张雪改良米饭为何引发打工人共情](http://www.movie.hkepx.cn/xiju/5097281.htm)
+- [李昀锐主动和孟子义说二搭](http://www.movie.hkepx.cn/xiju/1723334.htm)
+- [如何评价博主称“游戏劫持了人生最珍贵的算力，导致现实问题一个都没碰”的观点？](http://www.daogukj.com/8560862)
+- [媒体：“劣迹艺人”标签岂能随便贴](http://www.movie.hkepx.cn/movie/0534103.htm)
+- [乌鸦喝水不扔石子了直接找人帮忙](http://www.daogukj.com/egppjxgx/)
+- [肖战演唱会30台投影史无前例](http://www.daogukj.com/kdnhmkcj/)
+- [我的天呐！这S赛太让人痛苦了，突破历史的首日全败！观众做了什么坏事要熬夜看这种比赛？【1酱赛评S赛瑞士轮Day1】](http://www.daogukj.com/khgfsqiu/)
+- [中国贝爷刘教去海岛感受南国美食](http://www.movie.hkepx.cn/xiju/9522986.htm)
+- [程序员更支持开源的DeepSeek还是平价的GPT？](http://www.daogukj.com/sygihuae/)
+- [点进李昀锐直播间结果是孟子义](http://www.daogukj.com/sucemorm/)
+- [两女生投150万开无烟酒吧倒闭](http://www.movie.hkepx.cn/xiju/6593136.htm)
+- [金正恩向抗美援朝纪念塔敬献花篮](http://www.daogukj.com/pencausq/)
+- [金正恩访问丹东 王沪宁陪同](http://www.play.hengshemaoyi.cn/kongbu/7286865.htm)
+- [蓉城末轮若输球英博赢球将逆袭夺冠](http://www.daogukj.com/2517745)
+- [曝刘学义张予曦差点结婚](http://www.play.hengshemaoyi.cn/xiju/7099374.htm)
+- [星夜驰援 守护生命](http://www.movie.hkepx.cn/xiju/5387412.htm)
+- [打包饭菜随口说句“漏了”被一拳打倒](http://www.movie.hkepx.cn/movie/2763004.htm)
+- [《绝区零》先导演示丨挽昼](http://www.movie.hkepx.cn/xiju/8265001.htm)
 - [人工耳蜗里的声音，到底是什么样的？](http://www.daogukj.com/pbivxwuy/)
-- [匡威卖不动了吗](http://www.daogukj.com/msnbkunl/)
-- [诸葛宇杰任青海省政府党组书记](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
-- [为什么腾讯有了QQ这么庞大的用户基础群之后要开发微信呢？](http://www.movie.hkepx.cn/movie/3294285.htm)
-- [有用版新植物：野狗小喷菇](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
-- [任泽平账号违规被禁止关注](http://www.daogukj.com/7751528)
-- [祝贺！中国成功发射一箭六星](http://www.movie.hkepx.cn/xiju/5949359.htm)
-- [年轻人正在抛弃帆布鞋](http://www.movie.hkepx.cn/movie/9383605.htm)
-- [S16瑞士轮次轮抽签：TES与AL内战](http://www.daogukj.com/0705031)
-- [赵丽颖方回应直播发型争议：在洗了](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
-- [勇士末节被轰17比0](http://www.daogukj.com/iaxbxgkd/)
-- [S16](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
-- [迪丽热巴嘴衔蝴蝶惊艳亮相](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
-- [官方通报女孩卖掉妈妈金项链被熔化](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
-- [藏北高原上的生命驰援](http://www.movie.hkepx.cn/xiju/9594303.htm)
-- [唐登杰当选中共山西省委书记](http://www.daogukj.com/3727264)
-- [嫁金钗没有人真正关心君黛](http://www.movie.hkepx.cn/movie/8918029.htm)
-- [派大星跳伞是什么梗【梗指南】](http://www.daogukj.com/5225618)
-- [全员演技拉满！谁才是偷奶酪的大盗？！！「奶酪大盗」](http://www.daogukj.com/7483927)
-- [父亲突发脑梗儿子用AI抢出救命时间](http://www.daogukj.com/hmowpwmp/)
-- [四价流感疫苗消失了？真相来了](http://www.movie.hkepx.cn/movie/8474409.htm)
+- [“借大圣威名，护我痴儿周全”](http://www.daogukj.com/msnbkunl/)
+- [看见中国智造新力量](http://www.play.hengshemaoyi.cn/xiju/7672549.htm)
+- [为什么现在很多公立的幼儿园不教拼音，但是到了小学默认你是会拼音的状态？](http://www.movie.hkepx.cn/movie/3294285.htm)
+- [为什么江西小炒火遍江南？](http://www.play.hengshemaoyi.cn/xiju/6588219.htm)
+- [成都蓉城0比1大连英博](http://www.daogukj.com/7751528)
+- [《纯阳真气》](http://www.movie.hkepx.cn/xiju/5949359.htm)
+- [金正恩访问丹东](http://www.movie.hkepx.cn/movie/9383605.htm)
+- [招豆包当客服也是没救了](http://www.daogukj.com/0705031)
+- [人工智能都卷到收废品赛道了](http://www.play.hengshemaoyi.cn/xiju/5146269.htm)
+- [张雪将挑战摩托车水上漂世界纪录](http://www.daogukj.com/iaxbxgkd/)
+- [领导让你去他车里拿茅台，但车里没有怎么办？](http://www.play.hengshemaoyi.cn/kongbu/4178422.htm)
+- [黄多多讲话跟小时候一模一样](http://www.play.hengshemaoyi.cn/kongbu/4736622.htm)
+- [《话术博弈》如何优雅的套出对方的真心话？](http://www.play.hengshemaoyi.cn/kongbu/1310456.htm)
+- [以信心汇聚力量以合作破解难题](http://www.movie.hkepx.cn/xiju/9594303.htm)
+- [迪丽热巴造型师被指逼宫冤吗](http://www.daogukj.com/3727264)
+- [iPhone Duo备货量猛增至1500万台](http://www.movie.hkepx.cn/movie/8918029.htm)
+- [《星溯》首曝PV丨重启停滞的轮回](http://www.daogukj.com/5225618)
+- [红果「把观众的时间换成钱」引发热议，靠曝光变现作为商业化基础，怎么看待这一模式？竞争优势能稳住吗？](http://www.daogukj.com/7483927)
+- [31省份2025年婚姻数据公布](http://www.daogukj.com/hmowpwmp/)
+- [地震躲“生命三角”避险不靠谱](http://www.movie.hkepx.cn/movie/8474409.htm)
 
 </details>
 
 ## 原始来源
 
-- [父亲突发脑梗儿子用豆包抢出救命时间](https://www.toutiao.com/trending/7700114606144032283/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227700114606144032283%22%2C%22hot_board_impr_id%22%3A%22202610241512203BC4A5A7085707A4C62B%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [蓉城球迷拉横幅控诉主帅](https://www.toutiao.com/trending/7700184004175351323/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227700184004175351323%22%2C%22hot_board_impr_id%22%3A%2220261024200311DDC5F6FF3828AB3A288E%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2750b52f82a1037c836e -->
+<!-- content-fingerprint: 65c33195e02dd4200cf9 -->
