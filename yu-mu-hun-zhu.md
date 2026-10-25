@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 地震躲“生命三角”避险不靠谱
+# 辽宁锦州大暴雨致街道成海是谣言
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6850455 · 更新：2026-10-25T09:22:09+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6854388 · 更新：2026-10-25T14:31:10+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“地震躲“生命三角”避险不靠谱”位列第 10 位，公开热度指标为 6850455。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“辽宁锦州大暴雨致街道成海是谣言”位列第 10 位，公开热度指标为 6854388。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月22日，西藏那曲市巴青县发生7.0级地震。此前，网上流传“生命三角”、躲衣柜等逃生法。权威机构指出，这些方法不靠谱，因人在灾难中易受直觉驱使，复杂动作不适合紧急避险。科学避震原则为：震时就近避险，优先采取“伏地、遮挡、手抓牢”，待震动停止后再有序撤离。
+来源公开摘要显示：近日，有网民发布视频并配文称“辽宁锦州大暴雨，街道成海车辆被淹”，引发关注。经属地街道办事处核查，辽宁省锦州市近日未出现暴雨天气，网传视频与实际情况不符，系不实信息。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [儿媳愿出钱但不与婆婆同住](dong-shi-xiao-pin.md)
-- [谷爱凌穿旗袍逛苏州](han-dan-xue-bu.md)
-- [为什么chatgpt和claude防不住蒸馏？](qi-ren-you-tian.md)
-- [【头文字F4】德彪~德彪~得意的彪](chao-san-mu-si.md)
+- [迪丽热巴全平台爆出圈](dong-shi-xiao-pin.md)
+- [跑步伤膝盖吗](han-dan-xue-bu.md)
+- [美国公布新一批 UFO 文件，其中一飞行物可无声悬停、3 秒飞出 2.4 公里，还有哪些信息值得关注？](qi-ren-you-tian.md)
+- [抽象新闻：10月人类迷惑行为大赏（上）](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [太空视角俯瞰台湾 每条街道清晰可见](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [爱马仕也卖不动了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [宝马司机把400元油费丢地上让员工捡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [金价大跌 深圳水贝又被挤爆了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [父亲突发脑梗儿子用豆包抢出救命时间](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [央视：美军选特殊时期挑衅已劣迹斑斑](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [麻阳村民：村里人最多的一天](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [178平方豪宅6个套间 每间都有马桶](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [“所有人在等张雪上厕所”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [这是数学还是语文](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待 17 岁天才少年陈广宇离开月之暗面赴美？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [HLE GEN](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [靳伟任湖南省委副书记](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [【头文字F4】德彪~德彪~得意的彪](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [S16瑞士轮TES 1:0 AL，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [迪丽热巴蝴蝶飞走是巧合](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [父亲突发脑梗儿子用豆包抢出救命时间](http://www.daogukj.com/4734416)
-- [母亲患病 124万被女儿女婿擅自取走](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [雷霆队的杰威在被绊倒后连打了7个滚才停下，裁判回看后没有升级犯规，对此你怎么看？](http://www.daogukj.com/eujljnlh/)
-- [58岁骑手维权“找不到用人单位”](http://www.daogukj.com/3484796)
-- [宝马司机把400元油费丢地上让员工捡](http://www.daogukj.com/6840289)
-- [如何看待 85 万新能源车成「电子孤儿」，修不了、卖不掉，连保险也拒绝担保？](http://www.daogukj.com/8544186)
-- [凡人修仙传动漫197集观众满意吗？](http://www.daogukj.com/4262842)
-- [爱马仕也卖不动了](http://www.movie.hkepx.cn/movie/0136106.htm)
-- [出口首破8万亿 “新”字挑大梁](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [金价大跌 深圳水贝又被挤爆了](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [儿媳愿出钱但不与婆婆同住](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [2026年10月Steam新品节被指AI游戏过多，怎么全民做游戏的浪潮刚开始就人人喊打了？](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [媒体人：山东泰山将决定中超冠军归属](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [人性、欲望与奇观，自驾拉斯维加斯，现实夜之城什么样？](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [李艺彤黄婷婷be原因](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [2025年出生人口男孩多于女孩](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [日剧把日军罪行嫁接给中国人](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [抽象新闻：10月人类迷惑行为大赏（上）](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [美初创公司宣称已实现「汞变稳定黄金」，但成果尚未得到独立验证，技术原理是啥？技术可行性与商业价值如何？](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [一线明星参演、高成本制作、高市早苗点名要看？热播日剧背后的认知投毒真危险！](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [这是数学还是语文](http://www.daogukj.com/4734416)
+- [张雪：打99分留1分不要太骄傲](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [31省份2025年人口出生率公布](http://www.daogukj.com/eujljnlh/)
+- [金饰克价较一个月前跌了约100元](http://www.daogukj.com/3484796)
+- [178平方豪宅6个套间 每间都有马桶](http://www.daogukj.com/6840289)
+- [夫妻花67.3万买劳力士却不挑选不试戴，店员果断报警，最终证实夫妻两人遭遇诈骗，这背后有着怎样的骗局？](http://www.daogukj.com/8544186)
+- [陶哲轩称 AI 的数学成果称把解题当基准测试，犹如抛出「有毒废料」，如何看待这一评价？](http://www.daogukj.com/4262842)
+- [麻阳村民：村里人最多的一天](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [这不是科幻这是中国智造](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
+- [“所有人在等张雪上厕所”](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [迪丽热巴全平台爆出圈](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [唐朝诡事录](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [李雪健已无法说话](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [国乒两人进亚锦赛男单四强](http://www.movie.hkepx.cn/movie/3741651.htm)
 - [羌塘无人区失踪一年多后，自行车意外被人发现，李聪明](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [DK险胜T1](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [夫妻花67.3万买劳力士却不挑选不试戴，店员果断报警，最终证实夫妻两人遭遇诈骗，这背后有着怎样的骗局？](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [古代偷偷晒海水难道不可以少量自制盐吗？](http://www.daogukj.com/4133568)
-- [诺奖得主 Hassabis 称 AGI 最快 2 年内到来，如何看待这一预判？](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [“喝大水、睡大觉、练薄肌”](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [如何看待S16瑞士轮第三轮抽签结果，IG vs HLE，TES vs G2，BLG vs KC？](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [假如眼镜王蛇和金环蛇互咬，它们会被对方的毒毒死吗？](http://www.daogukj.com/4133568)
+- [上海 90 岁老人在公共楼道住近一年，三名女儿因赡养问题互相推诿，该怎样破局？如何从法律角度解读？](http://www.movie.hkepx.cn/movie/9472579.htm)
 - [76 年过后，抗美援朝战争对当今中国有着怎样的意义？这场战争在历史上留下的痕迹，还在怎样影响着我们？](http://www.daogukj.com/0480016)
-- [曝手机平板产品线将停更](http://www.daogukj.com/4561506)
-- [菲防长叫嚣“战争行为”恐吓中国](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [“全网最土拼豆店”](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [乌鸦喝水不扔石子了直接找人帮忙](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [女生拒绝表白后照片被发在色情软件](http://www.daogukj.com/jbdvxipc/)
-- [二十国混战：速通复盘中土网友对线大战](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [管泽元因质疑369选狼母道歉](http://www.daogukj.com/awgjjjvg/)
-- [金价大跌催热水贝黄金市场消费](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [重点中学教师称高一开学仅一个月，其任教的每个班均有学生因心理问题休学，这是普遍现象吗？为什么会这样？](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [女生拒绝表白后照片被发到色情软件](http://www.daogukj.com/ditzbwwz/)
-- [这是中国台湾省](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [国考83个职位无人报名](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [水库发现被掩埋医疗垃圾 当地回应](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [“借大圣威名，护我痴儿周全”](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [西藏巴青县地震前后遥感图发布](http://www.daogukj.com/aqmuomii/)
-- [《小城良方》 养蚂蚁](http://www.daogukj.com/phjdnbun/)
-- [我花了3个月！把MC爆改成别的游戏！！](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [派大星跳伞是什么梗【梗指南】](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [他再也不用去卫生间了](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [抗美援朝出国作战76周年](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [DK世界赛翻盘T1](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [被状告后高铁宁波站撤掉禁烟标志](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [祖海态度](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [谷爱凌穿旗袍逛苏州](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [《绝区零》先导演示丨挽昼](http://www.daogukj.com/4561506)
+- [国考83个职位无人报名](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [国务院提出「优化家庭财税稳人口」，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [自家车经常被鸟拉屎男子莫名确诊肺炎](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [江苏姑娘网购鹤岗房搬进去后傻眼](http://www.daogukj.com/jbdvxipc/)
+- [谷爱凌穿旗袍逛苏州](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [S16瑞士轮1-1组死亡之组出炉](http://www.daogukj.com/awgjjjvg/)
+- [王者荣耀共创之夜节目单](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [现在的西红柿为何不好吃？](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [如何看待 17 岁天才少年陈广宇离开月之暗面赴美？](http://www.daogukj.com/ditzbwwz/)
+- [全国总人口面临跌破14亿](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [陕西问界车毁人亡后，有人发现懂车帝2024年就指出问界汽车油路太靠前，碰撞后容易自燃，如何看待？](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [国考排名第一的岗位竞争超6000:1](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [西藏震区小学墙体裂缝比拳头还大](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [菲防长叫嚣“战争行为”恐吓中国](http://www.daogukj.com/aqmuomii/)
+- [李雪健已听不见也无法说话](http://www.daogukj.com/phjdnbun/)
+- [《话术博弈》如何优雅的套出对方的真心话？](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [奥巴马批特朗普：赤裸裸地借机敛财](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [全网最高记录，单局十颗非洲之心](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [奶爸带双胞胎半年 前后判若两人](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [深圳水贝被挤爆](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [毛不易婚礼发言引网友争议](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [【抢先版】保姆一家躲进通风管道，偷吃偷窃想占我别墅，我假意封死通风口，用法律狠狠惩治这群坏人！](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [跑步伤膝盖吗](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [地震躲“生命三角”避险不靠谱](https://www.baidu.com/s?wd=%E5%9C%B0%E9%9C%87%E8%BA%B2%E2%80%9C%E7%94%9F%E5%91%BD%E4%B8%89%E8%A7%92%E2%80%9D%E9%81%BF%E9%99%A9%E4%B8%8D%E9%9D%A0%E8%B0%B1&sa=fyb_news&rsv_dl=fyb_news)
+- [辽宁锦州大暴雨致街道成海是谣言](https://www.baidu.com/s?wd=%E8%BE%BD%E5%AE%81%E9%94%A6%E5%B7%9E%E5%A4%A7%E6%9A%B4%E9%9B%A8%E8%87%B4%E8%A1%97%E9%81%93%E6%88%90%E6%B5%B7%E6%98%AF%E8%B0%A3%E8%A8%80&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 70e327082ef26ca00b27 -->
+<!-- content-fingerprint: 49cc02a47779d885b6ab -->

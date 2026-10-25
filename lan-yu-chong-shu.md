@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# GEN强势击败HLE
+# 蓉城球迷戴血压仪 目睹6次丢冠军点
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6943624 · 更新：2026-10-25T09:22:09+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6944673 · 更新：2026-10-25T14:31:10+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“GEN强势击败HLE”位列第 9 位，公开热度指标为 6943624。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“蓉城球迷戴血压仪 目睹6次丢冠军点”位列第 9 位，公开热度指标为 6944673。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月25日，英雄联盟全球总决赛，GEN强势击败HLE，豪取连胜。
+来源公开摘要显示：10月24日，中超第29轮一场焦点战，成都蓉城主场0-1不敌大连英博，第六次丢掉冠军点，本赛季中超悬念留到末轮。本场过程跌宕起伏，看台上更有成都球迷直接将电子血压仪带到现场量血压。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [管泽元因质疑369选狼母道歉](zi-xiang-mao-dun.md)
-- [西藏巴青县地震前后遥感图发布](bei-gong-she-ying.md)
+- [S16瑞士轮1-1组死亡之组出炉](zi-xiang-mao-dun.md)
+- [菲防长叫嚣“战争行为”恐吓中国](bei-gong-she-ying.md)
 - [76 年过后，抗美援朝战争对当今中国有着怎样的意义？这场战争在历史上留下的痕迹，还在怎样影响着我们？](jing-gong-zhi-niao.md)
-- [【纪录片】中国救护2 06 此去仍有光](hu-jia-hu-wei.md)
+- [暗粥野排现状](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [泽连斯基：拒绝接受放弃25%领土提议](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [《小城良方》 养蚂蚁](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [抗美援朝出国作战76周年](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [走路是运动延寿“第一名”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [西藏震区小学墙体裂缝比拳头还大](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [于蕾任羊年央视春晚总导演](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [李雪健已听不见也无法说话](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [奶爸带双胞胎半年 前后判若两人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [亚洲最长的地铁环线来了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [A股指数重要调整明起实施](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [父亲突发脑梗儿子用豆包抢出救命时间](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [厉娜 许飞](http://www.daogukj.com/axnomarx/)
-- [人民日报评“人们不愿接陌生电话”](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [这是中国台湾省](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [女生不要谈太久的恋爱](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [靳伟任湖南省委副书记](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [重点中学教师称高一开学仅一个月，其任教的每个班均有学生因心理问题休学，这是普遍现象吗？为什么会这样？](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [HLE GEN](http://www.daogukj.com/9955752)
-- [出口首破8万亿 “新”字挑大梁](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [这是数学还是语文](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [日剧Vivant抹黑中国](http://www.daogukj.com/axnomarx/)
+- [女子花3.8万鹤岗买房 搬进去后傻眼](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [全国总人口面临跌破14亿](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [为什么我们越来越害怕成为“嘉豪”？](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [日剧把日军罪行嫁接给中国人](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [现在的西红柿为何不好吃？](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [2025年出生人口男孩多于女孩](http://www.daogukj.com/9955752)
+- [这不是科幻这是中国智造](http://www.movie.hkepx.cn/movie/6160167.htm)
 - [写了全国所有省份的love me！](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [台湾光复纪念日](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [“借大圣威名，护我痴儿周全”](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [假如眼镜王蛇和金环蛇互咬，它们会被对方的毒毒死吗？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [女生拒绝表白后照片被发到色情软件](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [渝昆高铁全线铺轨完成](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [新角色：大肥鱼](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [子弟兵为西藏震区受灾群众煮上热饭](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [太空视角俯瞰台湾 每条街道清晰可见](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [鸡蛋别放冰箱门格子里](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [2026年10月Steam新品节被指AI游戏过多，怎么全民做游戏的浪潮刚开始就人人喊打了？](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [国考83个职位无人报名](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [如何看待 85 万新能源车成「电子孤儿」，修不了、卖不掉，连保险也拒绝担保？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [人性、欲望与奇观，自驾拉斯维加斯，现实夜之城什么样？](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [何刚升任华为董事，继续担任终端 CEO，可能给华为带来哪些变化？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [走路是运动延寿“第一名”](http://www.daogukj.com/2395514)
-- [日民间团体：日美联合军演应立即停止](http://www.daogukj.com/6574038)
-- [迪丽热巴蝴蝶飞走是巧合](http://www.daogukj.com/ajcuxydy/)
-- [水库发现被掩埋医疗垃圾 当地回应](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [西藏震区小学墙体裂缝比拳头还大](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [爱马仕称中国市场目前很困难](http://www.daogukj.com/cfeqrkjc/)
-- [穿越战锤24年，你终靠实力拿下星球总督王座，你的余生会如何度过？](http://www.daogukj.com/rkkegwyy/)
-- [《小城良方》 养蚂蚁](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [张雪在家乡刷新吉尼斯纪录](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [西藏震区小学墙体裂缝比拳头还大](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [斯里兰卡遭遇全国性断电 6 小时，太阳能发电过剩为何会导致电网崩溃？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [如何看待 17 岁天才少年陈广宇离开月之暗面赴美？](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [向英雄致敬迎英雄回家](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [英国阿姨试穿中国机器人后成功行走](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [超6万件套救援物资运往灾区](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [央视：美军选特殊时期挑衅已劣迹斑斑](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [县委书记拒绝张雪为家乡打广告](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [唐朝诡事录](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [陕西问界车毁人亡后，有人发现懂车帝2024年就指出问界汽车油路太靠前，碰撞后容易自燃，如何看待？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [夫妻花67.3万买劳力士却不挑选不试戴，店员果断报警，最终证实夫妻两人遭遇诈骗，这背后有着怎样的骗局？](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [国乒两人进亚锦赛男单四强](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [S16 瑞士轮次日 TES 1:0 击败 AL 拿下首胜，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [亚洲最长的地铁环线来了](http://www.daogukj.com/2395514)
+- [菲两架军机空中相撞画面曝光](http://www.daogukj.com/6574038)
+- [一线明星参演、高成本制作、高市早苗点名要看？热播日剧背后的认知投毒真危险！](http://www.daogukj.com/ajcuxydy/)
+- [国考排名第一的岗位竞争超6000:1](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [A股指数重要调整明起实施](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [多名女性被发色情软件都接触过同一人](http://www.daogukj.com/cfeqrkjc/)
+- [【头文字F4】德彪~德彪~得意的彪](http://www.daogukj.com/rkkegwyy/)
+- [李雪健已听不见也无法说话](http://www.movie.hkepx.cn/xiju/5333033.htm)
 - [76 年过后，抗美援朝战争对当今中国有着怎样的意义？这场战争在历史上留下的痕迹，还在怎样影响着我们？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [金正恩访问丹东 王沪宁陪同](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [西藏巴青县地震前后遥感图发布](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [黄多多正式进圈被吐槽](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [58岁骑手维权“找不到用人单位”](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [新郎新娘回应毛不易婚礼发言](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [抽象新闻：10月人类迷惑行为大赏（上）](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [母亲患病 124万被女儿女婿擅自取走](http://www.daogukj.com/8099191)
-- [李冰冰任泉在清华被偶遇](http://www.daogukj.com/vrvcskzj/)
-- [菲两架军机空中相撞画面曝光](http://www.daogukj.com/lbbxrvry/)
-- [他再也不用去卫生间了](http://www.daogukj.com/9295095)
-- [媒体人：山东泰山将决定中超冠军归属](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [乌鸦喝水不扔石子了直接找人帮忙](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [东部战区发布台湾光复纪念日海报](http://www.daogukj.com/7435478)
-- [为什么现在很多公立的幼儿园不教拼音，但是到了小学默认你是会拼音的状态？](http://www.daogukj.com/kwdurrnw/)
-- [“非洲优等生”成功密码是什么？天降猛男的得与失【中非04丨卢旺达】](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [DK险胜T1](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [抗美援朝出国作战76周年](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [成都蓉城为何快成“笑话”了](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [菲防长叫嚣“战争行为”恐吓中国](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [《西游记》中如来佛祖为什么要推蝎子精，而蝎子精又为何胆大到敢扎佛祖？](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [金饰克价较一个月前跌了约100元](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [《纯阳真气》](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [名片交换](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [张雪：打99分留1分不要太骄傲](http://www.daogukj.com/8099191)
+- [朝中社发文缅怀毛岸英黄继光等英雄](http://www.daogukj.com/vrvcskzj/)
+- [泽连斯基：绝不接受放弃25%领土提议](http://www.daogukj.com/lbbxrvry/)
+- [全网最高记录，单局十颗非洲之心](http://www.daogukj.com/9295095)
+- [李雪健已无法说话](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [自家车经常被鸟拉屎男子莫名确诊肺炎](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [唐诡五六季一起拍80集](http://www.daogukj.com/7435478)
+- [iPhoneDuo王者荣耀黑边](http://www.daogukj.com/kwdurrnw/)
+- [新角色：大肥鱼](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [“喝大水、睡大觉、练薄肌”](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [奶爸带双胞胎半年 前后判若两人](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [GEN强势击败HLE](https://www.baidu.com/s?wd=GEN%E5%BC%BA%E5%8A%BF%E5%87%BB%E8%B4%A5HLE&sa=fyb_news&rsv_dl=fyb_news)
+- [蓉城球迷戴血压仪 目睹6次丢冠军点](https://www.baidu.com/s?wd=%E8%93%89%E5%9F%8E%E7%90%83%E8%BF%B7%E6%88%B4%E8%A1%80%E5%8E%8B%E4%BB%AA+%E7%9B%AE%E7%9D%B96%E6%AC%A1%E4%B8%A2%E5%86%A0%E5%86%9B%E7%82%B9&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ab6ff12e2f4646b846e7 -->
+<!-- content-fingerprint: b166f90ede628de1a624 -->
