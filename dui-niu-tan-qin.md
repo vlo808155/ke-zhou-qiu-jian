@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 奥迪中国四环标和字母标正式分家
+# 如何看待郑州马拉松一男子系绳带 9 岁儿童跑全马被禁赛三年？儿童跑马拉松有哪些健康风险？
 
-> 来源：今日头条热榜 · 排名：第 12 位 · 热度：4960248 · 更新：2026-10-26T22:26:40+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：104 万热度 · 分类：问答 · 更新：2026-10-27T04:06:40+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“奥迪中国四环标和字母标正式分家”位列第 12 位，公开热度指标为 4960248。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待郑州马拉松一男子系绳带 9 岁儿童跑全马被禁赛三年？儿童跑马拉松有哪些健康风险？”位列第 12 位，公开热度指标为 104 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：带儿童跑马拉松，一男选手被罚！ 据九派新闻报道，日前，有网友发视频称，在10月18日的河南郑州马拉松赛道上，一名男选手用绳子固定在他与一名孩子的腰部，两人一起向前跑步。另有网友称，其参赛时“偶遇9岁‘小孩哥’和其父亲一路奔跑”。 孩子年龄尚小，如何进入赛道，该选手是否违规？10月23日，郑州马拉松组委会工作人员回应称，已对该选手作出处罚，取消成绩并禁赛三年。 《2026“郑州银行”郑州马拉松竞赛规程》明确，马拉松项目的参赛年龄要求为：参赛当年1月1日年满20周岁（2006年1月1日前出生）；半程马拉松项目则要求参赛当年1月1日年满18周岁（2008年1月
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [红灯变绿后，为什么总有前车要愣两三秒才起步？](mang-ren-mo-xiang.md)
-- [【阴阳师同人动画】爱，创作和人类](yuan-mu-qiu-yu.md)
-- [许飞 你想要我命都给你](sha-ji-qu-luan.md)
-- [女子驾车过高架车顶被风筝线割破](yin-zhen-zhi-ke.md)
+- [维修报价需要3000，回收报价700，转身修好卖5000。](mang-ren-mo-xiang.md)
+- [租客不辞而别 留下字条和277块现金](yuan-mu-qiu-yu.md)
+- [樊振东用荒诞形容首次诺坎普之旅](sha-ji-qu-luan.md)
+- [全城人都在咳嗽 原来是辣椒厂起火](yin-zhen-zhi-ke.md)
 
 ## 站内推荐
 
-- [曝后会友期有个艺人很作](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [被取消演出的大衣哥回家干农活了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [中石油股价为何创18年来新高](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [如何评价刘诗诗、李乃文主演的犯罪剧《醉梦》？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [如果早知道，阿伟可以手搓时光机](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [人造古镇为啥集体哑火了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [CFO对战T1](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [如何评价呼和浩特盛乐国际机场将于 2026 年 11 月 26 日正式投入运营？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [《影之刃零》的媒体评分正式解禁，M站87分、22家媒体普遍好评，你如何评价这个结果？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [CBA开赛后以贺希宁、庞峥麟为首的一批国家队球员状态急剧下滑，这是什么原因，未来国家队会继续集训吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [内存价格出现倒挂](http://www.daogukj.com/7783346)
-- [媒体：娱乐至死的医疗真人秀该叫停了](http://www.movie.hkepx.cn/xiju/0144340.htm)
-- [县委书记被扔下水是干群的互相成全](http://www.movie.hkepx.cn/xiju/5872465.htm)
-- [我国风光装机量突破20亿千瓦](http://www.daogukj.com/xyupryli/)
-- [家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？](http://www.daogukj.com/6352765)
-- [15个中央巡视组组长公布](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
-- [国企欠款上千万元称先给十万八万](http://www.movie.hkepx.cn/xiju/6435292.htm)
-- [金球奖](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
-- [吴站长携天津站男团激情演唱《Uptown Funk》](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
-- [装X翻车全网群嘲？医学界有自己的翟天临！深扒李子祺事变](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
-- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/1493456)
-- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
-- [菲尔兹奖得主邓煜评论 AI 公司「你不能只在你蒸馏全人类的知识时支持蒸馏」，如何看待模型厂的反蒸馏？](http://www.daogukj.com/wecagjke/)
-- [如果早知道，阿伟可以手搓时光机](http://www.daogukj.com/8911687)
-- [曝后会友期有个艺人很作](http://www.movie.hkepx.cn/movie/7897439.htm)
-- [贵州真是旅游宝藏，贵州人嘴真严！](http://www.movie.hkepx.cn/xiju/6645788.htm)
-- [【IGN】10分，《影之刃零》评测： 武侠朋克传奇](http://www.movie.hkepx.cn/xiju/9394899.htm)
-- [老干妈回应“用AI把600人裁到48人”](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
-- [【2026全球总决赛】10月26日 IG vs HLE](http://www.movie.hkepx.cn/movie/6985184.htm)
-- [电动自行车行业将迎来新一轮洗牌吗](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
-- [胖东来5名员工遭顾客打骂获补偿](http://www.daogukj.com/sfshhzje/)
-- [为什么那些大佬每天要处理许多事情，还精力充沛?](http://www.movie.hkepx.cn/xiju/2060263.htm)
-- [iPhone Duo被曝使用几天甚至几小时就出现内屏裂纹，拆解报告称可能与铰链有关，哪些细节值得关注？](http://www.daogukj.com/6469340)
-- [从人手一双到无人买单，曾经的「帆布鞋鼻祖」匡威为何卖不动了？年轻人到底想要什么？](http://www.movie.hkepx.cn/movie/8131985.htm)
-- [受伤女孩求助要20元车费老板果断帮忙](http://www.movie.hkepx.cn/xiju/6637455.htm)
-- [女子新房未入住被他人装修出租20年](http://www.daogukj.com/ezqthdyk/)
-- [女子驾车过高架车顶被风筝线割破](http://www.movie.hkepx.cn/movie/8362403.htm)
-- [马克龙承认未能预判骚乱](http://www.daogukj.com/blmliwwv/)
-- [沈阳浑南发生2.6级地震](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
-- [如何看待郑州马拉松一男子系绳带 9 岁儿童跑全马被禁赛三年？儿童跑马拉松有哪些健康风险？](http://www.daogukj.com/6808681)
-- [一个“国误奇观”的故事](http://www.daogukj.com/8913120)
-- [樊振东「卧底」西班牙国家德比，被反复质疑盘查，因表现不狂热遭巴萨球迷投诉，对此你怎么看？](http://www.daogukj.com/8931072)
-- [动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
-- [生活中的一些概念神](http://www.movie.hkepx.cn/xiju/2847418.htm)
-- [DeepSeek 营收只有几亿，却融资上千亿，这种模式合理吗？](http://www.daogukj.com/nrrtwuij/)
-- [红灯变绿后，为什么总有前车要愣两三秒才起步？](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
-- [如何评价呼和浩特盛乐国际机场将于 2026 年 11 月 26 日正式投入运营？](http://www.daogukj.com/emrfuprm/)
-- [老干妈日销售额从万元跌至千元](http://www.movie.hkepx.cn/movie/7899876.htm)
-- [如何看待六小龄童称「圣黛CP」既有意义也很有趣，但需做好正确引导？你认为文艺作品的二创需要设立底线吗？](http://www.movie.hkepx.cn/xiju/7135879.htm)
+- [8旬老人称因换保姆被女儿冷暴力](http://www.daogukj.com/7783346)
+- [樊振东国家德比观后感](http://www.movie.hkepx.cn/xiju/0144340.htm)
+- [皇马绝杀巴萨](http://www.movie.hkepx.cn/xiju/5872465.htm)
+- [LPL大概率又要内战了](http://www.daogukj.com/xyupryli/)
+- [用党的创新理论凝心铸魂](http://www.daogukj.com/6352765)
+- [T1大概率抽到LPL](http://www.play.hengshemaoyi.cn/xiju/5350210.htm)
+- [双人抬棺](http://www.movie.hkepx.cn/xiju/6435292.htm)
+- [【IGN】10分，《影之刃零》评测： 武侠朋克传奇](http://www.play.hengshemaoyi.cn/xiju/1558494.htm)
+- [如果早知道，阿伟可以手搓时光机](http://www.play.hengshemaoyi.cn/xiju/7881730.htm)
+- [如何看待iPhone Duo才开卖一天，网上就很多内屏损坏的案例，而且在同一个位置？](http://www.play.hengshemaoyi.cn/kongbu/2492488.htm)
+- [为什么那些大佬每天要处理许多事情，还精力充沛?](http://www.daogukj.com/1493456)
+- [王兴兴两次认错 宇树暴涨1100亿](http://www.play.hengshemaoyi.cn/xiju/8422071.htm)
+- [安徽亳州打掉一流窜“取现车队”](http://www.daogukj.com/wecagjke/)
+- [CBA开赛后以贺希宁、庞峥麟为首的一批国家队球员状态急剧下滑，这是什么原因，未来国家队会继续集训吗？](http://www.daogukj.com/8911687)
+- [人造古镇为啥集体哑火了](http://www.movie.hkepx.cn/movie/7897439.htm)
+- [如何看待Anthropic提交IPO申请，将以「ANT」为代码登陆纳斯达克？会给AI行业带来哪些改变？](http://www.movie.hkepx.cn/xiju/6645788.htm)
+- [为什么广东那么潮湿却没养成吃辣椒祛湿的习惯？](http://www.movie.hkepx.cn/xiju/9394899.htm)
+- [iPad mini](http://www.play.hengshemaoyi.cn/kongbu/9846012.htm)
+- [既然国家允许重新高考，为什么不少经济条件尚可、没有巨大生存压力的成年人，依然不选择报考？](http://www.play.hengshemaoyi.cn/kongbu/2607422.htm)
+- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.movie.hkepx.cn/movie/6985184.htm)
+- [樊振东分享观赛西班牙国家德比](http://www.play.hengshemaoyi.cn/kongbu/7115027.htm)
+- [iPhoneDuo折叠挑战后摔坏](http://www.daogukj.com/sfshhzje/)
+- [母女被未拴绳大狗逼到墙角 警方回应](http://www.movie.hkepx.cn/xiju/2060263.htm)
+- [深圳水贝被挤爆](http://www.daogukj.com/6469340)
+- [AI短片《齐天大圣》为何能引发关注](http://www.movie.hkepx.cn/movie/8131985.htm)
+- [The shy：我不是F6！](http://www.movie.hkepx.cn/xiju/6637455.htm)
+- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.daogukj.com/ezqthdyk/)
+- [全城人都在咳嗽 原来是辣椒厂起火](http://www.movie.hkepx.cn/movie/8362403.htm)
+- [Keria两波完美先手](http://www.daogukj.com/blmliwwv/)
+- [县委书记被扔下水没必要尬吹硬捧](http://www.play.hengshemaoyi.cn/kongbu/6600505.htm)
+- [生命起源：四十亿年前，地球如何诞生第一个生命？](http://www.daogukj.com/6808681)
+- [毛不易如何公关才能应对这次的「婚礼致辞」事件？](http://www.daogukj.com/8913120)
+- [15个中央巡视组组长公布](http://www.daogukj.com/8931072)
+- [菲尔兹奖得主邓煜评论 AI 公司「你不能只在你蒸馏全人类的知识时支持蒸馏」，如何看待模型厂的反蒸馏？](http://www.play.hengshemaoyi.cn/kongbu/7589325.htm)
+- [5秒10枪4死1重伤，顶级射手实力有多恐怖？ | 漫谈《枪王》【02】](http://www.movie.hkepx.cn/xiju/2847418.htm)
+- [县委书记拒绝张雪为家乡特产打广告，说插播广告会很烦，这番言论为何能出圈？麻阳红糖、冰糖橙产业现状如何？](http://www.daogukj.com/nrrtwuij/)
+- [维修报价需要3000，回收报价700，转身修好卖5000。](http://www.play.hengshemaoyi.cn/xiju/6323404.htm)
+- [外交部：中方尊重巴西人民的选择](http://www.daogukj.com/emrfuprm/)
+- [武契奇承认败选](http://www.movie.hkepx.cn/movie/7899876.htm)
+- [广西通报地头水柜多只猴子溺亡，系猴群饮水不慎溺亡，目前调查处理进展如何？为什么会出现这种情况？](http://www.movie.hkepx.cn/xiju/7135879.htm)
 - [被张雪扔下水县委书记拿到大结果](http://www.daogukj.com/obfbkvuj/)
-- [【阴阳师同人动画】爱，创作和人类](http://www.movie.hkepx.cn/xiju/2876935.htm)
-- [王兴兴两次认错 宇树暴涨1100亿](http://www.movie.hkepx.cn/xiju/8438607.htm)
-- [速冻的天气，适合吃什么？](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
-- [网友说「桂花香是一种非牛顿流体」，越用力闻气味越淡，越不用力闻气味越浓，这种说法有道理吗？](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
-- [用党的创新理论凝心铸魂](http://www.daogukj.com/8210319)
-- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
-- [武契奇承认败选](http://www.movie.hkepx.cn/xiju/1710411.htm)
-- [多项重大水利工程取得重要进展](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
-- [富士康曝苹果为保供放宽质检标准](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
+- [租客不辞而别 留下字条和277块现金](http://www.movie.hkepx.cn/xiju/2876935.htm)
+- [来自ON的神钩一锤定音](http://www.movie.hkepx.cn/xiju/8438607.htm)
+- [台湾艺人阿雅公开表态“一个中国”](http://www.play.hengshemaoyi.cn/kongbu/3468324.htm)
+- [红灯变绿后，为什么总有前车要愣两三秒才起步？](http://www.play.hengshemaoyi.cn/kongbu/4037608.htm)
+- [外媒聚焦二十届五中全会](http://www.daogukj.com/8210319)
+- [如何看待老干妈回应「用AI把600名工人裁到48人」，称是不实信息？品牌能挽回消费者信任吗？](http://www.play.hengshemaoyi.cn/xiju/5909323.htm)
+- [新款iPadmini发布](http://www.movie.hkepx.cn/xiju/1710411.htm)
+- [“看不见的外贸”畅跑全球](http://www.play.hengshemaoyi.cn/kongbu/9601381.htm)
+- [后会友期 臭鱼烂虾爱看的节目](http://www.play.hengshemaoyi.cn/xiju/4659714.htm)
 
 </details>
 
 ## 原始来源
 
-- [奥迪中国四环标和字母标正式分家](https://www.toutiao.com/trending/7700924549612719654/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227700924549612719654%22%2C%22hot_board_impr_id%22%3A%2220261026222638EB225B5E6A9EE5B5A785%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [如何看待郑州马拉松一男子系绳带 9 岁儿童跑全马被禁赛三年？儿童跑马拉松有哪些健康风险？](https://www.zhihu.com/question/2097127599608804818)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c6c74e7f7a04ad40bc07 -->
+<!-- content-fingerprint: 5e63ce3f5965b36ae68b -->
