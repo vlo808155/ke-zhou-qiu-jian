@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 交旅融合绘就出行新图景
+# 曝国产 TOP5 厂商将集体入局阔直板手机，这一形态会成为未来主流吗？
 
-> 来源：今日头条热榜 · 排名：第 9 位 · 热度：61783131 · 更新：2026-10-28T13:28:14+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：184 万热度 · 分类：问答 · 更新：2026-10-28T19:34:44+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“交旅融合绘就出行新图景”位列第 9 位，公开热度指标为 61783131。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“曝国产 TOP5 厂商将集体入局阔直板手机，这一形态会成为未来主流吗？”位列第 9 位，公开热度指标为 184 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：锋潮评测 今年，手机的新趋势不是什么大屏小屏，也不是什么曲面屏和直屏。 而是「阔」屏。 直板机都在布局阔直板，折叠屏也在做阔比例折叠。 首个吃到阔比例手机红利的华为，已经在 Pura X Max 和 Pura X View 上狠狠赚了一笔。 两个系列的机子，加起来卖了将近 170 万台。 这啥概念呐…Pura X View 起售价七千多，X Max 更是万元机。 掐起小手一算，那好多个零了… 眼看着华为赚了钱，其他国产手机自然也是纷纷跟上。 根据数码闲聊站最新的爆料，明年，国产厂商 TOP 5 的品牌，全部都会发布阔直板手机。 其中， 接下来是 这还没完
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [如何看待姆巴佩发布道歉声明之后，央视总台表态希望相关方吸取教训、痛改前非，同时提出听其言更观其行？](nan-yuan-bei-zhe.md)
-- [刚用四天iPhone Duo，喀嚓一声炸屏了](mai-du-huan-zhu.md)
-- [博索纳罗及其子女已飞往美国](ye-gong-hao-long.md)
-- [姆巴佩三个月前曾强硬回击种族歧视](lan-yu-chong-shu.md)
+- [仿生人会梦见什么羊？](nan-yuan-bei-zhe.md)
+- [华为Mate90 全球首款四卡三待手机](mai-du-huan-zhu.md)
+- [白玉兰班底](ye-gong-hao-long.md)
+- [中方强烈要求美国立即停止封锁古巴](lan-yu-chong-shu.md)
 
 ## 站内推荐
 
-- [我国产业结构向新向优向好升级](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [国台办：越来越多台湾渔产品走入大陆](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [长期吃素能“排毒”？假的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [光明日报：不容侮辱中国已故伟大领袖](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [邱世卿谈在台喊“我是中国人”遭网暴](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [我国工业结构向新向优向好](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [海信回应与皇马合作，称与皇马的赞助区域仅限西班牙地区，这样就能撇清关系吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [如何看待越来越多青年教师「付费上班」，有人完不成考核自费50万充横向经费，发论文自费找润色、报统计班？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [媒体呼吁「医疗真人秀叫停」，《offer 8》会被整改或停播吗？节目对医患信任的真实影响到底有多严重？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [领导叫我走人不用来上班了，我录音了，然后我走了，领导这算违法辞退吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [西游记，那个冒充乌鸡国王的妖怪，有何目的，不贪财也不图色？](http://www.daogukj.com/dzgfjkrf/)
-- [抄作业的人天亮了](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
-- [矢志不渝为人民](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
-- [对中国34个省的刻板印象](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
-- [“人人都会变老 为什么要嘲笑老登”](http://www.daogukj.com/3970663)
-- [中国有哪些奇葩的火车站？](http://www.movie.hkepx.cn/movie/5367817.htm)
-- [如何看待姆巴佩发布道歉声明之后，央视总台表态希望相关方吸取教训、痛改前非，同时提出听其言更观其行？](http://www.daogukj.com/bcavubqj/)
-- [皇马官方：姆巴佩仅代表个人](http://www.daogukj.com/8795484)
-- [长征路上的半条被子](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
-- [健身两年多，完全没有效果，是什么原因？](http://www.movie.hkepx.cn/xiju/9388208.htm)
-- [国台办回应蔡康永发文](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
-- [嫁金钗](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
-- [假如眼镜王蛇和金环蛇互咬，它们会被对方的毒毒死吗？](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
-- [皇马称姆巴佩言论仅代表个人](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
-- [知名八宝粥品牌原来是个“煤老板”](http://www.daogukj.com/3703920)
-- [胎盘是如何照顾胎儿的-山东方言](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
-- [停车61分钟 凭什么按2小时收费](http://www.daogukj.com/akojpuxw/)
-- [被人买凶杀死的自媒体人徽剑【热点详解01】](http://www.movie.hkepx.cn/movie/0307482.htm)
-- [在当今技术下，24小时内用AI克隆一款完整游戏并抢先上架Steam，这种“像素级截胡”真能实现吗？](http://www.movie.hkepx.cn/xiju/4985219.htm)
-- [刚用四天iPhone Duo，喀嚓一声炸屏了](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
-- [中新网评姆巴佩事件](http://www.daogukj.com/sqbgfepf/)
-- [姆巴佩担任形象大使的品牌股价下跌](http://www.daogukj.com/0772573)
-- [疯狂十六强，启动！](http://www.daogukj.com/iaiklsqf/)
-- [身家1270亿 中国新晋女首富诞生](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
-- [人民日报评姆巴佩“翻车”](http://www.daogukj.com/iejdmdav/)
-- [国考资格过审后记得确认](http://www.daogukj.com/3595629)
-- [固态硬盘渠道价大面积下跌：创今年最大跌幅｜显卡日报10月28日](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
-- [刘涛不是第一个被他揩油的女明星了](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
-- [国台办：祖国统一的历史大势不可阻挡](http://www.daogukj.com/7736560)
-- [【捉迷躲猫王】😱太阴了躲在粪坑下面？？大哥你无敌了啊？！废弃监狱超高难度捉迷藏~！](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
-- [燃油车的未来在哪里](http://www.daogukj.com/9580900)
-- [秦始皇之死：真的是求长生不老，害了他吗？](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
-- [《影之刃零》动捕录制时长超1000小时，甄子丹武术指导团队参与，这款游戏真的需要这么「奢侈」的制作吗？](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
-- [永远和你在一起](http://www.daogukj.com/lsbolopb/)
-- [姆巴佩三个月前曾强硬回击种族歧视](http://www.daogukj.com/ssuxjwef/)
-- [姆巴佩发表涉华不当言论！全网封杀！没有中国市场，姆巴佩会失去什么？](http://www.daogukj.com/ukxzmdih/)
-- [经常跑步会把血管“跑坏”？误区](http://www.movie.hkepx.cn/movie/0461195.htm)
-- [iG vs HLE小曲《剩饭没有鸡蛋》](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
-- [令人心动的offer8](http://www.movie.hkepx.cn/movie/9527500.htm)
-- [⚡赵本山，乡村爱情的《波西米亚狂想曲》⚡【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
-- [苹果折叠机让黄牛亏到没裤子](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
-- [《明日方舟：终末地》版本情报 | 危机合约浸蓝测试作战PV与「丹青渡」更新](http://www.daogukj.com/hvfyixhj/)
-- [宾客到场了 婚礼舞台还未完工](http://www.movie.hkepx.cn/movie/4719114.htm)
-- [东契奇复制粘贴式三分](http://www.daogukj.com/jollzwuo/)
-- [儿科医生：想让孩子多长个先控糖](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
-- [领导叫我走人不用来上班了，我录音了，然后我走了，领导这算违法辞退吗？](http://www.movie.hkepx.cn/movie/4200387.htm)
-- [国台办：越来越多台湾渔产品走入大陆](http://www.movie.hkepx.cn/xiju/0668299.htm)
-- [长期吃素能“排毒”？假的](http://www.movie.hkepx.cn/xiju/2277955.htm)
-- [皇马社媒连续发布姆巴佩进球视频](http://www.daogukj.com/7974348)
-- [如何看待极客湾最新视频《旗舰手机芯片大横评》？](http://www.movie.hkepx.cn/xiju/6045140.htm)
+- [一瞬成刃【听伊莫不emo 02】](http://www.daogukj.com/dzgfjkrf/)
+- [华人女子疑依ChatGPT方案停药后猝死](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
+- [坚持用严明的纪律管全党治全党](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
+- [全网点赞“因你而美”的女孩找到了](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
+- [东北八大怪之大缸小缸腌酸菜](http://www.daogukj.com/3970663)
+- [旗舰手机芯片大横评：苹果高通发哥玄戒谁最强？](http://www.movie.hkepx.cn/movie/5367817.htm)
+- [仿生人会梦见什么羊？](http://www.daogukj.com/bcavubqj/)
+- [金价暴跌女子一天两跑郑州买金](http://www.daogukj.com/8795484)
+- [新服务激活田野里的新质生产力](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
+- [万万没想到！下完雨的小塘藏着这么大的货](http://www.movie.hkepx.cn/xiju/9388208.htm)
+- [国台办回应特朗普称没人在乎台海问题](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
+- [中国发现三颗“本不该存在”的行星](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
+- [深陷女主脸模争议！湮灭之潮究竟改了多少内容？](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
+- [如何看待 Anthropic 将「封号」写进 IPO 招股书，表明违规用户贡献了 5%～7% 的营收？](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
+- [人民日报：这部日剧公然挑战人类良知](http://www.daogukj.com/3703920)
+- [耻辱淘汰！万字复盘LPL一号种子AL16强回家全过程！](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
+- [15名机关干部“卧底”送外卖](http://www.daogukj.com/akojpuxw/)
+- [爸爸去哪儿 x Counting Stars](http://www.movie.hkepx.cn/movie/0307482.htm)
+- [为啥日本料理的量那么感人呢？](http://www.movie.hkepx.cn/xiju/4985219.htm)
+- [华为Mate90 全球首款四卡三待手机](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
+- [刘延东遗像](http://www.daogukj.com/sqbgfepf/)
+- [诈骗犯因再次怀孕继续监外执行](http://www.daogukj.com/0772573)
+- [中小学秋假怎么放？注意这些误区](http://www.daogukj.com/iaiklsqf/)
+- [法国足协回应姆巴佩事件](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
+- [刘延东逝世](http://www.daogukj.com/iejdmdav/)
+- [网传红果短剧预测营收超 400 亿，红果短剧已辟谣，如何评价其发展势头？](http://www.daogukj.com/3595629)
+- [女子朋友圈招工摘毛豆来了200多人](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
+- [张铭恩解释女友下跪](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
+- [很多年轻人「对工作的容忍度只有两年」，这反映出怎样的职场心态？](http://www.daogukj.com/7736560)
+- [篡改答案 150人参加考试149人通过](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
+- [央视确认收到皇马道歉函](http://www.daogukj.com/9580900)
+- [31岁女生按ChatGPT指示减药后去世](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
+- [AL十六强单曲《游过太平洋》](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
+- [央媒称不认可皇马表态，此前皇马称姆巴佩仅代表个人，俱乐部和中国赞助商合作照常，皇马为何敢如此「傲慢」？](http://www.daogukj.com/lsbolopb/)
+- [中方强烈要求美国立即停止封锁古巴](http://www.daogukj.com/ssuxjwef/)
+- [特朗普为了中期大选真拼了](http://www.daogukj.com/ukxzmdih/)
+- [华为](http://www.movie.hkepx.cn/movie/0461195.htm)
+- [沙漠海鲜又上新了](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
+- [刘延东同志逝世](http://www.movie.hkepx.cn/movie/9527500.htm)
+- [男子借助AI买彩票中508万](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
+- [石刻头像归国 千年文物再续守望](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
+- [自媒体称澳大利亚每年花费巨额从中国进口屎壳郎，这是真吗？中国的屎壳郎真的如此兢兢业业、不挑食吗？](http://www.daogukj.com/hvfyixhj/)
+- [皇马道歉是迫于形势还是发自真心](http://www.movie.hkepx.cn/movie/4719114.htm)
+- [西班牙高铁相撞事故已造成 50 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？](http://www.daogukj.com/jollzwuo/)
+- [做了一个错误的决定： 信了贵州辣卤不辣！](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
+- [小伙邀网友喝喜酒近500人到场](http://www.movie.hkepx.cn/movie/4200387.htm)
+- [海信回应与皇马合作，称与皇马的赞助区域仅限西班牙地区，这样就能撇清关系吗？](http://www.movie.hkepx.cn/xiju/0668299.htm)
+- [如何看待越来越多青年教师「付费上班」，有人完不成考核自费50万充横向经费，发论文自费找润色、报统计班？](http://www.movie.hkepx.cn/xiju/2277955.htm)
+- [剑来预告](http://www.daogukj.com/7974348)
+- [【2026王者荣耀共创之夜】晚会完整回放](http://www.movie.hkepx.cn/xiju/6045140.htm)
 
 </details>
 
 ## 原始来源
 
-- [交旅融合绘就出行新图景](https://www.toutiao.com/article/7701327901446177343)
+- [曝国产 TOP5 厂商将集体入局阔直板手机，这一形态会成为未来主流吗？](https://www.zhihu.com/question/2098187701409297325)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e95373a7f30aa65b0cad -->
+<!-- content-fingerprint: 92ab77d2d3b85ec01981 -->
