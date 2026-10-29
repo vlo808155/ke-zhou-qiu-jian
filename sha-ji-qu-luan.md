@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 美联储宣布维持利率不变
+# 怎样看待上海一小区多名幼童裸体在公共区域跑动，妈妈称管不住？父母这种「不作为」需要承担法律责任吗？
 
-> 来源：百度热搜 · 排名：第 12 位 · 热度：6659217 · 更新：2026-10-29T09:26:17+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：192 万热度 · 分类：问答 · 更新：2026-10-29T15:38:19+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“美联储宣布维持利率不变”位列第 12 位，公开热度指标为 6659217。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“怎样看待上海一小区多名幼童裸体在公共区域跑动，妈妈称管不住？父母这种「不作为」需要承担法律责任吗？”位列第 12 位，公开热度指标为 192 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间10月28日，美联储宣布将联邦基金利率目标区间维持在3.75%至4%不变，投票结果10:2，2名官员主张加息。此前9月16日，因通胀压力升高美联储曾加息25个基点。
+来源公开摘要显示：近日，有网友爆料称，上海闵行区一小区内，一租户家中的多名幼童，几乎天天赤身裸体在小区及楼道内跑动。 10月27日，潮新闻记者联系到该小区住户刘先生，他表示上周日（10月25日）自己亲眼见到该状况后选择了报警，此后民警反复上门劝告该租户。此事，记者在另一位住户处也得到了证实。 27日下午，该小区物业的工作人员向记者表示，警方已经介入处理，具体情况不是很了解，因为物业也没有权利管这事。随后，记者从社区民警处了解到，经过努力协调，“这家租户已经搬走了。” 幼童不穿衣服在小区跑来跑去。受访者提供 搬进五六天，幼童天天裸身在小区跑 “上周，他们刚搬来，之后开始每天
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [三丽鸥将与抹黑中国日剧再次联名](yin-zhen-zhi-ke.md)
-- [算力网加速织就 八大枢纽各展所长](ke-zhou-qiu-jian.md)
-- [为什么男性会保留乳头？是不是基因偷懒不想另起炉灶和留条可能性后路？](yan-er-dao-ling.md)
-- [永远和你在一起](nan-yuan-bei-zhe.md)
+- [闪身步躲子弹，胡萝卜救壮汉！《兰香如故》像的不止《知否》](yin-zhen-zhi-ke.md)
+- [探寻“中国之治”的成功密码](ke-zhou-qiu-jian.md)
+- [王子铭兴奋剂违规禁赛2年](yan-er-dao-ling.md)
+- [前三季度我国海洋生产总值增长4.9%](nan-yuan-bei-zhe.md)
 
 ## 站内推荐
 
-- [西班牙高铁相撞事故已造成 68 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [距离IG上次进入淘汰赛已经过了七年](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [历史见证田头“割麦证”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [华为“天才少年”杨玉雯加盟南京大学](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [西班牙高铁相撞致68死 关键录音曝光](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [如何评价武侠动作游戏《影之刃零》，它到底好不好玩？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [如何评价亚马逊前华人女工程师疑似按照ChatGPT的建议自行减少抗癫痫药物后猝死这一事件？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [华为制药军团表态，其公司定位是医药行业的AI赋能者，而不是跟大家抢着做药，意味着什么？背后有哪些考量？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [为什么在00后眼里，90后就已经是“老登”了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [美联储宣布维持基准利率不变，背后的核心考量是什么？对市场将产生哪些影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何评价秦朔发文《可怕的红果与中国互联网的字节时间》？](http://www.movie.hkepx.cn/movie/8955570.htm)
-- [美国各界热议「要不要对中国车开放」，若放宽准入会对美本土汽车产业带来哪些冲击？](http://www.daogukj.com/krvvnboj/)
-- [机器人保姆预计三年内走进日常生活](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
-- [永远和你在一起](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
-- [【究极佐菲格斗】第五集 危险的雄狮！佐菲机器人 雷欧 泰罗 超兽黑鸽子 黑暗星人巴巴尔 登场](http://www.movie.hkepx.cn/movie/1401219.htm)
-- [多地以旧换新上新 最高补贴2000元](http://www.movie.hkepx.cn/movie/1801460.htm)
-- [西班牙高铁相撞事故已造成 68 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
-- [西媒就姆巴佩闯下大祸算了笔账](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
-- [24岁海归医学博士不会打方结](http://www.movie.hkepx.cn/xiju/0216852.htm)
-- [如果鸡能长到100千克重，那人是不是就有巨大的鸡翅可以吃了？](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
-- [云南小伙结婚数千网友赶来撑场面](http://www.daogukj.com/3303781)
-- [妈妈称男孩1米75没法见人](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
-- [唱哭薛之谦的贵州小伙被签约](http://www.movie.hkepx.cn/movie/5835677.htm)
-- [首部AI院线电影《三星堆：未来往事》票房遇冷，上映前博纳三连板，AI电影的故事到底还能不能讲下去？](http://www.daogukj.com/6841256)
-- [皇马道歉完还须补课](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
-- [县城居民也开始抛弃油车了吗](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
-- [鲸鲸，跑起来吧](http://www.daogukj.com/8289580)
-- [华为“天才少年”杨玉雯加盟南京大学](http://www.daogukj.com/ketbkhri/)
-- [云南腾冲据传一辣椒厂发生火灾致全城人咳嗽，具体情况如何？对环境和居民健康有何影响？后续责任如何判定？](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
-- [iG时隔2565天晋级淘汰赛](http://www.movie.hkepx.cn/movie/9768501.htm)
-- [Hello Kitty深夜致歉](http://www.movie.hkepx.cn/xiju/6011810.htm)
-- [⚡《新 三 国 FUNK》⚡](http://www.movie.hkepx.cn/xiju/6600784.htm)
-- [西班牙高铁相撞致68死 关键录音曝光](http://www.movie.hkepx.cn/xiju/0855885.htm)
-- [百家中资网贷出海印度亏损 70 亿退场，导致这一溃败的核心原因是什么？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
-- [小时候做过的那些事...（第7~12集）](http://www.daogukj.com/vnsrnwfs/)
-- [姆巴佩恐面临天文数字赔偿](http://www.movie.hkepx.cn/movie/9967199.htm)
-- [中国“智造家”加速出海](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
-- [德国与日本将加强军事合作](http://www.movie.hkepx.cn/movie/6293448.htm)
-- [如果现代考古不再主动发掘帝王大墓，长远来看，是保护了历史，还是丢失了解读文明的机会？](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
-- [可观测宇宙最可爱的古风大肥鱼](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
-- [全面从严治党为世界提供重要借鉴](http://www.play.hengshemaoyi.cn/xiju/0952353.htm)
-- [乔布斯嘲讽的触屏笔记本苹果真出了](http://www.movie.hkepx.cn/movie/5654110.htm)
-- [找准发展新质生产力的着力点](http://www.play.hengshemaoyi.cn/kongbu/6410086.htm)
-- [贴脸特写，是每个野生动物摄影师的必备技能！](http://www.daogukj.com/8061636)
-- [小天才手表封闭社交引争议，不买真会被孤立吗？如何看待这种现象？](http://www.movie.hkepx.cn/xiju/3678798.htm)
-- [电视剧铁证](http://www.daogukj.com/4240143)
-- [火车票供需矛盾为何长期存在？](http://www.movie.hkepx.cn/xiju/6821618.htm)
-- [第140届广交会第二期圆满收官](http://www.movie.hkepx.cn/xiju/6143707.htm)
-- [张本智和止步蒙彼利埃站首轮](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
-- [长鑫科技已被纳入上证综指和上证科创综指，均位列第一大权重股，其股价波动会给指数带来多大影响？](http://www.daogukj.com/ipksuuvb/)
-- [IG时隔2565天再次晋级8强](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
-- [offer8大家都以为是芒果的综艺](http://www.movie.hkepx.cn/xiju/1798043.htm)
-- [多所高校工资绕开银行卡意味着什么](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
-- [成都马拉松两名配速员赛中违规换装被取消成绩和禁赛，免费装备为何有如此吸引力让跑者「以身试法」？](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
-- [吴绮莉否认成龙给女儿提供经济资助](http://www.movie.hkepx.cn/xiju/0765053.htm)
-- [「新鲜出炉」特别节目｜为你解答寻迹测试新内容](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
-- [新一轮冷空气将登场](http://www.movie.hkepx.cn/xiju/3626228.htm)
-- [香氛 年轻人的“情绪搭子”](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
-- [特朗普为了中期大选真拼了](http://www.movie.hkepx.cn/xiju/4004417.htm)
-- [张智霖佛山演唱会现场认亲戚](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
+- [中学小卖部只卖牛奶和水家长发声](http://www.movie.hkepx.cn/movie/8955570.htm)
+- [如何理解梁文锋「在颠覆性的技术面前，闭源形成的护城河是短暂的」这一判断？](http://www.daogukj.com/krvvnboj/)
+- [三丽鸥道歉敷衍了事](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
+- [前三季度我国海洋生产总值增长4.9%](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
+- [辽宁舰编队遭日方滋扰挑衅直面应对](http://www.movie.hkepx.cn/movie/1401219.htm)
+- [科普书出现「双头虾」图片，出版社称正在下架召回，为何出现如此明显错误？科普类出版该限制 AI 配图吗？](http://www.movie.hkepx.cn/movie/1801460.htm)
+- [如何评价武侠动作游戏《影之刃零》，它到底好不好玩？](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
+- [中学小卖部只卖牛奶和水](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
+- [奶奶的皱纹里，藏着我一生的甜与暖](http://www.movie.hkepx.cn/xiju/0216852.htm)
+- [乌干达军方宣布食人魔落网](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
+- [特斯拉人形机器人第一份工作是插枪](http://www.daogukj.com/3303781)
+- [为什么男性会保留乳头？是不是基因偷懒不想另起炉灶和留条可能性后路？](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
+- [商务部回应“美将中企列入实体清单”](http://www.movie.hkepx.cn/movie/5835677.htm)
+- [男子疑女友出轨制听话水被拘役4个月](http://www.daogukj.com/6841256)
+- [Anthropic 宣布「编程面试已死」，程序员靠什么证明自己？](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
+- [奥斯卡：我深知要尊重中国人](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
+- [对视野理解的最好诠释！！！](http://www.daogukj.com/8289580)
+- [为什么在00后眼里，90后就已经是“老登”了？](http://www.daogukj.com/ketbkhri/)
+- [iPhoneDuo国内首销销量曝光](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
+- [王子铭兴奋剂检测阳性](http://www.movie.hkepx.cn/movie/9768501.htm)
+- [姆巴佩的“天价”账单才刚刚开始](http://www.movie.hkepx.cn/xiju/6011810.htm)
+- [母亲照顾截瘫儿子35年出奇迹](http://www.movie.hkepx.cn/xiju/6600784.htm)
+- [美联储宣布维持基准利率不变，背后的核心考量是什么？对市场将产生哪些影响？](http://www.movie.hkepx.cn/xiju/0855885.htm)
+- [皇马拒绝西甲对姆巴佩事件的帮助，有皇马高管甚至在看笑话，双方关系为何如此紧张？这场风波会加剧矛盾吗？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
+- [5万买的金镯未佩戴已亏1.3万](http://www.daogukj.com/vnsrnwfs/)
+- [嫁金钗优酷断更3天](http://www.movie.hkepx.cn/movie/9967199.htm)
+- [三丽鸥终止与抹黑中国的日剧《VIVANT》联名并致歉，网友称其未正面回应历史争议，如何看待这份声明？](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
+- [永远和你在一起](http://www.movie.hkepx.cn/movie/6293448.htm)
+- [拉拜诗](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
+- [德国总统抵京 国宾摩托车护送](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
+- [坚持党的领导 加强党的建设](http://www.play.hengshemaoyi.cn/xiju/0952353.htm)
+- [成都马拉松两名配速员赛中违规换装被取消成绩和禁赛，免费装备为何有如此吸引力让跑者「以身试法」？](http://www.movie.hkepx.cn/movie/5654110.htm)
+- [向“新”而行 以“质”争先](http://www.play.hengshemaoyi.cn/kongbu/6410086.htm)
+- [【2026全球总决赛】10月29日 LYON vs IG](http://www.daogukj.com/8061636)
+- [淘宝](http://www.movie.hkepx.cn/xiju/3678798.htm)
+- [鲸鲸，跑起来吧](http://www.daogukj.com/4240143)
+- [机构称A股科技正是布局期](http://www.movie.hkepx.cn/xiju/6821618.htm)
+- [我国农产品全面提质路线图来了](http://www.movie.hkepx.cn/xiju/6143707.htm)
+- [喝可乐不打嗝小游戏~](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
+- [外交部回应三丽鸥取消Vivant联名](http://www.daogukj.com/ipksuuvb/)
+- [你还会买三丽鸥吗](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
+- [⚡赵本山《Smooth Criminal（犯罪高手）》⚡现场版【AI MV大赛】](http://www.movie.hkepx.cn/xiju/1798043.htm)
+- [男子钓鱼时被58斤大青鱼拽入池塘](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
+- [薅羊毛](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
+- [乌干达吃掉38人的“食人魔”落网](http://www.movie.hkepx.cn/xiju/0765053.htm)
+- [【小黄人与大怪兽】小黄人逐梦演艺圈！](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
+- [网友参加小小徐婚礼还捐路灯](http://www.movie.hkepx.cn/xiju/3626228.htm)
+- [美媒称巴基斯坦已对中国台湾地区航空公司关闭领空，是全球首个采取该措施的国家，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
+- [男子造谣餐馆因顾客系外籍免单被拘](http://www.movie.hkepx.cn/xiju/4004417.htm)
+- [别在家堆纸箱杂物了](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
 
 </details>
 
 ## 原始来源
 
-- [美联储宣布维持利率不变](https://www.baidu.com/s?wd=%E7%BE%8E%E8%81%94%E5%82%A8%E5%AE%A3%E5%B8%83%E7%BB%B4%E6%8C%81%E5%88%A9%E7%8E%87%E4%B8%8D%E5%8F%98&sa=fyb_news&rsv_dl=fyb_news)
+- [怎样看待上海一小区多名幼童裸体在公共区域跑动，妈妈称管不住？父母这种「不作为」需要承担法律责任吗？](https://www.zhihu.com/question/2098856386176054045)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d7c7be7b749f769e8744 -->
+<!-- content-fingerprint: 309deb1be0eff5a88e35 -->

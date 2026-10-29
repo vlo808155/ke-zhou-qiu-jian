@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 妈妈称男孩1米75没法见人
+# 为什么男性会保留乳头？是不是基因偷懒不想另起炉灶和留条可能性后路？
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6755876 · 更新：2026-10-29T09:26:17+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：195 万热度 · 分类：问答 · 更新：2026-10-29T15:38:19+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“妈妈称男孩1米75没法见人”位列第 11 位，公开热度指标为 6755876。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么男性会保留乳头？是不是基因偷懒不想另起炉灶和留条可能性后路？”位列第 11 位，公开热度指标为 195 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：郑州一位妈妈对儿子的预测成年身高1米75不满意，认为“无法见人”，要求必须治到1米8，否则将来找工作和找对象都吃亏。
+来源公开摘要显示：个人有几个疑惑: 1.是不是所有哺乳动物雄性都有乳头。 2为什么留下来乳头。 3.男人和其他雄性哺乳动物乳头究竟有没有实用功能？ 4.未来预留究竟有没有再演变可能性还是纯粹废物没有再变发育可能性。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [女子欠1700元被限高公开照片](chao-san-mu-si.md)
-- [吴绮莉否认成龙给女儿提供经济资助](dui-niu-tan-qin.md)
-- [如何评价秦朔发文《可怕的红果与中国互联网的字节时间》？](mang-ren-mo-xiang.md)
-- [选举时：誓死不离巴西 选输了：人在美国刚下飞机](yuan-mu-qiu-yu.md)
+- [武林外传续集：第八十五回 白展堂偷懒遭算计 穿越人两世解死局【[AI全民制作人】](chao-san-mu-si.md)
+- [乌干达吃掉38人的“食人魔”落网](dui-niu-tan-qin.md)
+- [中学小卖部只卖牛奶和水家长发声](mang-ren-mo-xiang.md)
+- [已故演员高秀敏被印上祭祀用品](yuan-mu-qiu-yu.md)
 
 ## 站内推荐
 
-- [S16 瑞士轮 iG 2:1 击败 LYON，时隔 2565 天重新闯进淘汰赛，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [多地以旧换新上新 最高补贴2000元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [多所高校内出现这种“小房子”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [皇马道歉完还须补课](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [乔布斯嘲讽的触屏笔记本苹果真出了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [姆巴佩恐面临天文数字赔偿，分析称潜在商业损失至少1亿美元，这是怎么算出来的？他会自此失去中国市场吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [科普书出现「双头虾」图片，出版社称正在下架召回，为何出现如此明显错误？科普类出版该限制 AI 配图吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [厂里为了降成本把计件单价压低了，结果老员工走了，新员工招不来，这烂摊子怎么收拾？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [Anthropic 宣布「编程面试已死」，程序员靠什么证明自己？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [成都马拉松两名配速员赛中违规换装被取消成绩和禁赛，免费装备为何有如此吸引力让跑者「以身试法」？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [张雪现身重庆大学校招，承诺「大部分员工入职一年后涨薪 20% 」，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
-- [厉娜怒吼许飞我所有的经济损失呢](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
-- [香氛 年轻人的“情绪搭子”](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
-- [小天才手表封闭社交引争议，不买真会被孤立吗？如何看待这种现象？](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
-- [西班牙高铁事故关键录音曝光](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
-- [中国“智造家”加速出海](http://www.movie.hkepx.cn/xiju/2772866.htm)
-- [贴脸特写，是每个野生动物摄影师的必备技能！](http://www.movie.hkepx.cn/movie/8157133.htm)
-- [海信称与姆巴佩无商业合作](http://www.movie.hkepx.cn/movie/3703338.htm)
-- [⚡《新 三 国 FUNK》⚡](http://www.movie.hkepx.cn/xiju/3368241.htm)
-- [为什么男性会保留乳头？是不是基因偷懒不想另起炉灶和留条可能性后路？](http://www.movie.hkepx.cn/movie/9040401.htm)
-- [管泽元说TheShy太关键了](http://www.movie.hkepx.cn/movie/7194765.htm)
-- [新一轮冷空气将登场](http://www.movie.hkepx.cn/movie/6128990.htm)
-- [乔布斯嘲讽的触屏笔记本苹果真出了](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
-- [如果鸡能长到100千克重，那人是不是就有巨大的鸡翅可以吃了？](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
-- [原来演唱会门票是这样抢的](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
-- [西安150元美式烤肉自助，整块肉抱着爽吃！超级过瘾！](http://www.movie.hkepx.cn/movie/4858272.htm)
-- [现在的殡葬业都发展成这样了](http://www.daogukj.com/bfxepwya/)
-- [如果现代考古不再主动发掘帝王大墓，长远来看，是保护了历史，还是丢失了解读文明的机会？](http://www.movie.hkepx.cn/xiju/4024765.htm)
-- [云南小伙结婚数千网友赶来撑场面](http://www.movie.hkepx.cn/xiju/0737631.htm)
-- [距离IG上次进入淘汰赛已经过了七年](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
-- [“割麦证”驳斥“红军过境抢粮”](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
-- [长鑫科技已被纳入上证综指和上证科创综指，均位列第一大权重股，其股价波动会给指数带来多大影响？](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
-- [IG时隔2565天再次晋级8强](http://www.movie.hkepx.cn/xiju/7334347.htm)
-- [历史见证田头“割麦证”](http://www.daogukj.com/7849300)
-- [西班牙列车相撞已致68死](http://www.daogukj.com/aozagmkd/)
-- [女子欠1700元被限高公开照片](http://www.daogukj.com/ioafjlkc/)
-- [选举时：誓死不离巴西 选输了：人在美国刚下飞机](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
-- [iG时隔2565天晋级淘汰赛](http://www.movie.hkepx.cn/xiju/2137446.htm)
-- [第140届广交会第二期圆满收官](http://www.daogukj.com/0166884)
-- [曝天娱资源未向李宇春倾斜](http://www.movie.hkepx.cn/movie/0848231.htm)
-- [男子多次触摸女同事隐私部位被拘捕](http://www.daogukj.com/tckpumpu/)
-- [杀同学，杀朋友，杀网络喷子，英国未来女首相竟是个连环杀手？！《谜探路德维希》第二季 下](http://www.daogukj.com/0292547)
-- [“高盐刺客”就在你的餐桌上](http://www.daogukj.com/hejavvee/)
-- [当你穿进老钱班38](http://www.movie.hkepx.cn/xiju/2863382.htm)
-- [西班牙高铁相撞事故已造成 68 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
-- [如何看待谷歌推出Gemini 4 Carbon，在多个榜单拿下全球第一？](http://www.daogukj.com/gurgtiup/)
-- [三丽鸥将与抹黑中国日剧再次联名](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
-- [特朗普为了中期大选真拼了](http://www.daogukj.com/nlwlvqny/)
-- [疯狂十六强，启动！](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
-- [39岁中国籍老板在泰遭袭身亡](http://www.daogukj.com/4367144)
-- [鲸鲸，跑起来吧](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
-- [华为“天才少年”杨玉雯加盟南京大学](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
-- [IG战胜LYON晋级S16八强](http://www.movie.hkepx.cn/movie/3421929.htm)
-- [刘延东逝世](http://www.movie.hkepx.cn/xiju/7147911.htm)
-- [为什么都是汽车行业，外国汽车行业发展的时候，供应商过得挺好，国内汽车行业发展了，供应商变得这么难？](http://www.movie.hkepx.cn/xiju/5231443.htm)
-- [如何评价秦朔发文《可怕的红果与中国互联网的字节时间》？](http://www.daogukj.com/hwjpoycr/)
-- [吴绮莉否认成龙给女儿提供经济资助](http://www.movie.hkepx.cn/movie/7786575.htm)
-- [美国各界热议「要不要对中国车开放」，若放宽准入会对美本土汽车产业带来哪些冲击？](http://www.movie.hkepx.cn/movie/1630389.htm)
-- [巴基斯坦对台湾地区航司关闭领空](http://www.daogukj.com/ijajouly/)
-- [多所高校内出现这种“小房子”](http://www.daogukj.com/7130534)
+- [三丽鸥日本官网致歉](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
+- [我是艺术家，我陪你拍这个](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
+- [美媒称巴基斯坦已对中国台湾地区航空公司关闭领空，是全球首个采取该措施的国家，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
+- [淘宝](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
+- [A股收评：双创指数低开低走均跌超4%](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
+- [三丽鸥终止与抹黑中国的日剧《VIVANT》联名并致歉，网友称其未正面回应历史争议，如何看待这份声明？](http://www.movie.hkepx.cn/xiju/2772866.htm)
+- [【2026全球总决赛】10月29日 LYON vs IG](http://www.movie.hkepx.cn/movie/8157133.htm)
+- [露思の雷霆语言](http://www.movie.hkepx.cn/movie/3703338.htm)
+- [母亲照顾截瘫儿子35年出奇迹](http://www.movie.hkepx.cn/xiju/3368241.htm)
+- [王子铭兴奋剂违规禁赛2年](http://www.movie.hkepx.cn/movie/9040401.htm)
+- [强子刚来啊，等你二十年了【AI MV大赛】](http://www.movie.hkepx.cn/movie/7194765.htm)
+- [网友参加小小徐婚礼还捐路灯](http://www.movie.hkepx.cn/movie/6128990.htm)
+- [成都马拉松两名配速员赛中违规换装被取消成绩和禁赛，免费装备为何有如此吸引力让跑者「以身试法」？](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
+- [乌干达军方宣布食人魔落网](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
+- [三年之期已到，恭迎世一上归位！【第15集】](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
+- [HelloKitty的道歉未同步海外账号](http://www.movie.hkepx.cn/movie/4858272.htm)
+- [环大露认领，刘冲斗娜娜，众星躲娜扎……【近期红毯爆笑盘点】](http://www.daogukj.com/bfxepwya/)
+- [拉拜诗](http://www.movie.hkepx.cn/xiju/4024765.htm)
+- [特斯拉人形机器人第一份工作是插枪](http://www.movie.hkepx.cn/xiju/0737631.htm)
+- [如何评价亚马逊前华人女工程师疑似按照ChatGPT的建议自行减少抗癫痫药物后猝死这一事件？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
+- [3人编造哄抢农作物谣言被处罚](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
+- [外交部回应三丽鸥取消Vivant联名](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
+- [你还会买三丽鸥吗](http://www.movie.hkepx.cn/xiju/7334347.htm)
+- [华为制药军团表态，其公司定位是医药行业的AI赋能者，而不是跟大家抢着做药，意味着什么？背后有哪些考量？](http://www.daogukj.com/7849300)
+- [尹锡悦涉“内乱案”二审被求死刑](http://www.daogukj.com/aozagmkd/)
+- [武林外传续集：第八十五回 白展堂偷懒遭算计 穿越人两世解死局【[AI全民制作人】](http://www.daogukj.com/ioafjlkc/)
+- [已故演员高秀敏被印上祭祀用品](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
+- [王子铭兴奋剂检测阳性](http://www.movie.hkepx.cn/xiju/2137446.htm)
+- [我国农产品全面提质路线图来了](http://www.daogukj.com/0166884)
+- [如何看待2026年10月28日，比亚迪员工数突破102万人？](http://www.movie.hkepx.cn/movie/0848231.htm)
+- [老外想去赏秋被司机拉到商丘](http://www.daogukj.com/tckpumpu/)
+- [国内最长地铁环线全线开通](http://www.daogukj.com/0292547)
+- [西班牙高铁事故已致68死，相撞时车速超100公里/时，系人为失误，暴露什么问题？防撞系统为啥没起作用？](http://www.daogukj.com/hejavvee/)
+- [钓友钓58斤青鱼被拖入3米水中](http://www.movie.hkepx.cn/xiju/2863382.htm)
+- [如何评价武侠动作游戏《影之刃零》，它到底好不好玩？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
+- [医学生在大体老师骨骼上写轻浮文字](http://www.daogukj.com/gurgtiup/)
+- [闪身步躲子弹，胡萝卜救壮汉！《兰香如故》像的不止《知否》](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
+- [男子造谣餐馆因顾客系外籍免单被拘](http://www.daogukj.com/nlwlvqny/)
+- [27岁抗癌博主悦悦去世](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
+- [Hello Kitty母公司再致歉](http://www.daogukj.com/4367144)
+- [对视野理解的最好诠释！！！](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
+- [为什么在00后眼里，90后就已经是“老登”了？](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
+- [如何看待谷歌推出Gemini 4 Carbon，在多个榜单拿下全球第一？](http://www.movie.hkepx.cn/movie/3421929.htm)
+- [三丽鸥在日本官网发布致歉声明](http://www.movie.hkepx.cn/xiju/7147911.htm)
+- [27岁抗癌博主悦悦离世](http://www.movie.hkepx.cn/xiju/5231443.htm)
+- [中学小卖部只卖牛奶和水家长发声](http://www.daogukj.com/hwjpoycr/)
+- [乌干达吃掉38人的“食人魔”落网](http://www.movie.hkepx.cn/movie/7786575.htm)
+- [如何理解梁文锋「在颠覆性的技术面前，闭源形成的护城河是短暂的」这一判断？](http://www.movie.hkepx.cn/movie/1630389.htm)
+- [百家中资网贷出海印度亏损 70 亿退场，导致这一溃败的核心原因是什么？](http://www.daogukj.com/ijajouly/)
+- [厂里为了降成本把计件单价压低了，结果老员工走了，新员工招不来，这烂摊子怎么收拾？](http://www.daogukj.com/7130534)
 
 </details>
 
 ## 原始来源
 
-- [妈妈称男孩1米75没法见人](https://www.baidu.com/s?wd=%E5%A6%88%E5%A6%88%E7%A7%B0%E7%94%B7%E5%AD%A91%E7%B1%B375%E6%B2%A1%E6%B3%95%E8%A7%81%E4%BA%BA&sa=fyb_news&rsv_dl=fyb_news)
+- [为什么男性会保留乳头？是不是基因偷懒不想另起炉灶和留条可能性后路？](https://www.zhihu.com/question/2088034202138813741)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 28101f8d8409764bf14c -->
+<!-- content-fingerprint: fb005e505698c705f6d2 -->
