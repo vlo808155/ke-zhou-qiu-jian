@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# A股收评：双创指数低开低走均跌超4%
+# 邀全网喝喜酒小伙打工3年攒近17万
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6952549 · 更新：2026-10-29T15:38:19+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6946302 · 更新：2026-10-29T22:39:59+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“A股收评：双创指数低开低走均跌超4%”位列第 9 位，公开热度指标为 6952549。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“邀全网喝喜酒小伙打工3年攒近17万”位列第 9 位，公开热度指标为 6946302。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月29日，市场低开低走，深成指跌近3%，双创指数均跌超4%。沪深两市成交额1.56万亿，较上一个交易日缩量720亿。全市场超4700只个股下跌。
+来源公开摘要显示：近日，邀全网喝喜酒的云南小伙“小小徐”自述其出生于2002年，自己打工3年攒下167500元，期间曾在山东纺织厂工作，后赴浙江摆摊卖卤味、送快递，以此积攒办婚礼的费用。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [外交部回应三丽鸥取消Vivant联名](zi-xiang-mao-dun.md)
-- [母亲照顾截瘫儿子35年出奇迹](bei-gong-she-ying.md)
-- [华为制药军团表态，其公司定位是医药行业的AI赋能者，而不是跟大家抢着做药，意味着什么？背后有哪些考量？](jing-gong-zhi-niao.md)
+- [母亲照顾截瘫儿子35年出奇迹](zi-xiang-mao-dun.md)
+- [谷歌盘初大跌超13%](bei-gong-she-ying.md)
+- [周杰伦曾经的一年一张专辑的速度到底是个什么概念？](jing-gong-zhi-niao.md)
 - [我是艺术家，我陪你拍这个](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [中学小卖部只卖牛奶和水](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [你还会买三丽鸥吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [乌干达吃掉38人的“食人魔”落网](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [别在家堆纸箱杂物了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [女生崩溃大哭 陌生人不约而同守护](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [一条牛仔裤20万 克罗心还能撑多久](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [高秀敏被印上祭品 何庆魁愤怒发声](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [30万年轻人 排队求陌生人管住钱包](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [吃凉土豆蘸辣椒减肥 两个月减重22斤](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [比亚迪员工总数突破102万](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男子钓鱼时被58斤大青鱼拽入池塘](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [iPhoneDuo国内首销销量曝光](http://www.daogukj.com/axnomarx/)
-- [大金镯不香了吗](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [薅羊毛](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [露思の雷霆语言](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [钓友钓58斤大青鱼被拖入3米水中](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [Anthropic 宣布「编程面试已死」，程序员靠什么证明自己？](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [三丽鸥日本官网致歉](http://www.daogukj.com/9955752)
-- [坚持党的领导 加强党的建设](http://www.movie.hkepx.cn/movie/6160167.htm)
-- [【2026全球总决赛】10月29日 LYON vs IG](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [三丽鸥道歉敷衍了事](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [西班牙宣布全国哀悼3天](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [三丽鸥终止与抹黑中国的日剧《VIVANT》联名并致歉，网友称其未正面回应历史争议，如何看待这份声明？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [美联储宣布维持基准利率不变，背后的核心考量是什么？对市场将产生哪些影响？](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [我国农产品全面提质路线图来了](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [邀网友做客婚礼小伙：工作动力是女友](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [向“新”而行 以“质”争先](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [三丽鸥在日本官网发布致歉声明](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [三丽鸥致歉](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [男子疑女友出轨制听话水被拘役4个月](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [成都马拉松两名配速员赛中违规换装被取消成绩和禁赛，免费装备为何有如此吸引力让跑者「以身试法」？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [科普书出现「双头虾」图片，出版社称正在下架召回，为何出现如此明显错误？科普类出版该限制 AI 配图吗？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [德国总统抵京 国宾摩托车护送](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [如何评价亚马逊前华人女工程师疑似按照ChatGPT的建议自行减少抗癫痫药物后猝死这一事件？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [别在家堆纸箱杂物了](http://www.daogukj.com/2395514)
-- [27岁抗癌博主悦悦去世](http://www.daogukj.com/6574038)
-- [奶奶的皱纹里，藏着我一生的甜与暖](http://www.daogukj.com/ajcuxydy/)
-- [“未来中国优秀超市不会是胖东来”](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [女生崩溃大哭 陌生人不约而同守护](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [淘宝](http://www.daogukj.com/cfeqrkjc/)
-- [⚡《新 三 国 FUNK》⚡](http://www.daogukj.com/rkkegwyy/)
-- [你还会买三丽鸥吗](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [华为制药军团表态，其公司定位是医药行业的AI赋能者，而不是跟大家抢着做药，意味着什么？背后有哪些考量？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [5万买的金镯未佩戴已亏1.3万](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [母亲照顾截瘫儿子35年出奇迹](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [如何看待2026年10月28日，比亚迪员工数突破102万人？](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [前三季度我国海洋生产总值增长4.9%](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [双汇急需另一根火腿肠](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [比亚迪三季度业绩](http://www.daogukj.com/axnomarx/)
+- [10元快剪正暴打全国的“设计总监”](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [文吉儿上证据后王子璇失忆表现](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [六险二金十七薪，公司就是我的家。](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [尹锡悦庭审卖惨说总统太难做](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [大一新生将「大体老师」头骨当道具摆拍发朋友圈，如何看待此事？会带来哪些影响？](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [谁来管管小城良方编剧](http://www.daogukj.com/9955752)
+- [征途之上](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [《崩坏：星穹铁道》千星纪游PV：「有关星空的寓言集•其三」](http://www.movie.hkepx.cn/xiju/3768366.htm)
+- [姆巴佩翻车 西甲主席考虑来中国](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [国防部：台湾问题是中国人自己的事](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [如何评价AI短剧《大明,李景隆的别样人生》？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [如何评价苹果于10月29日发布售价22999起的触摸屏Macbook Pro？](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [百年大党何以永葆生机活力](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [已故演员高秀敏被印上祭祀用品](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [“三张桌子”看作风](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [养老金要崩盘？用三本账穿越认知迷雾](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [王腾感谢小米和雷总](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [校方回应锁定摆拍大体老师头骨学生](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [如何看待 iG 晋级八强后 Meiko 采访称「我觉得现在 iG 可以战胜任何一支队伍」？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [前巴西国脚奥斯卡发声称「为一些言论感到难过，希望更多外籍球员尊重中国」，这种认知差异该如何扭转？](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [国防部：日方挑动阵营对抗不得人心](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [华为制药军团表态，其公司定位是医药行业的AI赋能者，而不是跟大家抢着做药，意味着什么？背后有哪些考量？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [吃凉土豆蘸辣椒减肥 两个月减重22斤](http://www.daogukj.com/2395514)
+- [“树枝悟空”缔造者回应走红](http://www.daogukj.com/6574038)
+- [喝可乐不打嗝小游戏~](http://www.daogukj.com/ajcuxydy/)
+- [医保局公布住院人次第一的疾病](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [比亚迪员工总数突破102万](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [外交部回应三丽鸥取消Vivant联名](http://www.daogukj.com/cfeqrkjc/)
+- [《原神》米提亚角色PV——「小小伎俩」](http://www.daogukj.com/rkkegwyy/)
+- [高秀敏被印上祭品 何庆魁愤怒发声](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [周杰伦曾经的一年一张专辑的速度到底是个什么概念？](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [德国总统访华意味什么](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [谷歌盘初大跌超13%](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [如果「老登」们不买小鹏汽车了，这对他们是好事还是坏事？从瞄准年轻人受众的层面看，这波公关算成功吗？](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [跨越山海的开放活力](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
 - [热烈欢迎张伟丽！原来格斗世界冠军的生活是这样的！！（当天伟丽签了好多名✍️](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [强子刚来啊，等你二十年了【AI MV大赛】](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [Hello Kitty母公司再致歉](http://www.daogukj.com/8099191)
-- [当网友奔赴婚礼社会正悄悄缝合孤独](http://www.daogukj.com/vrvcskzj/)
-- [专家：A股将迎来修复](http://www.daogukj.com/lbbxrvry/)
-- [鲸鲸，跑起来吧](http://www.daogukj.com/9295095)
-- [27岁抗癌博主悦悦离世](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [网友参加小小徐婚礼还捐路灯](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [拉拜诗](http://www.daogukj.com/7435478)
-- [钓友钓58斤青鱼被拖入3米水中](http://www.daogukj.com/kwdurrnw/)
-- [我要闹了😭2！！！](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [奥斯卡：我深知要尊重中国人](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [乌干达吃掉38人的“食人魔”落网](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [⚡《新 三 国 FUNK》⚡](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [孤儿婚礼几千陌生人赴约的善意](http://www.daogukj.com/8099191)
+- [孙颖莎获河北省记大功奖励](http://www.daogukj.com/vrvcskzj/)
+- [国防部回应新一代核潜艇参与导弹试射](http://www.daogukj.com/lbbxrvry/)
+- [《明日方舟》EP - A Necessary Message](http://www.daogukj.com/9295095)
+- [星巴克遭不消费人群抵制](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [学海无“牙”具象化了](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [小鹏MONAL05价格炸裂](http://www.daogukj.com/7435478)
+- [隆胸身亡女子生前聊天记录曝光](http://www.daogukj.com/kwdurrnw/)
+- [乱作一团：美国古巴当场互呛，会议被迫中止场面混乱](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [岳父回应女婿“小小徐”娶女儿走红](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [30万年轻人 排队求陌生人管住钱包](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [A股收评：双创指数低开低走均跌超4%](https://www.baidu.com/s?wd=A%E8%82%A1%E6%94%B6%E8%AF%84%EF%BC%9A%E5%8F%8C%E5%88%9B%E6%8C%87%E6%95%B0%E4%BD%8E%E5%BC%80%E4%BD%8E%E8%B5%B0%E5%9D%87%E8%B7%8C%E8%B6%854%25&sa=fyb_news&rsv_dl=fyb_news)
+- [邀全网喝喜酒小伙打工3年攒近17万](https://www.baidu.com/s?wd=%E9%82%80%E5%85%A8%E7%BD%91%E5%96%9D%E5%96%9C%E9%85%92%E5%B0%8F%E4%BC%99%E6%89%93%E5%B7%A53%E5%B9%B4%E6%94%92%E8%BF%9117%E4%B8%87&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3028c1ef4fc1a0407166 -->
+<!-- content-fingerprint: a53b0e4bfbd699bbb1db -->
