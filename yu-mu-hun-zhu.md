@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 打破“茅台洗脚”污名谣言
+# 把大体老师遗骨当玩物配当医生吗
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6850105 · 更新：2026-10-30T07:49:12+08:00
+> 来源：微博热搜 · 排名：第 11 位 · 热度：701862 · 分类：民生新闻 · 更新：2026-10-30T11:44:35+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“打破“茅台洗脚”污名谣言”位列第 10 位，公开热度指标为 6850105。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“把大体老师遗骨当玩物配当医生吗”位列第 11 位，公开热度指标为 701862，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：1935年3月红军长征经贵州茅台镇，缺医少药曾以茅台酒擦脚疗伤；国民党报刊造谣“酒池洗脚”，3月16日红军总政治部发保护通知，谣言不攻自破。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [人民日报锐评年轻人养不起老人了](dong-shi-xiao-pin.md)
-- [如何看到法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](han-dan-xue-bu.md)
-- [令人愤怒的“卖1元火鸡面”视频，炸出了多少被毁掉的中国小孩](qi-ren-you-tian.md)
-- [法院认可微信聊天记录吗](chao-san-mu-si.md)
+- [打破“茅台洗脚”污名谣言](dong-shi-xiao-pin.md)
+- [小伙因亲人少怕婚礼冷清邀网友喝喜酒，近 200 人从全国各地赴宴，有人送冰箱有人带整猪，如何看待此事？](han-dan-xue-bu.md)
+- [《明日方舟》EP - A Necessary Message](qi-ren-you-tian.md)
+- [母亲因情绪失控将7岁女儿推下窗台](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [养老金要崩盘？用三本账穿越认知迷雾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [高秀敏被印上祭品 何庆魁愤怒发声](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [全面从严治党就在身边](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [72岁成龙展示一身紧实肌肉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [邀网友赴婚礼的小伙：女友是我的动力](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [张雪称已将母亲拉黑](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [BLG瑞士轮生死战现状](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [管泽元说JackeyLove太顶了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [人民日报锐评年轻人养不起老人了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [西班牙高铁事故首份报告公布](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [红果的日活跃用户达 1.68 亿人，超「爱优腾芒」四家总和，这构成垄断吗？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [茉莉奶白联名水杯爆裂致用户住院](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [强子刚来啊，等你二十年了【AI MV大赛】](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [法院认可微信聊天记录吗](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [曝西甲主席正考虑前往中国，媒体称姆巴佩事件致西甲每赛季潜在损失1亿欧，他怎样做才能化解这巨额财务损失？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [78名学生共用针头调查要给社会交代](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [邀网友赴婚礼的小伙：女友是我的动力](http://www.daogukj.com/4734416)
-- [中共中央30日上午举行新闻发布会](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [露思闹笑话，刘冲斗娜娜，众星躲娜扎……【近期红毯爆笑盘点】](http://www.daogukj.com/eujljnlh/)
-- [跨越山海的开放活力](http://www.daogukj.com/3484796)
-- [全面从严治党就在身边](http://www.daogukj.com/6840289)
-- [中国麻将在美国爆火，套装卖到 400 美元仍排队抢购，这股风潮是怎么来的？麻将为什么有这样的出海潜力？](http://www.daogukj.com/8544186)
-- [BLG对阵TES](http://www.daogukj.com/4262842)
-- [高秀敏被印上祭品 何庆魁愤怒发声](http://www.movie.hkepx.cn/movie/0136106.htm)
-- [征途之上](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [72岁成龙展示一身紧实肌肉](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [人民日报锐评年轻人养不起老人了](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [每天通勤50多公里，是买电动车还是摩托车比较好?](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [为什么全世界只有中国有文旅局以及“文旅”这个概念？](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [乱作一团：美国古巴当场互呛，会议被迫中止场面混乱](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [蓝色大肥鱼是什么梗【梗指南】](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [邀全网喝喜酒小伙打工3年攒近17万](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [姆巴佩曾代言的饮品单日销量为0](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [如何向非数学专业的朋友解释「泛函」的概念？](http://www.daogukj.com/4133568)
-- [前巴西国脚奥斯卡发声称「为一些言论感到难过，希望更多外籍球员尊重中国」，这种认知差异该如何扭转？](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [谷歌美股开盘大跌超13%，创历史最大单日跌幅，总市值蒸发5000亿美元，为啥会这样？还会持续下跌吗？](http://www.daogukj.com/0480016)
-- [小城良方姜妍别把肖战吹感冒了](http://www.daogukj.com/4561506)
-- [工资改发数字人民币了有啥变化](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [成都游客夜拍以为是云结果是大山](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [钓友钓58斤大青鱼被拖入3米水中](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [BLG对战TES](http://www.daogukj.com/jbdvxipc/)
-- [城市大富翁（番外篇）](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [红果短剧凭什么这么红](http://www.daogukj.com/awgjjjvg/)
-- [女子金手镯剪开发现大量黑色物质](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [C罗戴帽斩获生涯985球](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [岳父回应女婿“小小徐”娶女儿走红](http://www.daogukj.com/ditzbwwz/)
-- [S16 瑞士轮 MKOI 0-2 T1，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [西班牙高铁事故首份报告公布](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [何洁直言05超女“前三我都不爽”](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [三年之期已到，恭迎世一上归位！【第15集】](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [美股芯片股下挫 医药龙头大涨8%](http://www.daogukj.com/aqmuomii/)
-- [中国队晋级U17女足世界杯八强](http://www.daogukj.com/phjdnbun/)
-- [吴站长&梅姐《Trouble Maker》【AI MV大赛】](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [HONG KONG](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [《明日方舟》EP - A Necessary Message](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [把大体老师遗骨当玩物配当医生吗](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [英特尔暴跌超20%](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [兵部尚书冻死在御书房外会引发藩王造反？历史上真的发生过类似的事吗？](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [感觉厉娜能活99岁](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [如何看到法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [影之刃零中支线BOSS“新娘阿花”被吐槽投技太多易暴毙，如何评价该BOSS的设计，有什么战斗技巧？](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [工资改发数字人民币了有啥变化](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [如何评价媒体锐评近期一些自媒体瞄准中青年群体，曲解社保制度，质疑养老金公平性？](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [母亲因情绪失控将7岁女儿推下窗台](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [公测定档PV | 《星布谷地》12月4日全球上线！](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [京东百吋电视1元](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [西班牙高铁事故首份报告公布](http://www.daogukj.com/4734416)
+- [菜鸟驿站为什么那么多转让的？](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [小时候看仙剑，邪剑仙乃超出六界之外，为什么景天还能杀死邪剑仙？](http://www.daogukj.com/eujljnlh/)
+- [为何日式搬家这种标榜「极致体面」的高端服务，最终却让打工人陷入了「花钱买罪受」的狼狈？](http://www.daogukj.com/3484796)
+- [管泽元说JackeyLove太顶了](http://www.daogukj.com/6840289)
+- [当我cos亲友喜欢了十年的角色去找她，会是什么反应？](http://www.daogukj.com/8544186)
+- [没办法兄弟，什么身份办什么事](http://www.daogukj.com/4262842)
+- [BLG瑞士轮生死战现状](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [绿色转型擦亮中国经济底色](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
+- [人民日报锐评年轻人养不起老人了](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [打破“茅台洗脚”污名谣言](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [媒体曝京东为 AI 数字员工统一设置职级，并占用单独 HC，是真的吗？这意味着什么？](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [邀网友赴婚礼的小伙：女友是我的动力](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [星爷版《Trouble Maker》喜剧之王&功夫【AI MV大赛】](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [曾经风靡的日系车不再吃香了](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [王楚钦说勒布伦得让孙颖莎3到4分](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [令人愤怒的“卖1元火鸡面”视频，炸出了多少被毁掉的中国小孩](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [城市大富翁（番外篇）](http://www.daogukj.com/4133568)
+- [《崩坏：星穹铁道》千星纪游PV：「有关星空的寓言集•其三」](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [五年不见！人生一串4重磅回归](http://www.daogukj.com/0480016)
+- [C罗15分钟3球](http://www.daogukj.com/4561506)
+- [2026年一季度21.3万家理发店注销，10元快剪却排长队，理发行业怎么了？为啥越来越多人选择快剪？](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [别把易怒多疑当“怪脾气”](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [女子万元手机火车上充电时被顺走](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [张雪机车终于归张雪了](http://www.daogukj.com/jbdvxipc/)
+- [《三鞭抽散厌学魂》](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [为什么说23点后睡觉的人亏大了](http://www.daogukj.com/awgjjjvg/)
+- [币安阿尔法交易已被暂停](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [强子刚来啊，等你二十年了【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [西班牙华人女子因赖床错过事故列车](http://www.daogukj.com/ditzbwwz/)
+- [72岁成龙展示一身紧实肌肉](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [11月起这些新规将影响生活](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [王楚钦推动勒布伦挑战孙颖莎](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [【4K】全网首发《影之刃零》 全支线 全收集 全流程实况解说](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [如何评价开拓者官方已执行杨瀚森 486 万美元的 27-28 赛季球队选项？](http://www.daogukj.com/aqmuomii/)
+- [JackeyLove想再拿一次S冠](http://www.daogukj.com/phjdnbun/)
+- [《疾速追杀》今日上映](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [影之刃初见一次打赢甄子丹...我怀疑他是假子丹](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [开拓者官宣执行杨瀚森第三年合同](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [孩子不吃饭医生点肯德基找原因](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [直击小小徐婚礼现场](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [李玉刚谈姐姐父亲同一年离世](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [小小徐婚礼车队堵了一公里](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [小伙因亲人少怕婚礼冷清邀网友喝喜酒，近 200 人从全国各地赴宴，有人送冰箱有人带整猪，如何看待此事？](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [打破“茅台洗脚”污名谣言](https://www.baidu.com/s?wd=%E6%89%93%E7%A0%B4%E2%80%9C%E8%8C%85%E5%8F%B0%E6%B4%97%E8%84%9A%E2%80%9D%E6%B1%A1%E5%90%8D%E8%B0%A3%E8%A8%80&sa=fyb_news&rsv_dl=fyb_news)
+- [把大体老师遗骨当玩物配当医生吗](https://s.weibo.com/weibo?q=%E6%8A%8A%E5%A4%A7%E4%BD%93%E8%80%81%E5%B8%88%E9%81%97%E9%AA%A8%E5%BD%93%E7%8E%A9%E7%89%A9%E9%85%8D%E5%BD%93%E5%8C%BB%E7%94%9F%E5%90%97)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9878f0c88567e92b2465 -->
+<!-- content-fingerprint: e406225d47b43b739fd0 -->
