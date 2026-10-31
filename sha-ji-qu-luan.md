@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 实在抱歉！我哥疯了 （阿晴教学篇op/ed）【28】
+# 胃癌之王印戒细胞癌专盯年轻人
 
-> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：799813 · 分类：同人·手书 · 更新：2026-10-31T21:13:21+08:00
+> 来源：百度热搜 · 排名：第 12 位 · 热度：6663313 · 更新：2026-11-01T01:48:33+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“实在抱歉！我哥疯了 （阿晴教学篇op/ed）【28】”位列第 12 位，公开热度指标为 799813，榜单分类为“同人·手书”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“胃癌之王印戒细胞癌专盯年轻人”位列第 12 位，公开热度指标为 6663313。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：编剧&导演：九晴 配音：九晴：九晴 鹿唯一：范小飞fxf 贵宝：贵宝 罗大米：自且力餐 蒋川：叶小槑 罗大米母亲：圆不溜秋 鹿唯一妹妹（鹿眠）：喵喵 被救女孩（孟孟）：萱萱 心理医生：涂鸦 美术指导&动画指导：九晴 寐莲春雪 动画原画：寐莲春雪 aip610 RARMA阮玛 Chounai酪 水大师 三进制Mio 黎明沐风 上色：柏枫 BGM： RAM WIRE - 僕らの手には何もないけど、 Matryo
+来源公开摘要显示：胃印戒细胞癌被称为“胃癌之王”，是胃癌中的一种特殊类型。其早期症状酷似普通胃炎，且胃镜下无明显肿块易漏诊。该癌症偏爱中青年，年轻女性占比偏高，患者确诊时往往已属晚期，5年生存率明显低于普通胃腺癌。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `同人·手书`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [孙心然被逆转无缘广网决赛](yin-zhen-zhi-ke.md)
-- [小城良方回应热度破10000](ke-zhou-qiu-jian.md)
-- [因吃猪蹄住院女子从170斤瘦到88斤](yan-er-dao-ling.md)
-- [人民锐评发文驳斥「中国 AI 跑偏论」，如何看待中美在 AI 落地路径上的差异？](nan-yuan-bei-zhe.md)
+- [奔跑吧厉娜](yin-zhen-zhi-ke.md)
+- [蔡磊想通过脑机接口拥抱儿子](ke-zhou-qiu-jian.md)
+- [将有两名中国人登陆月球](yan-er-dao-ling.md)
+- [如何看待网友提出「初中禁绝游戏和电子产品，培养看云发呆的爱好，长大一天吃一个白面馒头也很开心」的观点？](nan-yuan-bei-zhe.md)
 
 ## 站内推荐
 
-- [四千元的冰柜被「仅退款」，买家称已销毁，商家跨千里发现商品仍在使用，买卖双方各执一词，责任该如何认定？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [假如主角身边全是奸臣(大合集)一次性看完!](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [评分7.8！豪情在天！20年前的童年嘉作《火力少年王》到底能有多豪？【诚实吐槽】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [读 圣](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [《烂梗下桌》与其怪食客的嘴，不如让烂梗下桌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [红果短剧年营收超150亿，为什么有创作者称两个月11部剧只赚了9块6？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [小时候直肠子就这样讲话](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [广西男子造谣“石场死了3个”被处罚](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [“存钱不如存肌肉”的时代来了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [男子醉酒昏迷40分钟朋友以为睡着了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李乃文帮刘敏涛捡掉落的耳环](http://www.movie.hkepx.cn/movie/8955570.htm)
-- [我国首次载人登月任务乘组计划由三人组成，两人着陆月球表面，哪些细节值得关注？此次任务重点在哪？](http://www.daogukj.com/krvvnboj/)
-- [胃癌早期难以发现原因](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
-- [人民锐评发文驳斥「中国 AI 跑偏论」，如何看待中美在 AI 落地路径上的差异？](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
-- [懂球帝做错了吗？为什么要开始指责传播渠道，根源不是在姆巴佩吗？](http://www.movie.hkepx.cn/movie/1401219.htm)
-- [如何看待 Viper 赛后采访称「有队友喊了潘森没大，结果潘森却跳大导致失利」？](http://www.movie.hkepx.cn/movie/1801460.htm)
-- [四千元的冰柜被「仅退款」，买家称已销毁，商家跨千里发现商品仍在使用，买卖双方各执一词，责任该如何认定？](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
-- [原中国石化董事长傅成玉被查](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
-- [谁在盯着“大衣哥”](http://www.movie.hkepx.cn/xiju/0216852.htm)
-- [大批理发店关停10元快剪走红](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
-- [75岁傅成玉被查](http://www.daogukj.com/3303781)
-- [纯黑《影之刃零》逆天者全程无伤一镜到底攻略解说 第一期](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
-- [到底是编剧的水平问题，还是投资方的问题造成现在影视作品烂?](http://www.movie.hkepx.cn/movie/5835677.htm)
-- [今年全国实现生娃基本不花钱](http://www.daogukj.com/6841256)
-- [【逆水寒×中国歌剧舞剧院】再见仍是初遇的惊艳，国家队跳阿初祈月舞！](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
-- [宋威龙差点摔了](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
-- [【泛式/剧情MAD】你我的故事，写作『相互凌迟』...... [薇欧拉/bilibilionly同人扶持计划]](http://www.daogukj.com/8289580)
-- [读 圣](http://www.daogukj.com/ketbkhri/)
-- [一套房650万要缴450万的税](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
-- [女子注射生长因子脸疯长成畸形](http://www.movie.hkepx.cn/movie/9768501.htm)
-- [郑州胖东来围挡贴满英雄画像](http://www.movie.hkepx.cn/xiju/6011810.htm)
-- [江苏教育的最大失败是什么？](http://www.movie.hkepx.cn/xiju/6600784.htm)
-- [《烂梗下桌》与其怪食客的嘴，不如让烂梗下桌](http://www.movie.hkepx.cn/xiju/0855885.htm)
-- [接触过一些身居高位的领导，感觉到他们的情绪都很稳定，这种观察普遍成立吗？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
+- [古风歌手吾恩已离世，与胃癌抗争近七年，曾有代表作《忘羡》《人间纵我》等，你对他有哪些印象？](http://www.movie.hkepx.cn/movie/8955570.htm)
+- [如何评价理想、小米成欣旺达动力第二、第三大股东？](http://www.daogukj.com/krvvnboj/)
+- [4AM任和咚咚和好了](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
+- [如何看待网友提出「初中禁绝游戏和电子产品，培养看云发呆的爱好，长大一天吃一个白面馒头也很开心」的观点？](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
+- [女子注射生长因子脸疯长成畸形](http://www.movie.hkepx.cn/movie/1401219.htm)
+- [双缝干涉实验恐怖在哪？能用通俗易懂语言解释吗？](http://www.movie.hkepx.cn/movie/1801460.htm)
+- [红果短剧年营收超150亿，为什么有创作者称两个月11部剧只赚了9块6？](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
+- [人民日报评朱之文被“黑粉”举报](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
+- [到底是编剧的水平问题，还是投资方的问题造成现在影视作品烂?](http://www.movie.hkepx.cn/xiju/0216852.htm)
+- [游客玩“大摆荡”坠亡 2人被移送司法](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
+- [无锡队苏超夺冠](http://www.daogukj.com/3303781)
+- [女子买的侏儒猪长到200斤 1天遛5小时](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
+- [国考](http://www.movie.hkepx.cn/movie/5835677.htm)
+- [被“盆栽哥”采样的王菲在海外有多火](http://www.daogukj.com/6841256)
+- [孟子义看到刘学义躲镜头的表情](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
+- [江苏首富夫妇身家一年暴涨1120亿](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
+- [1944滇缅竹林：远征军教盟军吃虎皮笋，油手把风笛吹成妖笛【AI全民制作人】](http://www.daogukj.com/8289580)
+- [“存钱不如存肌肉”的时代来了](http://www.daogukj.com/ketbkhri/)
+- [日本访华代表团鞠躬谢罪](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
+- [王子璇 文吉儿](http://www.movie.hkepx.cn/movie/9768501.htm)
+- [夫妻因一餐5个菜闹到要离婚](http://www.movie.hkepx.cn/xiju/6011810.htm)
+- [欢迎收看09年高中生学到电脑关机的一天](http://www.movie.hkepx.cn/xiju/6600784.htm)
+- [男子醉酒昏迷40分钟朋友以为睡着了](http://www.movie.hkepx.cn/xiju/0855885.htm)
+- [西方发达国家那种木头房子，美观成本低、寿命又长，特别是抗震性能好，为何不在我国地震带地区推广呢？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
 - [胡辣汤、泡馍这么御寒的食物，为什么没能在寒冷的东北流行起来？](http://www.daogukj.com/vnsrnwfs/)
-- [将有2名中国人登陆月球](http://www.movie.hkepx.cn/movie/9967199.htm)
-- [小时候直肠子就这样讲话](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
-- [厉娜昔日演日本人片段火了](http://www.movie.hkepx.cn/movie/6293448.htm)
-- [夫妻因一餐5个菜闹到要离婚](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
-- [阿维塔新车发布会取消，具体是咋回事？背后的原因可能是啥？](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
-- [“城市更新”要更新什么](http://www.play.hengshemaoyi.cn/xiju/0952353.htm)
-- [透明的镜片居然有影子？观众的问题让我脑洞大开！](http://www.movie.hkepx.cn/movie/5654110.htm)
+- [孙颖莎把早田希娜打哭了](http://www.movie.hkepx.cn/movie/9967199.htm)
+- [【泛式/剧情MAD】你我的故事，写作『相互凌迟』...... [薇欧拉/bilibilionly同人扶持计划]](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
+- [今年全国实现生娃基本不花钱，多地密集出台生育支持措施，涉及哪些方面？会带来哪些积极影响？](http://www.movie.hkepx.cn/movie/6293448.htm)
+- [侯卓成杨汝晴官宣分手](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
+- [人民日报评随意恶意举报](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
+- [多领域见证中国经济活力](http://www.play.hengshemaoyi.cn/xiju/0952353.htm)
+- [大批理发店关停10元快剪走红](http://www.movie.hkepx.cn/movie/5654110.htm)
 - [以钉钉子精神加强党的作风建设](http://www.play.hengshemaoyi.cn/kongbu/6410086.htm)
 - [【独家】《凡人修仙传之慕兰之战》第22集【总第198集】](http://www.daogukj.com/8061636)
-- [奔跑吧厉娜](http://www.movie.hkepx.cn/xiju/3678798.htm)
-- [初代选秀 一地鸡毛](http://www.daogukj.com/4240143)
-- [有小缺陷的刘铮亮吸引了肖战](http://www.movie.hkepx.cn/xiju/6821618.htm)
-- [新动能持续释放助力经济稳增长](http://www.movie.hkepx.cn/xiju/6143707.htm)
-- [是谁偷走了孩子的睡眠时间](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
-- [官方披露：将有两名中国人登陆月球](http://www.daogukj.com/ipksuuvb/)
-- [苏超](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
-- [环卫工人捡5只塑料袋装满现金](http://www.movie.hkepx.cn/xiju/1798043.htm)
-- [苏超决赛最强预言家](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
-- [小沈阳披荆斩棘冠军](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
-- [厉娜评论区打脸来得太快](http://www.movie.hkepx.cn/xiju/0765053.htm)
-- [【萌黄一槽】川木[楔二]全技能爆料！“小小”借过一下！](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
-- [微博视界大会内场](http://www.movie.hkepx.cn/xiju/3626228.htm)
-- [全网搬大润发第一人！！！](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
-- [双缝干涉实验恐怖在哪？能用通俗易懂语言解释吗？](http://www.movie.hkepx.cn/xiju/4004417.htm)
-- [金价暴跌是买大金镯还是等7字头](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
+- [刘诗诗牵着关晓彤上台](http://www.movie.hkepx.cn/xiju/3678798.htm)
+- [女子花3元买彩票中1439万](http://www.daogukj.com/4240143)
+- [张雪教“如何100%入职张雪机车”](http://www.movie.hkepx.cn/xiju/6821618.htm)
+- [五中全会释放了哪些信号](http://www.movie.hkepx.cn/xiju/6143707.htm)
+- [DeepSeek重磅发布：AI开始指挥AI干活](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
+- [如何看待「三年内，扩散模型将全面替代大语言模型」的说法？这会给 AI Infra 带来哪些变化？](http://www.daogukj.com/ipksuuvb/)
+- [姑娘别哭 真人好年轻](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
+- [游戏《影之刃零》有哪些轮椅武器或者道具、打法？](http://www.movie.hkepx.cn/xiju/1798043.htm)
+- [【萌黄一槽】川木[楔二]全技能爆料！“小小”借过一下！](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
+- [“若神不能理解我，那祂便算不上神！！”](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
+- [六小龄童从猴哥变猴爷爷](http://www.movie.hkepx.cn/xiju/0765053.htm)
+- [波风水门[九喇嘛连结]优化展示！](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
+- [不是所有IP都叫CPOPwave 绝区零匠心雕琢的用户品质口碑正在绵延生长](http://www.movie.hkepx.cn/xiju/3626228.htm)
+- [未来十年普通人最该守住什么](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
+- [我是草](http://www.movie.hkepx.cn/xiju/4004417.htm)
+- [【鬼谷闲谈】沧龙：问君能有几多愁，恰似鳞龙入海流](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
 
 </details>
 
 ## 原始来源
 
-- [实在抱歉！我哥疯了 （阿晴教学篇op/ed）【28】](https://b23.tv/BV1Z8xv6fEx9)
+- [胃癌之王印戒细胞癌专盯年轻人](https://www.baidu.com/s?wd=%E8%83%83%E7%99%8C%E4%B9%8B%E7%8E%8B%E5%8D%B0%E6%88%92%E7%BB%86%E8%83%9E%E7%99%8C%E4%B8%93%E7%9B%AF%E5%B9%B4%E8%BD%BB%E4%BA%BA&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 01c067a00f1847d2c9e7 -->
+<!-- content-fingerprint: f5c72c5dada65a2c7aa1 -->
