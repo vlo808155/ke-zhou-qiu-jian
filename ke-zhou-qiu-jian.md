@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 29.9元3小时的无人自助KTV开遍县城
+# 多地小学老师转岗教中学
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7046294 · 更新：2026-11-01T07:52:22+08:00
+> 来源：百度热搜 · 排名：第 8 位 · 热度：7042469 · 更新：2026-11-01T12:25:26+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“29.9元3小时的无人自助KTV开遍县城”位列第 8 位，公开热度指标为 7046294。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“多地小学老师转岗教中学”位列第 8 位，公开热度指标为 7042469。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：国庆期间，平价无人自助KTV在县城爆火。该业态因技术成本降低及契合年轻人消费习惯迅速扩张，国内已涌现数千家门店。但当前入局者激增导致赛道快速饱和，曾流传的“一年回本”神话不再。
+来源公开摘要显示：近期，多地在小学老师出现“富余”而中学老师存在缺口的情况下，通过将部分老师转岗至初中任教，解决小学老师过剩而中学师资不足的矛盾。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [女生年轻时怎么赚到钱](yan-er-dao-ling.md)
-- [75岁傅成玉被查](nan-yuan-bei-zhe.md)
-- [卖650万捐赠房产要缴450万的税，夫妻遗赠毕生积蓄救人，接收遗产的基金会却被吓退，问题出在哪？](mai-du-huan-zhu.md)
-- [“若神不能理解我，那祂便算不上神！！”](ye-gong-hao-long.md)
+- [上海人把永久自行车穿身上了](yan-er-dao-ling.md)
+- [柯文哲：早说不要被“洋流”吓到](nan-yuan-bei-zhe.md)
+- [如何看待钓友钓58斤青鱼被拖入3米水中，仍紧握鱼竿被连人带鱼救起？你钓鱼时印象最深刻的经历是怎样的？](mai-du-huan-zhu.md)
+- [耗资上万！我重制了网页版MC！【B站AI创造公开赛】](ye-gong-hao-long.md)
 
 ## 站内推荐
 
-- [多领域见证中国经济活力](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [蒯曼4比2淘汰张本美和](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [广西男子造谣“石场死了3个”被处罚](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [蒋万安讽刺沈伯洋只会喊空洞口号](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [因吃猪蹄住院女子从170斤瘦到88斤](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [深海好鱼如何“游”上百姓餐桌](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [夫妻因一餐5个菜闹到要离婚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [禾木野生猴群下山抢手机系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [S16八强抽签：TES与iG内战](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [阿姨被插队后买光烧饼](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [董珊珊案凶手仅坐牢三年半](http://www.movie.hkepx.cn/xiju/2843648.htm)
-- [“我本该命途齐天”【孙悟空＆新·与天齐】](http://www.daogukj.com/0895296)
-- [古力娜扎直播卸妆卸了个寂寞](http://www.movie.hkepx.cn/xiju/3970296.htm)
-- [“若神不能理解我，那祂便算不上神！！”](http://www.movie.hkepx.cn/movie/5125967.htm)
-- [懂球帝做错了吗？为什么要开始指责传播渠道，根源不是在姆巴佩吗？](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
-- [我国首次载人登月任务乘组计划由三人组成，两人着陆月球表面，哪些细节值得关注？此次任务重点在哪？](http://www.movie.hkepx.cn/xiju/5735202.htm)
-- [DeepSeek重磅发布：AI开始指挥AI干活](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
-- [BLG战胜HLE](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
-- [大批理发店关停10元快剪走红](http://www.daogukj.com/1682120)
-- [西方发达国家那种木头房子，美观成本低、寿命又长，特别是抗震性能好，为何不在我国地震带地区推广呢？](http://www.daogukj.com/3781657)
-- [【鬼谷闲谈】沧龙：问君能有几多愁，恰似鳞龙入海流](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
-- [一套房650万要缴450万的税](http://www.movie.hkepx.cn/xiju/8318389.htm)
-- [李一桐回应“闪身步嫡传弟子”](http://www.movie.hkepx.cn/xiju/6056931.htm)
-- [国乒女队赢下3场中日对决](http://www.movie.hkepx.cn/xiju/3703541.htm)
+- [我是草](http://www.movie.hkepx.cn/xiju/2843648.htm)
+- [55岁以后喝水要多注意4件事](http://www.daogukj.com/0895296)
+- [欧几里得为什么这么霸道，设了五条称为公理的东西，不准人问为什么？](http://www.movie.hkepx.cn/xiju/3970296.htm)
+- [耗资上万！我重制了网页版MC！【B站AI创造公开赛】](http://www.movie.hkepx.cn/movie/5125967.htm)
+- [中美基金经理年龄差这么大](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
+- [S16 瑞士轮 BLG 2:0 淘汰 HLE 拿下最后一张淘汰赛门票，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/5735202.htm)
+- [12万招985硕士 3000万给一个专科生](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
+- [HLE不敌BLG赛后全员面如死灰](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
+- [美国中期选举最大“十月惊奇”出现了](http://www.daogukj.com/1682120)
+- [S16 八强赛抽签结果：BLG 将战 DK，iG 内战 TES，如何评价今年的八强赛对阵？](http://www.daogukj.com/3781657)
+- [《动物声卡驱动异常》](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
+- [饮料巨头们最近集体“发酸”了](http://www.movie.hkepx.cn/xiju/8318389.htm)
+- [乌鲁木齐辟谣“禁售马肉马肠制品”](http://www.movie.hkepx.cn/xiju/6056931.htm)
+- [怎么有两个无印良品](http://www.movie.hkepx.cn/xiju/3703541.htm)
 - [侯卓成杨汝晴官宣分手](http://www.movie.hkepx.cn/xiju/8516838.htm)
-- [女子买的侏儒猪长到200斤 1天遛5小时](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
-- [如何看待「三年内，扩散模型将全面替代大语言模型」的说法？这会给 AI Infra 带来哪些变化？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
-- [章子怡发文鼓励宋雨琦](http://www.movie.hkepx.cn/movie/7128560.htm)
-- [林诗栋3比4负莫雷加德](http://www.daogukj.com/3515190)
-- [“存钱不如存肌肉”的时代来了](http://www.daogukj.com/0169777)
-- [[ONHWA] 吃生肝的九尾狐](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
-- [欧盟与加拿大宣布“结盟”](http://www.daogukj.com/4071713)
-- [福建发现新物种](http://www.daogukj.com/pjoqnyew/)
-- [肖战刘铮亮差点喜提三个前女友](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
+- [夫妻接连被陌生人骗出门致儿子被拐卖](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
+- [卖650万捐赠房产要缴450万的税，夫妻遗赠毕生积蓄救人，接收遗产的基金会却被吓退，问题出在哪？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
+- [国家公务员局发布郑重提醒](http://www.movie.hkepx.cn/movie/7128560.htm)
+- [小时候直肠子就这样讲话](http://www.daogukj.com/3515190)
+- [肖战《小城良方》爱奇艺热度破万](http://www.daogukj.com/0169777)
+- [假如带着豆包和蓝色大肥鱼等一众AI穿越到2018年...[1-5合集]](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
+- [公司误将5000元工资发给已离职员工](http://www.daogukj.com/4071713)
+- [健身练背真的能让脸更紧致吗？](http://www.daogukj.com/pjoqnyew/)
+- [Viper母亲患癌](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
 - [如何评价Deepseek Harness发布的super-agent构想？](http://www.movie.hkepx.cn/movie/5516169.htm)
-- [【OC动画】馆长大人，请消消气！🌙酒魔女与她的贵客【魔女夜话小剧场】【手搓动画大赛】](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
-- [侯卓成 尊重一点女方别太入戏了](http://www.daogukj.com/pgdrxeea/)
-- [学历进单位第二周就没意义](http://www.daogukj.com/7272013)
-- [新动能持续释放助力经济稳增长](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
-- [苹果Duo中国版被指偷工减料](http://www.daogukj.com/3521407)
-- [国乒男单全部出局](http://www.daogukj.com/9982293)
-- [江苏省委书记省长为苏超冠亚军颁奖](http://www.movie.hkepx.cn/xiju/3540024.htm)
-- [女子花3元买彩票中1439万](http://www.movie.hkepx.cn/movie/9307027.htm)
-- [人民日报评朱之文被“黑粉”举报](http://www.movie.hkepx.cn/movie/7494540.htm)
-- [胡辣汤、泡馍这么御寒的食物，为什么没能在寒冷的东北流行起来？](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
-- [多领域见证中国经济活力](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
-- [蒯曼4比2淘汰张本美和](http://www.daogukj.com/4973551)
-- [如何看待台湾地区外事发言人回应特朗普言论：“他这是挫折和羡慕我们”？](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
-- [【漫士】这可能是人类提出最深刻的数学/计算机问题](http://www.daogukj.com/zirrjtcq/)
-- [以钉钉子精神加强党的作风建设](http://www.daogukj.com/pvjkdvkl/)
+- [程靖淇：孙颖莎会为自己感到骄傲](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
+- [选一条路，决定你接下来的旅途](http://www.daogukj.com/pgdrxeea/)
+- [【AI翻唱】雨爱（司凤版）· 大鲸鱼版](http://www.daogukj.com/7272013)
+- [中国机遇清单不断扩展](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
+- [章子怡发文鼓励宋雨琦](http://www.daogukj.com/3521407)
+- [做完胃镜没问题 一个月后胃癌晚期](http://www.daogukj.com/9982293)
+- [央视曝光2388元蜜丸成本仅40元](http://www.movie.hkepx.cn/xiju/3540024.htm)
+- [孟加拉国总理拒绝向日本国旗鞠躬](http://www.movie.hkepx.cn/movie/9307027.htm)
+- [男生：我到底是不是女生啊？！！](http://www.movie.hkepx.cn/movie/7494540.htm)
+- [这些食物减脂期的朋友别碰了](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
+- [深海好鱼如何“游”上百姓餐桌](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
+- [夫妻因一餐5个菜闹到要离婚](http://www.daogukj.com/4973551)
+- [Kanavi回应不敌BLG止步十六强](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
+- [1944滇缅竹林：远征军教盟军吃虎皮笋，油手把风笛吹成妖笛【AI全民制作人】](http://www.daogukj.com/zirrjtcq/)
+- [持之以恒推进全面从严治党](http://www.daogukj.com/pvjkdvkl/)
 - [全球笑点下降2000倍而我不变【第二集】](http://www.movie.hkepx.cn/movie/8281799.htm)
-- [人民锐评发文驳斥「中国 AI 跑偏论」，如何看待中美在 AI 落地路径上的差异？](http://www.movie.hkepx.cn/movie/4145451.htm)
-- [1944滇缅竹林：远征军教盟军吃虎皮笋，油手把风笛吹成妖笛【AI全民制作人】](http://www.movie.hkepx.cn/xiju/5480896.htm)
-- [【泛式/剧情MAD】你我的故事，写作『相互凌迟』...... [薇欧拉/bilibilionly同人扶持计划]](http://www.movie.hkepx.cn/xiju/6192675.htm)
-- [国乒男单无缘蒙彼利埃站四强](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
-- [【独家】《凡人修仙传之慕兰之战》第22集【总第198集】](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
-- [广西男子造谣“石场死了3个”被处罚](http://www.movie.hkepx.cn/movie/8224566.htm)
-- [女生年轻时怎么赚到钱](http://www.daogukj.com/rdjgxawo/)
-- [红果短剧年营收超150亿，为什么有创作者称两个月11部剧只赚了9块6？](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
-- [《动物声卡驱动异常》](http://www.daogukj.com/4280554)
+- [71米高火箭怎么被“筷子”凌空接住](http://www.movie.hkepx.cn/movie/4145451.htm)
+- [玩具熊：模仿者的秘密，第5期，全结局](http://www.movie.hkepx.cn/xiju/5480896.htm)
+- [高市屡次引导外国领导人向日旗鞠躬](http://www.movie.hkepx.cn/xiju/6192675.htm)
+- [法定放假总数已增至13天](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
+- [【2026全球总决赛】11月1日 HLE vs BLG](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
+- [禾木野生猴群下山抢手机系谣言](http://www.movie.hkepx.cn/movie/8224566.htm)
+- [上海人把永久自行车穿身上了](http://www.daogukj.com/rdjgxawo/)
+- [刘嘉玲称盆栽邀王菲未成](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
+- [压抑到极致的爆发，BLG晋级淘汰赛！BLG 2-0 HLE 赛后数据雷达图丨2026全球总决赛-瑞士轮](http://www.daogukj.com/4280554)
 
 </details>
 
 ## 原始来源
 
-- [29.9元3小时的无人自助KTV开遍县城](https://www.baidu.com/s?wd=29.9%E5%85%833%E5%B0%8F%E6%97%B6%E7%9A%84%E6%97%A0%E4%BA%BA%E8%87%AA%E5%8A%A9KTV%E5%BC%80%E9%81%8D%E5%8E%BF%E5%9F%8E&sa=fyb_news&rsv_dl=fyb_news)
+- [多地小学老师转岗教中学](https://www.baidu.com/s?wd=%E5%A4%9A%E5%9C%B0%E5%B0%8F%E5%AD%A6%E8%80%81%E5%B8%88%E8%BD%AC%E5%B2%97%E6%95%99%E4%B8%AD%E5%AD%A6&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0d0b37eb6150581b74f0 -->
+<!-- content-fingerprint: 683443209adff1d5c797 -->
