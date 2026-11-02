@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 美国中期选举临近，捐款榜前十里七家倒向共和党，支持率却不如民主党，为啥金钱失去了以往一锤定音的威力？
+# 停停停！别再从电影里学习错误的女性知识啦……！
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：189 万热度 · 分类：问答 · 更新：2026-11-03T01:12:40+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：1144358 · 分类：亲子 · 更新：2026-11-03T07:54:35+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“美国中期选举临近，捐款榜前十里七家倒向共和党，支持率却不如民主党，为啥金钱失去了以往一锤定音的威力？”位列第 11 位，公开热度指标为 189 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“停停停！别再从电影里学习错误的女性知识啦……！”位列第 11 位，公开热度指标为 1144358，榜单分类为“亲子”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：美国中期选举临近，亿万富豪重金入局，资本再次站上选举舞台中央。但一个反常现象正在出现，源源不断的竞选资金，似乎失去了以往一锤定音的威力。《纽约时报（NYT）》刊发评论文章，揭露这一现象背后的原因：当贪腐议题压倒一切，选民的态度，正在改写美国金钱政治的旧剧本。以下为凤凰网“天下事”摘编： 两周后的美国中期选举，将为这个国家的走向、总统及其政治运动与遗产写下新注脚。而这场选战已经揭示出民主框架下金钱政治的两个核心真相：历经十年舆论拉扯，共和党彻底站到巨富阶层一边，代表着掠夺式的权贵利益；但至少在这一轮，金钱并非万能。在多个红州关键席位争夺战中，共和党豪掷重金
+来源公开摘要显示：这次，让我们大大方方地了解这些知识:) ———————————————————— 二编：健康科普，请审核别误判好吗
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `亲子`
 
 ## 相关热点
 
-- [【纸绘动画/卡点】爆肝600张！！数形结合！让你爱上数学【手搓动画大赛】](qi-ren-you-tian.md)
-- [彩票中心回应中1113万逾期兑奖被拒](chao-san-mu-si.md)
-- [瑞幸新联名放真人被吐槽](dui-niu-tan-qin.md)
-- [比亚迪102万员工意味着什么](mang-ren-mo-xiang.md)
+- [35岁新郎结婚当天看病离世 姐姐发声](qi-ren-you-tian.md)
+- [曝许飞没有背刺厉娜](chao-san-mu-si.md)
+- [媒体人：广东男篮给年轻球员交学费了](dui-niu-tan-qin.md)
+- [官方将股票回购增持再贷款政策由阶段性转为长期制度性安排，再贷款利率由1.25％降至1%，将有哪些影响？](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
-- [新华社发文：国乒男队怎么了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [俄3000亿欧元海外资产还能拿回来吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [牛弹琴：内塔尼亚胡很可能被赶下台](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [联想指纹加密 U 盘被曝拆壳即可明文读取数据，为何硬件加密会形同虚设？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [【STN快报第8.5季25】不觉得边缘行者2的预期违背也是一种反抗精神吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [伊朗称已组建首支“为伊朗捐躯”旅](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [微软大裁员后许多印度裔员工的上班vlog被扒，上班即食堂、锻炼打球等是真的吗？真实的职场环境是怎样的？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [保时捷女销冠再夺第一，所属公司却半年亏 2.7 亿，个人业绩拉满、公司疯狂失血，传统豪华车市场怎么了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [原来10后也有自己的老歌了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [【一百日】第八日:未知通讯](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李佳琦直播间半小时卖出2万亿Token](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [瑞幸新联名放真人被吐槽](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [衣服吊牌比脸大 防的是谁伤的是谁](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [伊朗最高领袖赋予政府谈判权限](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [gpt越来越不行了，是为什么？](http://www.daogukj.com/qaspagub/)
-- [BLG：雪原双子回归！](http://www.daogukj.com/vbdopqig/)
-- [红果短剧刷到天亮](http://www.daogukj.com/gkqacstr/)
-- [美国一邮轮推出 246 万元起「终身旅居」套餐，2 年后因燃油成本乘客被赶下船，怎么看邮轮的毁约行为？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [A股再迎奇迹日](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [菲律宾发言人到中国使馆留言区撒泼](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [A股将迎千亿级增量资金](http://www.daogukj.com/qkmfzgih/)
-- [才知道改名可以改姓](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [币安被盗资产已补回 90%，剩余 10% 因流动性较低暂未补齐，此次事件还有哪些问题需要解决？](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [社保欠缴处罚有了全国统一尺度](http://www.daogukj.com/pgcqzahm/)
-- [整蛊！把人体黄金油彩灌进女友沐浴露…把她全身染成黄金铜人！](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [汪峰发长文谈儿女](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
-- [在乌镇峰会提前体验未来](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [微软大裁员后许多印度裔员工的上班vlog被扒，上班即食堂、锻炼打球等是真的吗？真实的职场环境是怎样的？](http://www.daogukj.com/5083848)
-- [宠粉天花板，请我的粉丝朋友清空一家零食店，你来选我买单，看看要花多少钱](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [普京批准中俄一项铁路共建协定](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [新华社：国乒男队怎么了](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [微软向 6 万名员工开放自愿离职方案，为何连 Copilot 部门也成重灾区？](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [砍完人就收进剑鞘，剑不会臭吗？](http://www.daogukj.com/5655258)
-- [胡歌坦言40岁后身体开始走下坡路](http://www.daogukj.com/5414627)
-- [终于不用看开机广告了](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [地球上的动物为什么很多都进化出“睡觉”这一习性？](http://www.daogukj.com/4208506)
-- [超20万人看了一场假乒乓球比赛](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [男子彩票中1113万过期2天兑奖被拒](http://www.daogukj.com/7752186)
-- [以此朋克，倚老卖老。](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [倪妮考驾照科目三挂了两次](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [黄金价格暴跌背后的全球资本巨变](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [王虹在香港领取求是杰出科学家奖](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [张雪重庆大学开价被学生嫌弃](http://www.movie.hkepx.cn/movie/4507886.htm)
-- [新华社发文：国乒男队怎么了](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [王老菊教你影之刃04：嘬字诀](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
-- [美国一公务机在居民区坠毁致9死，距特朗普的海湖庄园仅七八公里，具体情况如何？可能是什么原因？](http://www.daogukj.com/plfvnmnj/)
-- [彩票中心回应中1113万逾期兑奖被拒](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [大家好，这里是 DeepSeek Harness，正式入驻 B 站！](http://www.daogukj.com/5346308)
-- [【STN快报第8.5季25】不觉得边缘行者2的预期违背也是一种反抗精神吗](http://www.daogukj.com/mwxqddka/)
-- [后会友期导演回应](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [俄3000亿欧元海外资产还能拿回来吗](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [导演江小鱼去世 年仅56岁](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [汪峰晒和四个孩子的合照](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [你从未离去 x 平凡之路](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [牛弹琴：内塔尼亚胡很可能被赶下台](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [新娘退场摔倒新郎还在沉浸式撒娃娃](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [“中部第二城”或许要变了](http://www.daogukj.com/ictnjmqu/)
-- [演员邵万林去世](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [网友发现罗技广告又以狗比喻用户，客服回应已展开调查，为什么继此前舆论风波后还会出现这种情况？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [蔡文静父亲全程偏袒无血缘的孙子](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [后会友期到底找过多少人啊](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [媒体人：广东男篮给年轻球员交学费了](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [汪峰发长文谈儿女](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [谁最可能成为中国首位登月航天员，他的历史地位将会如何？](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [如何看待南京一助教老师休息日爬山5小时未回工作消息遭辞退？「休息日定时查看3次工作号」的要求合法吗？](http://www.daogukj.com/qaspagub/)
+- [以此朋克，倚老卖老。](http://www.daogukj.com/vbdopqig/)
+- [业内：稳市政策次第出台](http://www.daogukj.com/gkqacstr/)
+- [大家好，这里是 DeepSeek Harness，正式入驻 B 站！](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [2027或是最舒服年](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [马天宇仅互关评论后的杨幂](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [地球上的动物为什么很多都进化出“睡觉”这一习性？](http://www.daogukj.com/qkmfzgih/)
+- [中国公务团组人员被瑞典警方拘押](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [你从未离去 x 平凡之路](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [返场的大额存单没那么香了吗](http://www.daogukj.com/pgcqzahm/)
+- [中国第一大肝病正在侵袭年轻人](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [蔡文静父亲全程偏袒无血缘的孙子](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [一批重大工程建设正酣](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
+- [清理熊患后续，只因西伯利亚棕熊泛滥成灾。](http://www.daogukj.com/5083848)
+- [哟西！故乡的樱花开了！](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
+- [微软向 6 万名员工开放自愿离职方案，为何连 Copilot 部门也成重灾区？](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [全球每3把伞有1把来自这里](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [⚡️⚡️⚡️猫咖倒闭，救救我们⚡️⚡️⚡️](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [探访宁夏贺兰山的老矿区，当地还留下了多少人？](http://www.daogukj.com/5655258)
+- [社保欠缴处罚有了全国统一尺度](http://www.daogukj.com/5414627)
+- [结婚当天离世新郎系心脏压塞死亡](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [【纸绘动画/卡点】爆肝600张！！数形结合！让你爱上数学【手搓动画大赛】](http://www.daogukj.com/4208506)
+- [牛弹琴：内塔尼亚胡很可能被赶下台](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [网传《offer8》「垫钱姐」周沁瑶论文疑似造假，已经面临延毕，她的论文疑点可能在哪里呢？](http://www.daogukj.com/7752186)
+- [“阿姨是世界上第一个离开你的人”](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [樊振东2年没打WTT仍居第二](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [导演江小鱼去世 年仅56岁](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [为什么我们会同情文学里的失败者，却常常看不起现实中同样失败的人？](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [百度网盘的摇一摇广告为什么能绕过苹果系统层面的限制？知情人士称为新版本未上线致功能不适配，是这样吗？](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [伊朗称已组建首支“为伊朗捐躯”旅](http://www.movie.hkepx.cn/movie/4528248.htm)
+- [A股将迎千亿级增量资金](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [美国一邮轮推出 246 万元起「终身旅居」套餐，2 年后因燃油成本乘客被赶下船，怎么看邮轮的毁约行为？](http://www.daogukj.com/plfvnmnj/)
+- [曝许飞没有背刺厉娜](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [“中国最赚钱高铁”今年已经净赚百亿](http://www.daogukj.com/5346308)
+- [【一百日】第八日:未知通讯](http://www.daogukj.com/mwxqddka/)
+- [雪豹凌小寒病亡](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [微软大裁员后许多印度裔员工的上班vlog被扒，上班即食堂、锻炼打球等是真的吗？真实的职场环境是怎样的？](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [联想指纹加密 U 盘被曝拆壳即可明文读取数据，为何硬件加密会形同虚设？](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [如何看待围棋中国规则的贴目更改为贴3.5子？](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [乌镇峰会年年刷屏 今年看什么](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [保时捷女销冠再夺第一，所属公司却半年亏 2.7 亿，个人业绩拉满、公司疯狂失血，传统豪华车市场怎么了？](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [明明是恐怖组织为何只称电诈](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [衣服吊牌比脸大 防的是谁伤的是谁](http://www.daogukj.com/ictnjmqu/)
+- [网友称自己秋招面试竟要12轮](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [【全网最全】DeepSeek Harness超详细教程！50分钟吃透DSH，让SuperAgent给你干活！](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [月嫂最后一次哄睡宝宝让宝妈泪崩](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [美国中期选举临近，捐款榜前十里七家倒向共和党，支持率却不如民主党，为啥金钱失去了以往一锤定音的威力？](https://www.zhihu.com/question/2099494216397054526)
+- [停停停！别再从电影里学习错误的女性知识啦……！](https://b23.tv/BV13oxa6yEPx)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 930898e4114d850a8887 -->
+<!-- content-fingerprint: 12eb5c4cb7510a677633 -->
