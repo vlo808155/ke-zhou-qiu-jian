@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 保时捷女销冠再夺第一，所属公司却半年亏 2.7 亿，个人业绩拉满、公司疯狂失血，传统豪华车市场怎么了？
+# 大范围雨雪天要来
 
-> 来源：知乎热榜 · 排名：第 9 位 · 热度：145 万热度 · 分类：问答 · 更新：2026-11-03T07:54:35+08:00
+> 来源：今日头条热榜 · 排名：第 9 位 · 热度：4423892 · 分类：新事件上榜 · 更新：2026-11-03T13:55:40+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“保时捷女销冠再夺第一，所属公司却半年亏 2.7 亿，个人业绩拉满、公司疯狂失血，传统豪华车市场怎么了？”位列第 9 位，公开热度指标为 145 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“大范围雨雪天要来”位列第 9 位，公开热度指标为 4423892，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月1日，青岛保时捷中心知名销售顾问牟倩文个人社交账号发布的信息显示，截至10月31日，她再次拿到品牌全国销售排名榜首，销量、销售积分双双位列全国第一，但其所属的美东汽车却半年净亏2.75亿元。 这位35岁的销售已经连续三年拿下青岛保时捷中心年度销冠，2023、2024年都卖出170台，2025年销量上涨至192台，2026年10月单月就拿下16台订单，守住全国第一的位次。 据红星新闻报道，过去十个月里，牟倩文一直在朝着登上榜首的目标努力。“过程里也曾被同事赶超，也感到压力，但我始终守住自己的节奏，凭着一股劲儿，向着目标坚持，最终拿到这份销售成绩。”牟
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
 
 ## 相关热点
 
-- [清理熊患后续，只因西伯利亚棕熊泛滥成灾。](mai-du-huan-zhu.md)
-- [“阿姨是世界上第一个离开你的人”](ye-gong-hao-long.md)
-- [樊振东2年没打WTT仍居第二](lan-yu-chong-shu.md)
-- [牛弹琴：内塔尼亚胡很可能被赶下台](zi-xiang-mao-dun.md)
+- [为什么家禽会产下未受精的蛋？这对它们来说是不是本身能量的损耗，利人不利己？是出于什么样的生物学原理？](mai-du-huan-zhu.md)
+- [BLG vs HLE小曲《狼的诱惑》](ye-gong-hao-long.md)
+- [曝许飞没有背刺厉娜](lan-yu-chong-shu.md)
+- [北京高考录取率高家长为什么还卷](zi-xiang-mao-dun.md)
 
 ## 站内推荐
 
-- [如何看10元快剪正暴打全国的「设计总监」？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [三只松鼠发布财报，第三季度主营业务日赚不足 1 万元，为什么会这样？三只松鼠目前经营面临哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [停停停！别再从电影里学习错误的女性知识啦……！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [小黑你爸回你消息了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [冷知识:没 长 眼 睛 不 要 来 开 车 ！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [折射产业结构向新向优向好](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [马斯克与赵长鹏在暗战什么](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [“举报共治 护企远航”倡议将发布](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [乌镇偶遇王兴兴 戴口罩全程低调](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [法国宣布“AI超过中国”背后](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [大家好，这里是 DeepSeek Harness，正式入驻 B 站！](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
-- [美股收盘：三大指数涨跌不一](http://www.movie.hkepx.cn/xiju/7685631.htm)
-- [菲发言人到中国使馆留言区撒泼](http://www.movie.hkepx.cn/xiju/7504816.htm)
-- [“棉服”里面没有棉？不是你眼花](http://www.movie.hkepx.cn/xiju/1803085.htm)
-- [微软大裁员后许多印度裔员工的上班vlog被扒，上班即食堂、锻炼打球等是真的吗？真实的职场环境是怎样的？](http://www.daogukj.com/2496411)
-- [联想指纹加密 U 盘被曝拆壳即可明文读取数据，为何硬件加密会形同虚设？](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
-- [数说进博会新亮点](http://www.movie.hkepx.cn/xiju/0683615.htm)
-- [中长期资金近两年净买入A股超1.5万亿](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
-- [宠粉天花板，请我的粉丝朋友清空一家零食店，你来选我买单，看看要花多少钱](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
-- [纳指收跌1% AI投资回报疑虑升温](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
-- [官方将股票回购增持再贷款政策由阶段性转为长期制度性安排，再贷款利率由1.25％降至1%，将有哪些影响？](http://www.daogukj.com/2645900)
-- [沈阳保洁大叔回应短剧失忆梗](http://www.daogukj.com/7346575)
-- [冷知识:没 长 眼 睛 不 要 来 开 车 ！](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
-- [如何看10元快剪正暴打全国的「设计总监」？](http://www.daogukj.com/8445802)
-- [中国电动客机首飞为何引美媒关注](http://www.daogukj.com/4329793)
-- [白小纯怎么敢写训练像坐牢](http://www.movie.hkepx.cn/movie/9626163.htm)
-- [gpt越来越不行了，是为什么？](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
-- [业内：稳市政策次第出台](http://www.daogukj.com/0966704)
-- [伊朗称已组建首支“为伊朗捐躯”旅](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
-- [三只松鼠发布财报，第三季度主营业务日赚不足 1 万元，为什么会这样？三只松鼠目前经营面临哪些问题？](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
-- [清理熊患后续，只因西伯利亚棕熊泛滥成灾。](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
-- [沈阳副市长和最帅保洁大叔同框](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
-- [蔡文静父亲全程偏袒无血缘的孙子](http://www.movie.hkepx.cn/movie/6145932.htm)
-- [美国一邮轮推出 246 万元起「终身旅居」套餐，2 年后因燃油成本乘客被赶下船，怎么看邮轮的毁约行为？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
-- [美股](http://www.daogukj.com/rlrpcfej/)
-- [巩立姣退役后减重60多斤](http://www.movie.hkepx.cn/xiju/0327873.htm)
-- [如何看待围棋中国规则的贴目更改为贴3.5子？](http://www.movie.hkepx.cn/xiju/2370310.htm)
-- [你从未离去 x 平凡之路](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
-- [地球上的动物为什么很多都进化出“睡觉”这一习性？](http://www.daogukj.com/1151497)
-- [百度网盘的摇一摇广告为什么能绕过苹果系统层面的限制？知情人士称为新版本未上线致功能不适配，是这样吗？](http://www.movie.hkepx.cn/xiju/3375315.htm)
-- [长沙烈士公园穿和服带武士刀拍照](http://www.daogukj.com/mzvmtnbb/)
-- [才知道改名可以改姓](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
-- [牛弹琴：内塔尼亚胡很可能被赶下台](http://www.daogukj.com/oalgvxno/)
-- [雪豹凌小寒病亡](http://www.daogukj.com/3022882)
-- [怎么看 OpenAI CEO 说，最好的内存应该留给数据中心，而不是闲置在本地 PC 浪费？](http://www.daogukj.com/1257732)
-- [红果短剧刷到天亮](http://www.daogukj.com/swfyejft/)
-- [【纸绘动画/卡点】爆肝600张！！数形结合！让你爱上数学【手搓动画大赛】](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
-- [中医大学生街头摆摊按摩 9.9元10分钟](http://www.movie.hkepx.cn/movie/5720053.htm)
-- [“阿姨是世界上第一个离开你的人”](http://www.movie.hkepx.cn/xiju/4451738.htm)
-- [如何看待南京一助教老师休息日爬山5小时未回工作消息遭辞退？「休息日定时查看3次工作号」的要求合法吗？](http://www.movie.hkepx.cn/xiju/8030216.htm)
-- [后会友期到底找过多少人啊](http://www.daogukj.com/faxbfjmv/)
-- [一批重大工程建设正酣](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
-- [A股将迎千亿级增量资金](http://www.movie.hkepx.cn/movie/4952543.htm)
-- [如何解读2026年10月汽车销量榜：比亚迪近49万稳居第一，小米、小鹏齐破5万，鸿蒙智行同比却腰斩？](http://www.movie.hkepx.cn/movie/3155966.htm)
-- [网传《offer8》「垫钱姐」周沁瑶论文疑似造假，已经面临延毕，她的论文疑点可能在哪里呢？](http://www.movie.hkepx.cn/xiju/6207511.htm)
-- [以此朋克，倚老卖老。](http://www.daogukj.com/4160220)
-- [哟西！故乡的樱花开了！](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
-- [美国一公务机在居民区坠毁致9死，距特朗普的海湖庄园仅七八公里，具体情况如何？可能是什么原因？](http://www.movie.hkepx.cn/xiju/3921462.htm)
-- [英国男子1998年从智利出发终于到家](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
-- [【一百日】第八日:未知通讯](http://www.daogukj.com/7980452)
+- [网传九寨沟一老人被劝阻不要插队后发生争执，警方称双方都有责任，具体情况如何？双方应承担什么责任？](http://www.play.hengshemaoyi.cn/xiju/5156420.htm)
+- [A股半导体CPO集体大跌](http://www.movie.hkepx.cn/xiju/7685631.htm)
+- [九寨沟打人事件双方都有责任](http://www.movie.hkepx.cn/xiju/7504816.htm)
+- [如何看待张雪机车在重庆大学宣讲开的薪资，92毕业研发人员年薪12-15万元？在当地和业内算什么水平？](http://www.movie.hkepx.cn/xiju/1803085.htm)
+- [雷军误写小米YU7首付7.99元](http://www.daogukj.com/2496411)
+- [曝厉娜有重度抑郁](http://www.play.hengshemaoyi.cn/kongbu/7034068.htm)
+- [一组数据看黄河治理80年](http://www.movie.hkepx.cn/xiju/0683615.htm)
+- [补办身份证得先刷身份证](http://www.play.hengshemaoyi.cn/kongbu/4249450.htm)
+- [保时捷女销冠再夺第一，所属公司却半年亏 2.7 亿，个人业绩拉满、公司疯狂失血，传统豪华车市场怎么了？](http://www.play.hengshemaoyi.cn/kongbu/3450968.htm)
+- [于东来建议制度支持「消费入座」及拒外带食物，如何看待这一提议？](http://www.play.hengshemaoyi.cn/xiju/7948605.htm)
+- [赴港看演唱会女孩低保已被取消](http://www.daogukj.com/2645900)
+- [大家好，这里是 DeepSeek Harness，正式入驻 B 站！](http://www.daogukj.com/7346575)
+- [法国宣布“AI超过中国”背后](http://www.play.hengshemaoyi.cn/kongbu/4045651.htm)
+- [折射产业结构向新向优向好](http://www.daogukj.com/8445802)
+- [“卖导弹的小姐姐”有新消息](http://www.daogukj.com/4329793)
+- [《猫和老鼠》中的配乐细节竟然有这么多？！](http://www.movie.hkepx.cn/movie/9626163.htm)
+- [湖南烈士公园回应女生穿和服拍照](http://www.play.hengshemaoyi.cn/xiju/8979726.htm)
+- [目击者回应九寨沟老人打人](http://www.daogukj.com/0966704)
+- [警方介入九寨沟打人事件](http://www.play.hengshemaoyi.cn/xiju/9317681.htm)
+- [马斯克与赵长鹏在暗战什么](http://www.play.hengshemaoyi.cn/xiju/3446761.htm)
+- [为什么家禽会产下未受精的蛋？这对它们来说是不是本身能量的损耗，利人不利己？是出于什么样的生物学原理？](http://www.play.hengshemaoyi.cn/xiju/1037407.htm)
+- [沈阳保洁大叔：年轻时相亲被嫌弃丑](http://www.play.hengshemaoyi.cn/kongbu/6598318.htm)
+- [谁是有史以来最能整活的超级天才！](http://www.movie.hkepx.cn/movie/6145932.htm)
+- [如何看待10元快剪正暴打全国的「设计总监」？](http://www.play.hengshemaoyi.cn/kongbu/9139086.htm)
+- [冷知识:没 长 眼 睛 不 要 来 开 车 ！](http://www.daogukj.com/rlrpcfej/)
+- [这还能是童年套圈机！？做成世界大赛！](http://www.movie.hkepx.cn/xiju/0327873.htm)
+- [疑似和张萌发生争吵的不是马天宇](http://www.movie.hkepx.cn/xiju/2370310.htm)
+- [吉林省2026年职工养老金计发基数出炉](http://www.play.hengshemaoyi.cn/xiju/3198994.htm)
+- [女子赴港看演出低保已被取消](http://www.daogukj.com/1151497)
+- [九寨沟老人打人](http://www.movie.hkepx.cn/xiju/3375315.htm)
+- [世界上最贵的象拔蚌，客人嫌贵不吃，厨师长下班了开个小灶](http://www.daogukj.com/mzvmtnbb/)
+- [网传《offer8》「垫钱姐」周沁瑶论文疑似造假，已经面临延毕，她的论文疑点可能在哪里呢？](http://www.play.hengshemaoyi.cn/kongbu/8876900.htm)
+- [北京高考录取率高家长为什么还卷](http://www.daogukj.com/oalgvxno/)
+- [小黑你爸回你消息了](http://www.daogukj.com/3022882)
+- [高圆圆随便打扮一下就成法拉利了](http://www.daogukj.com/1257732)
+- [嫁金钗大结局](http://www.daogukj.com/swfyejft/)
+- [李佳琦直播间半小时售出 2 万亿 Token，AI Token 会成为未来直播带货的热销品吗？](http://www.play.hengshemaoyi.cn/kongbu/8291517.htm)
+- [2026 年美国中期选举，共和党与民主党谁能最终获胜？](http://www.movie.hkepx.cn/movie/5720053.htm)
+- [BLG vs HLE小曲《狼的诱惑》](http://www.movie.hkepx.cn/xiju/4451738.htm)
+- [后会友期嘉宾学历盘点](http://www.movie.hkepx.cn/xiju/8030216.htm)
+- [警方回应九寨沟冲突：年轻一方先动手](http://www.daogukj.com/faxbfjmv/)
+- [世界互联网大会乌镇峰会创下多个首次](http://www.play.hengshemaoyi.cn/kongbu/4650602.htm)
+- [一条没下巴的鱼杀穿奥陶纪？](http://www.movie.hkepx.cn/movie/4952543.htm)
+- [退休时间按哪天算](http://www.movie.hkepx.cn/movie/3155966.htm)
+- [美坠机事故9名遇难者身份曝光](http://www.movie.hkepx.cn/xiju/6207511.htm)
+- [詹姆斯场边喝的球迷饮料是红酒](http://www.daogukj.com/4160220)
+- [《原神》角色预告-「米提亚：井井有条」](http://www.play.hengshemaoyi.cn/xiju/1645599.htm)
+- [iPhoneDuo黄牛亏懵了](http://www.movie.hkepx.cn/xiju/3921462.htm)
+- [【纪录片】蓝色星球 第三季 01 热带海域](http://www.play.hengshemaoyi.cn/kongbu/5960777.htm)
+- [男子被拐30多年认亲后拉黑养家](http://www.daogukj.com/7980452)
 
 </details>
 
 ## 原始来源
 
-- [保时捷女销冠再夺第一，所属公司却半年亏 2.7 亿，个人业绩拉满、公司疯狂失血，传统豪华车市场怎么了？](https://www.zhihu.com/question/2100560990764889476)
+- [大范围雨雪天要来](https://www.toutiao.com/trending/7703751484160213531/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227703751484160213531%22%2C%22hot_board_impr_id%22%3A%2220261103135537D290ACCF56463637D504%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d38d9b6d51759892ab90 -->
+<!-- content-fingerprint: 9aba04b70fa25d130c12 -->
