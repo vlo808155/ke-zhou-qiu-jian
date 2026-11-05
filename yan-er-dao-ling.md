@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 女子在胖东来洗手间洗头引热议
+# 小伙200多万买14套房年收租21万，成功实现30岁退休，这是怎么做到的？会涉及交税问题吗？
 
-> 来源：今日头条热榜 · 排名：第 9 位 · 热度：9909745 · 更新：2026-11-05T05:27:27+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：134 万热度 · 分类：问答 · 更新：2026-11-05T09:44:39+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“女子在胖东来洗手间洗头引热议”位列第 9 位，公开热度指标为 9909745。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“小伙200多万买14套房年收租21万，成功实现30岁退休，这是怎么做到的？会涉及交税问题吗？”位列第 9 位，公开热度指标为 134 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：总共花200多万元，吉林小伙范俊杰2023年在长沙入手了14套房 ，年收租达21万3千，成功实现30岁退休。其中，最贵的一套总价为24万5千元，月租金达2200元；最便宜的一套总价为15万元，月租金稳定在1700元左右。近日，他在社交平台坦言，入局最佳时机已过，他决定不再增持房产。 【 #小伙200多万买14套房年收租21万#】媒体界报道，吉林小伙子范俊杰在湖南省会长沙买了14套房 ，年收租达21万3千元，成功实现30岁退休。就此，弱弱地问：小伙子，交税了吗？这么高调，难道不怕税务局盯上么？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [《西游记》真假美猴王之后，唐僧再也没有念过紧箍咒，是孙悟空真的被换掉了吗？](nan-yuan-bei-zhe.md)
-- [不看电视不接电话的中国人](mai-du-huan-zhu.md)
-- [河南一超市卫生巾被曝有蛆虫](ye-gong-hao-long.md)
-- [中国男篮公布世预赛集训名单](lan-yu-chong-shu.md)
+- [蓝潮来袭：民主党参众、州选横扫，懂王进入跛脚鸭时间](nan-yuan-bei-zhe.md)
+- [厉娜简介删掉经纪人吴立琪联系方式](mai-du-huan-zhu.md)
+- [曝勇士拒绝给波尔津吉斯支付薪水](ye-gong-hao-long.md)
+- [王毅把话说到不可容忍 菲方听懂了吗](lan-yu-chong-shu.md)
 
 ## 站内推荐
 
-- [新技术、新成果亮相互联网之光博览会](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [沃尔沃XC70落地不到20万](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [巴彦淖尔一医院大楼起火图系AI生成](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [46岁高圆圆红毛衣生图](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [台北民众吐露心声：一定要换掉民进党](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [方浩明以亲身经历感知中国](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [51岁阿姨参加健美比赛 体脂率12%](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [为什么 GPT 先起飞，Claude 现在却断档领先？他们有独特的训练方法吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [22岁女孩月薪3500，存款35000，有买车的想法，接受贷款，到底买还是不买？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [年近37岁了，公司感觉马上要黄了，是熬到公司倒闭拿到赔偿金还是尽早跳槽找下一份工作？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [《英雄联盟》S16 首场八强赛决胜局遭遇超长暂停，现场发生了什么？](http://www.daogukj.com/dzgfjkrf/)
-- [后会友期第二季呼声TOP10](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
-- [方浩明以亲身经历感知中国](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
-- [《锻刀大赛》神仙打架！全大马锻造泰国战刀 评委舍不得淘汰](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
-- [红果超越豆包](http://www.daogukj.com/3970663)
-- [男子转情人2575万，情人回转2258万，妻子要求返全款，法院判还317万元差额，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/5367817.htm)
-- [《西游记》真假美猴王之后，唐僧再也没有念过紧箍咒，是孙悟空真的被换掉了吗？](http://www.daogukj.com/bcavubqj/)
-- [IG淘汰TES 挺进S16半决赛](http://www.daogukj.com/8795484)
-- [没想到脂肪肝和抑郁症有关系](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
-- [胡歌自曝过了40岁身体开始走下坡路，已戒烟很久，出差会背AED，年龄真是分水岭吗？这些措施用处有多大？](http://www.movie.hkepx.cn/xiju/9388208.htm)
-- [高市早苗以怪异姿势面见日本天皇](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
-- [上岸第一件先娶意中人](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
-- [iPhone Duo 开售一周行情遇冷，业内调侃「一个成功的黄牛起码亏十几万」，背后的核心原因是什么？](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
-- [杨坤自曝患抑郁症20年](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
-- [央视曝光新型兼职骗局](http://www.daogukj.com/3703920)
-- [何洁在《后会友期》中直言「05 超女前三她都不爽」，她们之间发生了什么？](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
-- [许飞看到之后不得迷死啊](http://www.daogukj.com/akojpuxw/)
-- [“社恐”到这种程度 可能是生病了](http://www.movie.hkepx.cn/movie/0307482.htm)
-- [阿曼为何把航天大单交给中国](http://www.movie.hkepx.cn/xiju/4985219.htm)
-- [不看电视不接电话的中国人](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
-- [叶非夜实名举报郭宇欣偷税漏税](http://www.daogukj.com/sqbgfepf/)
-- [出租屋轻生男子6岁儿子患病长期住院](http://www.daogukj.com/0772573)
-- [《今日得吃朱古力》](http://www.daogukj.com/iaiklsqf/)
-- [高市早苗面见日本天皇姿势被批丢人](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
-- [“如果这钱能提出来 我警察不当了”](http://www.daogukj.com/iejdmdav/)
-- [王毅把话说到不可容忍 菲方听懂了吗](http://www.daogukj.com/3595629)
-- [LPL赛区内战 IG战胜TES晋级四强【2026英雄联盟全球总决赛】](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
-- [中方回应“如何看待美国中期选举”](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
-- [人到中年为何蹲不下去了](http://www.daogukj.com/7736560)
-- [【崩铁】星神★阿哈综合测评：献予欢愉之诗！欢愉全体升格！武器对比+技能解读+遗器选择+星魂提升！](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
-- [韩网吐槽没有年轻人演了吗](http://www.daogukj.com/9580900)
-- [我找到了本世纪最上头的渣男之歌](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
-- [网传DeepSeek V5 已经做出来了但官方未发布，是真的吗？可能什么时候发布？](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
-- [阿黄有房了【AI全民制作人】](http://www.daogukj.com/lsbolopb/)
-- [中国男篮公布世预赛集训名单](http://www.daogukj.com/ssuxjwef/)
-- [【2026全球总决赛】11月4日 TES vs IG](http://www.daogukj.com/ukxzmdih/)
-- [气象部门辟谣多地气温-32℃](http://www.movie.hkepx.cn/movie/0461195.htm)
-- [【合集】《阿丘的花语》（第一章终剪版）【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
-- [51岁阿姨参加健美比赛 体脂率12%](http://www.movie.hkepx.cn/movie/9527500.htm)
-- [乖乖待在我身边学微积分不好吗？](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
-- [刘念被曝要求九一分成被拒](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
-- [AIGC 月光鱼屋丨第三集 汆白肉](http://www.daogukj.com/hvfyixhj/)
-- [河南奶奶用废品做墩墩卖到美国](http://www.movie.hkepx.cn/movie/4719114.htm)
-- [A股迎来“大奇迹日” 后市怎么看](http://www.daogukj.com/jollzwuo/)
-- [陕西教育厅通报“延安大学教师离世”](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
-- [如果军长已经坚决下达了必须执行的命令，而旅长坚定认为命令是错的，一定会导致战役的失败，那怎么办？](http://www.movie.hkepx.cn/movie/4200387.htm)
-- [沃尔沃XC70落地不到20万](http://www.movie.hkepx.cn/xiju/0668299.htm)
-- [巴彦淖尔一医院大楼起火图系AI生成](http://www.movie.hkepx.cn/xiju/2277955.htm)
-- [“花坛藏尸案”将于本月10日一审宣判](http://www.daogukj.com/7974348)
-- [儿子沉迷看电视，爸爸「魔改」电视系统，看 10 分钟抽查一道题，这招怎么样？对孩子管用吗？](http://www.movie.hkepx.cn/xiju/6045140.htm)
+- [我找到了本世纪最上头的渣男之歌](http://www.daogukj.com/dzgfjkrf/)
+- [这储粮神器太香了](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
+- [中国智能经济新形态加速崛起](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
+- [美股收盘 中国资产爆发](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
+- [《今日得吃朱古力》](http://www.daogukj.com/3970663)
+- [你不会觉得这是人吧？](http://www.movie.hkepx.cn/movie/5367817.htm)
+- [蓝潮来袭：民主党参众、州选横扫，懂王进入跛脚鸭时间](http://www.daogukj.com/bcavubqj/)
+- [延安大学副教授疑连续两个聘期未达标](http://www.daogukj.com/8795484)
+- [特朗普中期选举失利后首次露面](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
+- [盲僧](http://www.movie.hkepx.cn/xiju/9388208.htm)
+- [黄渤谈父母患老年痴呆](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
+- [人民日报评AI歌曲《过来人》出圈](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
+- [固态硬盘渠道价连续两周大面积下跌｜显卡日报11月5日](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
+- [陕西发生重大刑案致3死2伤，嫌疑人持刀在逃，有再次行凶风险，目前具体情况如何？](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
+- [高市早苗面见日本天皇姿势被批丢人](http://www.daogukj.com/3703920)
+- [【影之刃零】⚡超⚡级⚡爆⚡爆⚡回⚡](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
+- [沃尔沃XC70落地不到20万](http://www.daogukj.com/akojpuxw/)
+- [不看电视不接电话的中国人](http://www.movie.hkepx.cn/movie/0307482.htm)
+- [如何评价 DeepSeek 工程师高熙说的「AI竞赛中，真正的对手不是其他大模型公司，而是时间」？](http://www.movie.hkepx.cn/xiju/4985219.htm)
+- [厉娜简介删掉经纪人吴立琪联系方式](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
+- [女子花1200万买商铺 开门营业时傻眼](http://www.daogukj.com/sqbgfepf/)
+- [学者：日本对台敲骨吸髓](http://www.daogukj.com/0772573)
+- [气象部门辟谣多地气温-32℃](http://www.daogukj.com/iaiklsqf/)
+- [厉娜回应粉丝](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
+- [“偷拍黑产”调查：约14万女性被偷拍](http://www.daogukj.com/iejdmdav/)
+- [福建舰入列一周年](http://www.daogukj.com/3595629)
+- [《嫁金钗》忘删AI水印](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
+- [张萌真的是一个很有眼光的妙人](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
+- [如果军长已经坚决下达了必须执行的命令，而旅长坚定认为命令是错的，一定会导致战役的失败，那怎么办？](http://www.daogukj.com/7736560)
+- [男子花光积蓄买7斤黄金亏了114万](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
+- [福建舰的这一“弹” 到底有多猛](http://www.daogukj.com/9580900)
+- [“如果这钱能提出来 我警察不当了”](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
+- [闲鱼上有多少灰产？为什么说闲鱼是国内最大的暗网？](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
+- [S16淘汰赛GEN 3:0 击败 LYON进入四强，如何评价这场比赛？](http://www.daogukj.com/lsbolopb/)
+- [王毅把话说到不可容忍 菲方听懂了吗](http://www.daogukj.com/ssuxjwef/)
+- [【只对你有感觉】|“【恋爱の小曲】”](http://www.daogukj.com/ukxzmdih/)
+- [大学生无偿代跑拒绝供出同学](http://www.movie.hkepx.cn/movie/0461195.htm)
+- [A股开盘：三大指数集体低开 5股涨停](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
+- [美股史诗级暴涨](http://www.movie.hkepx.cn/movie/9527500.htm)
+- [大额存单密集重启！多家银行已售罄](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
+- [家属准备安葬发现骨灰错了](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
+- [我请客的饭局席间一人感谢主赐他日用的饮食，我开玩笑说那这顿我不买单了，他为何会生气？](http://www.daogukj.com/hvfyixhj/)
+- [金价急涨买还是卖](http://www.movie.hkepx.cn/movie/4719114.htm)
+- [黄浦江边有人放生大闸蟹，网友称这是「变相杀生且破坏生态」，这是真的吗？可能会对水质和环境带来哪些影响？](http://www.daogukj.com/jollzwuo/)
+- [乌萨奇修仙传·极](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
+- [陕西重大刑案3死2伤：有民警受伤](http://www.movie.hkepx.cn/movie/4200387.htm)
+- [51岁阿姨参加健美比赛 体脂率12%](http://www.movie.hkepx.cn/xiju/0668299.htm)
+- [为什么 GPT 先起飞，Claude 现在却断档领先？他们有独特的训练方法吗？](http://www.movie.hkepx.cn/xiju/2277955.htm)
+- [油价重挫原因](http://www.daogukj.com/7974348)
+- [古人头皮痒了，为什么宁可拿篦子刮，也不烧水洗头？](http://www.movie.hkepx.cn/xiju/6045140.htm)
 
 </details>
 
 ## 原始来源
 
-- [女子在胖东来洗手间洗头引热议](https://www.toutiao.com/trending/7704062848699301951/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227704062848699301951%22%2C%22hot_board_impr_id%22%3A%22202611050527268375A7F20270548B8799%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [小伙200多万买14套房年收租21万，成功实现30岁退休，这是怎么做到的？会涉及交税问题吗？](https://www.zhihu.com/question/2101275943104951665)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f88c17de7510f26e59a3 -->
+<!-- content-fingerprint: 9173613b9e65afec011d -->
