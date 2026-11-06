@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 英伟达总市值跌至4.5万亿美元
+# 美国多州州长拟暂停审批 AI 数据中心，将对算力基建产生哪些连锁反应？
 
-> 来源：百度热搜 · 排名：第 11 位 · 热度：6756261 · 更新：2026-11-06T06:28:06+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：194 万热度 · 分类：问答 · 更新：2026-11-06T10:46:56+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“英伟达总市值跌至4.5万亿美元”位列第 11 位，公开热度指标为 6756261。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“美国多州州长拟暂停审批 AI 数据中心，将对算力基建产生哪些连锁反应？”位列第 11 位，公开热度指标为 194 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月5日消息，英伟达股价下跌6.7%，报186.730美元/股，总市值报4.50万亿美元。
+来源公开摘要显示：凤凰网财经 美国AI基建的狂飙突进，正迎来一场始料未及的“政治变天”。在周二举行的美国选举中，民主党大获全胜——不仅从共和党手中夺下国会参众两院控制权，更在得克萨斯、佐治亚、俄亥俄等多个数据中心重镇赢下州长宝座。这四位新当选的州长，无一例外都把“严管数据中心”写进了竞选纲领。据测算，全美约半数拟建AI数据中心项目，或将因此陷入更严格的地方审查与阻力之中。市场的神经已被率先挑动，彭博数据显示，周三（10月4日）早盘，标普500指数期货一度下挫1.2%，纳斯达克100指数期货更是重挫2.2%，三星电子、SK海力士、台积电等全球AI硬件供应链应声下跌。 得州“
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [电竞男这两位闹翻了](qi-ren-you-tian.md)
-- [女子称应聘医院岗位被要求上交丝袜](chao-san-mu-si.md)
-- [淘宝闪购上线「家宴」高端外卖项目，引进米其林品牌，高端外卖市场大吗？](dui-niu-tan-qin.md)
-- [真的需要摸吗？MacBook Pro PROLED XDR上手](mang-ren-mo-xiang.md)
+- [TES·369单曲《莫问归期》——“若临别眼眶莫湿，只需一句明年一起至。挥挥手莫藏心事，少年辞。”](qi-ren-you-tian.md)
+- [周末多地将现强雨雪](chao-san-mu-si.md)
+- [韩国解说看BLG三比零DK快哭了](dui-niu-tan-qin.md)
+- [为什么你越安慰 孩子越有压力？](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
-- [大学生身挂 11 部手机无偿代跑校园跑，被查后独自扛下处分不供出同学，这算真义气还是真违规？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [反中乱港分子黄之锋再判 10 年，哪些信息值得关注？带来哪些警示？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [一句 “我画地为牢啊厉娜”！揭开埋藏十五年的超女意难平《后会友期》许飞厉娜线解说版](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [全球首个仿生人形机器人新闻主播发布](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [C罗宣布从葡萄牙国家队退役](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [三岁半男孩给电视里的红军递饼干](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [月薪8000，同事天天点星巴克下午茶，我却连奶茶都舍不得喝，这种消费观差距正常吗？该怎么调整心态？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [中国有没有那种中国人不怎么去，但是外国人却很喜欢去的古迹?](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [广东拟规定电话手表、手机等智能终端不得入校，你支持这样的规定吗？实际落地可能会遇到哪些问题？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [美股史诗级暴跌，单日蒸发约 2.8 万亿美元，AI 产业链集体崩盘，是单纯监管预期利空还是大行情拐点？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [王子璇手机是被收走的](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [淘宝闪购上线「家宴」高端外卖项目，引进米其林品牌，高端外卖市场大吗？](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [人社局回应小学无薪酬招跟岗教师](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [张雪自掏 30 万给公司首席发动机工程师买房，要求只能写员工自己名字，如何看待这一举措？](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [【张靓颖】本up抵达心湖（见过沐小葵版）](http://www.daogukj.com/qaspagub/)
-- [警惕“到手刀”套路](http://www.daogukj.com/vbdopqig/)
-- [钱德勒·帕森斯吐槽中国品牌球鞋「给钱多，但鞋太烂，我受伤绝对跟这有关系」，这算实话实说，还是吃饭砸锅？](http://www.daogukj.com/gkqacstr/)
-- [《崩坏：星穹铁道》阿哈的抓马小曲](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [曝白小纯天早期天霸工资](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [刘晓庆发文称被人算计](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [冯远征认为 AI 短剧里的角色长相完美，却让人看完就忘，「因为角色没有呼吸」，你同意此观点吗？](http://www.daogukj.com/qkmfzgih/)
-- [官方回应居民医保参保人数下降](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [大众中国发布声明](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [《影之刃零》这种 “一键美化连招” 的设计，算不算动作游戏界的美图秀秀？是创新还是虚假的操作爽感？](http://www.daogukj.com/pgcqzahm/)
-- [王一博又从瓜田路过](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [男星袁成杰成老赖 曾与戚薇搭档组合](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
-- [世界互联网大会乌镇峰会今天闭幕](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [无薪招聘](http://www.daogukj.com/5083848)
-- [德国籍中医想将墓碑药方抄录带回](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [Wei：我不是野核~](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [普京签署法令接管日本烟草在俄资产](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [S16淘汰赛：BLG对决DK](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [美股存储板块大跌 闪迪跌超17%](http://www.daogukj.com/5655258)
-- [马斯克豪掷4.45亿美元押注共和党却失利，特斯拉、SpaceX应声下挫，接下来会面临怎样的监管压力？](http://www.daogukj.com/5414627)
-- [朋友为八个被扔蛋黄讨公道](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [只因“懒得下楼” 一对父女双双被抓](http://www.daogukj.com/4208506)
-- [瞎说的什么玩意？](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [C罗官宣从葡萄牙国家队正式退役，如何评价此事，他为何会选择在此时退役？](http://www.daogukj.com/7752186)
-- [黄之锋再获刑10年](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [小伙200多万买14套房年收租21万，成功实现30岁退休，这是怎么做到的？会涉及交税问题吗？](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [2026年寒假的《林冲：风雪山神庙》，能给追光这几年的票房连续扑街止损吗？](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [【2026全球总决赛】11月5日 GEN vs LYON](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [特朗普危！中期选举两院全丢，弹劾、调查、政府关门哪项等着他？](http://www.movie.hkepx.cn/movie/4507886.htm)
-- [大学生身挂 11 部手机无偿代跑校园跑，被查后独自扛下处分不供出同学，这算真义气还是真违规？](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [黄渤因阿尔兹海默遗传风险恐惧多年](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
-- [《崩坏：因缘精灵》幸福PV：缘汽一下](http://www.daogukj.com/plfvnmnj/)
-- [女子称应聘医院岗位被要求上交丝袜](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [2027年假期安排出炉 春节连休9天](http://www.daogukj.com/5346308)
-- [C罗宣布从葡萄牙国家队退役](http://www.daogukj.com/mwxqddka/)
-- [两把速通双信物！跟全图人机交朋友的来！](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [反中乱港分子黄之锋再判 10 年，哪些信息值得关注？带来哪些警示？](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [7点50，大肥鱼催你上早八](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [你恢复一下，我还是喜欢你刚刚桀骜不驯的样子！](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [6G有啥不一样](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [一句 “我画地为牢啊厉娜”！揭开埋藏十五年的超女意难平《后会友期》许飞厉娜线解说版](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [《王从天降》](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [金融危机的根源是灰犀牛问题还是黑天鹅问题？](http://www.daogukj.com/ictnjmqu/)
-- [离职后先休息一阵子是否合理？](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [不是在拍热点就是在拍热点的路上！终于一次性拍完所有热点了，厉娜！](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [杭州骨灰撒钱塘江已有八百余户报名，符合条件的还能领两千元补贴，如何看待这一服务？会影响生态环境吗？](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [DK输BLG后台镜头曝光](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [韩国解说看BLG三比零DK快哭了](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [Wei：我不是野核~](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [如何看待 TheShy 谈及回归原因「曾许诺 iG 老板有困难联系我，队伍掉入涅槃后我必须信守承诺」？](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [普京签令临时接管日本烟草在俄工厂](http://www.daogukj.com/qaspagub/)
+- [曝 DeepSeek V5 将采用华为昇腾 950 芯片作为核心训练算力，这意味着什么？](http://www.daogukj.com/vbdopqig/)
+- [温瑞博回应胜王楚钦：没想到能赢](http://www.daogukj.com/gkqacstr/)
+- [S16 淘汰赛 BLG 3:0 淘汰 DK 晋级四强，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [陆翊前两年还和文吉儿有联系](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [卫诗雅：买房买在了高点超级后悔](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [2026WTT法兰克福冠军赛，王楚钦 0-3 温瑞博，无缘男单八强，如何评价本场比赛？](http://www.daogukj.com/qkmfzgih/)
+- [小城机场开始大洗牌](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [如何看待当年大陆追台湾偶像剧，到如今台湾追大陆红果短剧的变化？](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [结婚两周年精心打扮却淋雨](http://www.daogukj.com/pgcqzahm/)
+- [7点50，大肥鱼催你上早八](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [200万买14套房年收租21万 当事人发声](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [何以中国对话红山](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
+- [女人的身体为什么这么美妙 | Miniskirt-AOA｜短裙的权威我后知后觉](http://www.daogukj.com/5083848)
+- [【2026全球总决赛】11月6日 DK vs BLG](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
+- [太原一小学招「跟岗教师」无薪资食宿、备用上岗，要求本科有教资，人社局回应肯定不对，为什么会有这种形式？](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [梁圣：克劳德，你的纯度太低了](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [独居养猫后为什么感觉失去了自由？](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [《三角洲行动》全新【微光】赛季故事短片](http://www.daogukj.com/5655258)
+- [【S16 TES战败单曲】这不是天，这就是‘二’！](http://www.daogukj.com/5414627)
+- [外卖大战三家少了上千亿](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [【张靓颖】本up抵达心湖（见过沐小葵版）](http://www.daogukj.com/4208506)
+- [《谷雨》爆火打脸多少流水线悬疑剧](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [“女老虎”余艳红主动投案被查](http://www.daogukj.com/7752186)
+- [“厉娜体”刷屏全网 跟风模仿侵权吗](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [黄金](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [文吉儿 陆翊](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [农机手收割3亩地被指漏粮1000斤](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [不放秋假就是违规？存在误区](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [三岁半男孩给电视里的红军递饼干](http://www.movie.hkepx.cn/movie/4528248.htm)
+- [别再乱吃！这些食物是结节“助推器”](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [美股创 19 个月来最大单日跌幅、纳指暴跌5.52%，科技股遭遇抛售潮，引发市场恐慌的核心原因是什么？](http://www.daogukj.com/plfvnmnj/)
+- [周末多地将现强雨雪](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [《崩坏：因缘精灵》幸福PV：缘汽一下](http://www.daogukj.com/5346308)
+- [美股史诗级暴跌，单日蒸发约 2.8 万亿美元，AI 产业链集体崩盘，是单纯监管预期利空还是大行情拐点？](http://www.daogukj.com/mwxqddka/)
+- [王子璇道歉发言疑似抄袭AI短剧文案](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [月薪8000，同事天天点星巴克下午茶，我却连奶茶都舍不得喝，这种消费观差距正常吗？该怎么调整心态？](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [韩国股市跌至熔断](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [得州候任州长：必须叫停数据中心项目](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [【短片大芬】以后](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [中国有没有那种中国人不怎么去，但是外国人却很喜欢去的古迹?](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [BLG3比0横扫DK晋级半决赛](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [“恐怖片”](http://www.daogukj.com/ictnjmqu/)
+- [失联清华留英硕士自述被诈骗过程](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [物理意义上烫烫的一集](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [郑丽文质疑郑朝方家人介入市政](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [英伟达总市值跌至4.5万亿美元](https://www.baidu.com/s?wd=%E8%8B%B1%E4%BC%9F%E8%BE%BE%E6%80%BB%E5%B8%82%E5%80%BC%E8%B7%8C%E8%87%B34.5%E4%B8%87%E4%BA%BF%E7%BE%8E%E5%85%83&sa=fyb_news&rsv_dl=fyb_news)
+- [美国多州州长拟暂停审批 AI 数据中心，将对算力基建产生哪些连锁反应？](https://www.zhihu.com/question/2101356243331839893)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d2a353d043715df733f7 -->
+<!-- content-fingerprint: aed5552636e29a0bac99 -->
