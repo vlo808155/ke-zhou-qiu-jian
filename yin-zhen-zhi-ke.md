@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# KC挑衅Faker
+# 姜妍吃的饭被蒋欣看到天要塌了
 
-> 来源：微博热搜 · 排名：第 13 位 · 热度：232079 · 分类：电竞 · 更新：2026-11-07T01:30:59+08:00
+> 来源：微博热搜 · 排名：第 13 位 · 热度：85899 · 分类：艺人 · 更新：2026-11-07T06:20:34+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“KC挑衅Faker”位列第 13 位，公开热度指标为 232079，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“姜妍吃的饭被蒋欣看到天要塌了”位列第 13 位，公开热度指标为 85899，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `电竞`
+`微博热搜` `实时热搜` `热点资讯` `艺人`
 
 ## 相关热点
 
-- [小米成立中国区公关部](ke-zhou-qiu-jian.md)
-- [国防部：须高度警惕日本重启战争机器](yan-er-dao-ling.md)
-- [如何评价DeepSeek Harness公布日活用户达150万？这会影响AI编程和智能体市场的竞争吗？](nan-yuan-bei-zhe.md)
-- [乖乖待在我身边学英语不好吗？非要把你关起来吗？](mai-du-huan-zhu.md)
+- [WTA年终总决赛单人照公布](ke-zhou-qiu-jian.md)
+- [男子心梗前给豆包打电话救了自己](yan-er-dao-ling.md)
+- [研究生导师是更喜欢保研上来的学生还是考研上来的学生？](nan-yuan-bei-zhe.md)
+- [多国禁映、教会震怒！郇山隐修竟是一个世纪骗局？《达芬奇密码》背后的创作故事远比你想象的还要精彩！](mai-du-huan-zhu.md)
 
 ## 站内推荐
 
-- [【2026全球总决赛】11月6日 DK vs BLG](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [《崩坏：星穹铁道》公益第三卷：「抵达彩色的彼方」](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
 - [圆通总裁潘水苗心疼儿子Tim工作辛苦](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
 - [智慧教室会侵犯学生隐私系误读](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [曝我们来了阵容](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [皮肤一碰就破女孩父母称不生二胎](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [重大气象灾害暴雪四级应急响应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [赵丽颖周迅打招呼](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女中医说墓碑上的药方实用还不贵](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
-- [许飞非虚构写作级别的表达](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
-- [康康加入XLG！VCTCN银河战舰正式起航！](http://www.daogukj.com/tqrulkrm/)
-- [如何评价DeepSeek Harness公布日活用户达150万？这会影响AI编程和智能体市场的竞争吗？](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
-- [中国造出人类已知最冷物质有什么用](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
+- [人这一生最应该追求什么？](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
+- [全麻胃肠镜睡一觉就做完](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
+- [S16淘汰赛：KC对决T1](http://www.daogukj.com/tqrulkrm/)
+- [研究生导师是更喜欢保研上来的学生还是考研上来的学生？](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
+- [抛开工资不谈，工作是为了什么？](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
 - [美国10月非农远超预期](http://www.daogukj.com/2903535)
 - [陈都灵发言 大气](http://www.movie.hkepx.cn/movie/8396411.htm)
-- [网友解读白小纯审判青稚](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
-- [小米成立中国区公关部](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
-- [我要从中国走到欧洲，你觉得能成功吗｜拉在路上](http://www.movie.hkepx.cn/movie/7093450.htm)
-- [如何评价《原神》新角色安娜丝塔夏立绘？](http://www.daogukj.com/2824694)
-- [为什么现在的棉服填充物都是聚酯纤维而不是棉花？](http://www.daogukj.com/yjkpaybt/)
+- [小米澎程主驾车门被撞仍保护车主](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
+- [WTA年终总决赛单人照公布](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
+- [“你土木的不会抽烟？？废物”](http://www.movie.hkepx.cn/movie/7093450.htm)
+- [云南咖啡为何走不出中国？](http://www.daogukj.com/2824694)
+- [如果给你月薪9000，天天去图书馆看书你愿意吗？](http://www.daogukj.com/yjkpaybt/)
 - [存款利率拐点来了？有储户存500万](http://www.daogukj.com/9138421)
 - [【八仙！】有钱就是年轻啊](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
-- [赵丽颖周迅打招呼](http://www.movie.hkepx.cn/xiju/5067207.htm)
+- [青稚听到和白小纯一起住偷笑](http://www.movie.hkepx.cn/xiju/5067207.htm)
 - [民主党提出超级 AI 禁令，美股迎来 1896 年以来中期选举后表现最差的第二个交易日，影响有多大？](http://www.daogukj.com/7199630)
-- [每天给你5000元，但是第二天你的存款会自动消失，你愿意吗？](http://www.movie.hkepx.cn/movie/6135897.htm)
-- [酒店27层落地窗可外开且无护栏](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
-- [姜妍吃的饭被蒋欣看到天要塌了](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
+- [我让老公把一盘土豆丝倒女儿碗里，她气的把筷子摔了，还向我爆粗口，我教训了她一顿，我做错了吗？](http://www.movie.hkepx.cn/movie/6135897.htm)
+- [人民日报评女厕偷拍黑产](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
+- [后会友期综史一](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
 - [无薪跟岗 教师招聘不带这么羞辱人的](http://www.daogukj.com/2412867)
 - [如何看待仰望U9 Xtreme在阿布扎比开放公路跑出503.17km/h这件事？](http://www.daogukj.com/0344516)
-- [沙僧在流沙河时，那么猖狂，为什么拜唐僧为师之后就毕恭毕敬了？](http://www.movie.hkepx.cn/movie/0187296.htm)
+- [70年代及之前的PLA为什么普遍是驮马步兵师？为什么没有采用载重量更大的挽马？](http://www.movie.hkepx.cn/movie/0187296.htm)
 - [一图速览进博会亮点](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
-- [为什么说住宅楼的空调机位是“反人类”设计？](http://www.daogukj.com/qfjukyqn/)
-- [我让老公把一盘土豆丝倒女儿碗里，她气的把筷子摔了，还向我爆粗口，我教训了她一顿，我做错了吗？](http://www.daogukj.com/uumjcsie/)
-- [男子预判金价能到2000元/克，花光积蓄买7斤黄金，9个月亏114万元，急用钱无奈割肉，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
-- [曝乔欣有孩子了](http://www.movie.hkepx.cn/movie/7623929.htm)
-- [人民日报评女厕偷拍黑产](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
-- [《崩坏：星穹铁道》公益第三卷：「抵达彩色的彼方」](http://www.movie.hkepx.cn/movie/8313935.htm)
-- [S16淘汰赛：KC对决T1](http://www.daogukj.com/fqjpdyus/)
+- [儿子偷卖母亲 13 克金项链，母亲得知真相后报警，儿子被采取刑事强制措施，拿自己家的东西算偷吗？](http://www.daogukj.com/qfjukyqn/)
+- [美股遭遇「黑色星期四」，AI板块重挫，SOX指数下跌超12%，国际原油大涨超3%，后市怎么看？](http://www.daogukj.com/uumjcsie/)
+- [怎样控制自己的情绪而不是压抑自己的情绪?](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
+- [KC挑衅Faker](http://www.movie.hkepx.cn/movie/7623929.htm)
+- [酒店27层落地窗可外开且无护栏](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
+- [俺不中嘞 雕翻车嘞](http://www.movie.hkepx.cn/movie/8313935.htm)
+- [张萌辟谣大IP剧是陈情令](http://www.daogukj.com/fqjpdyus/)
 - [【独家】《罗小黑战记》第42话 龙游的风在轻轻地吹【10月国创】](http://www.daogukj.com/5983723)
 - [李乐成被免去工信部部长职务](http://www.movie.hkepx.cn/xiju/4176767.htm)
 - [一组数据感受中国经济强劲脉动](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
-- [第一个过万圣节的人](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
-- [学员引体向上51个破校纪录](http://www.movie.hkepx.cn/movie/8664223.htm)
-- [残疾人证怎么成了生意](http://www.movie.hkepx.cn/movie/1942982.htm)
+- [女人的身体为什么这么美妙 | Miniskirt-AOA｜短裙的权威我后知后觉](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
+- [楼房玻璃能发热一年省8万取暖费](http://www.movie.hkepx.cn/movie/8664223.htm)
+- [大冰回答八年没上班的女子](http://www.movie.hkepx.cn/movie/1942982.htm)
 - [125台公交车退役电池卖了300万元](http://www.movie.hkepx.cn/movie/5767803.htm)
-- [看完 AI 仿真人剧《持械入宋》，感觉技术上并没有很高壁垒，实拍难度也不大，为什么真人影视里没人来拍？](http://www.movie.hkepx.cn/xiju/8972635.htm)
-- [男子违停被贴 55 张贴纸，律师称或涉嫌侵害车主财产权，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/5657270.htm)
-- [11岁女童遭性侵被困宾馆5小时](http://www.movie.hkepx.cn/movie/4036246.htm)
-- [这到底是机器人还是真人](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
-- [国防部：须高度警惕日本重启战争机器](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
+- [每天给你5000元，但是第二天你的存款会自动消失，你愿意吗？](http://www.movie.hkepx.cn/xiju/8972635.htm)
+- [纯打游戏，选ps5还是高配pc？](http://www.movie.hkepx.cn/xiju/5657270.htm)
+- [网友解读白小纯审判青稚](http://www.movie.hkepx.cn/movie/4036246.htm)
+- [李标被遣返回国](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
+- [男子心梗前给豆包打电话救了自己](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
 - [《再飞行！》MV：终于完整的旋律，是我们继续出发的BGM](http://www.movie.hkepx.cn/xiju/0860317.htm)
-- [啤酒对血糖伤害有多大](http://www.daogukj.com/lyyagrpj/)
-- [暴雪大暴雪 周六强度达巅峰](http://www.daogukj.com/1732815)
+- [中国纯电车如何跨过500km/h这道坎](http://www.daogukj.com/lyyagrpj/)
+- [这到底是机器人还是真人](http://www.daogukj.com/1732815)
 - [张雪说入职1年员工百分百涨工资](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
-- [圆通总裁心疼儿子Tim](http://www.daogukj.com/sokjghqt/)
-- [大肥鱼：自 由 美 利 鲸](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
-- [如果给你月薪9000，天天去图书馆看书你愿意吗？](http://www.daogukj.com/fcgqpwva/)
-- [我记得 x Sacred Play Sceret Place](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
+- [11岁女童遭性侵被困宾馆5小时](http://www.daogukj.com/sokjghqt/)
+- [《绝区零》赛维里安角色展示 | 督察是怎样练成的](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
+- [坐穿行大凉山的绿皮慢火车，寻访西南腹地的移民钢铁之城](http://www.daogukj.com/fcgqpwva/)
+- [波兰之春](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
 
 </details>
 
 ## 原始来源
 
-- [KC挑衅Faker](https://s.weibo.com/weibo?q=KC%E6%8C%91%E8%A1%85Faker)
+- [姜妍吃的饭被蒋欣看到天要塌了](https://s.weibo.com/weibo?q=%E5%A7%9C%E5%A6%8D%E5%90%83%E7%9A%84%E9%A5%AD%E8%A2%AB%E8%92%8B%E6%AC%A3%E7%9C%8B%E5%88%B0%E5%A4%A9%E8%A6%81%E5%A1%8C%E4%BA%86)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7770431ab73ff94cb8c9 -->
+<!-- content-fingerprint: 6e10ea174afa7124f30b -->
