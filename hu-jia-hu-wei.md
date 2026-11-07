@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 智慧教室会侵犯学生隐私系误读
+# 【八仙！】有钱就是年轻啊
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6849933 · 更新：2026-11-07T06:20:34+08:00
+> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：3221315 · 分类：国产电影 · 更新：2026-11-07T10:07:20+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“智慧教室会侵犯学生隐私系误读”位列第 10 位，公开热度指标为 6849933。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【八仙！】有钱就是年轻啊”位列第 10 位，公开热度指标为 3221315，榜单分类为“国产电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，网传“智慧教室侵犯学生隐私”等内容引发热议，官方指出，其存在旧图新用、混淆功能边界、过度引申等套路，系误读。‌‌
+来源公开摘要显示：“八仙”在成仙和成功之间选择了“成团”，在搞钱和搞事业之间选择了“搞事情”？！吕洞宾、钟离权带队，集结何仙姑、铁拐李、韩湘子、曹国舅、蓝采和与张果老，八个身份各异的凡人因不同机缘稀里糊涂凑在了蓬莱仙境，有人临时起意有人开团秒跟，开起道观过足了“神仙”瘾！面对蓬莱百姓主打一个“有求必应”，草台班子的外壳下却暗藏着“瞒天过海”的胆识。怎料一个惊天阴谋正悄咪咪朝他们砸过来，这场啼笑皆非的奇幻之旅，最终会走向何处呢？影片以家喻户晓的传统民间故事“八仙过海”为灵感进行创作。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `国产电影`
 
 ## 相关热点
 
-- [小米澎程主驾车门被撞仍保护车主](yu-mu-hun-zhu.md)
-- [全国 3.35 万座寺院、 9000 座道观同步启动财务大检查，到底意味着什么？](dong-shi-xiao-pin.md)
-- [“你土木的不会抽烟？？废物”](han-dan-xue-bu.md)
-- [人民日报评女厕偷拍黑产](qi-ren-you-tian.md)
+- [智慧教室会侵犯学生隐私系误读](yu-mu-hun-zhu.md)
+- [张萌老公简历居然这么厉害](dong-shi-xiao-pin.md)
+- [10月辟谣榜](han-dan-xue-bu.md)
+- [曝陈奕迅因女儿陈康堤遭无缝衔接，已与男方黄泽林绝交，黄泽林否认出轨，具体是什么情况？谁说的是真的？](qi-ren-you-tian.md)
 
 ## 站内推荐
 
 - [【独家】《罗小黑战记》第42话 龙游的风在轻轻地吹【10月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [陈都灵发言 大气](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [姜妍吃的饭被蒋欣看到天要塌了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [KC挑衅Faker](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [特朗普签发公告：禁止擅改总统办公室](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [消失10个月，我带着一个新生命，重新出发！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [人类文明有史以来最恐怖的泡沫](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [我是奸商](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [新娘曾7次拒绝将婚房借给他人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [17岁职校生手搓充电宝 校长现场拍板](http://www.daogukj.com/1906233)
-- [存款利率拐点来了？有储户存500万](http://www.movie.hkepx.cn/movie/8207551.htm)
-- [多国禁映、教会震怒！郇山隐修竟是一个世纪骗局？《达芬奇密码》背后的创作故事远比你想象的还要精彩！](http://www.daogukj.com/dztmbdzh/)
-- [6城住户存款超3万亿](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
-- [爱奇艺回应「年度最恶心的广告」，此次出现的内容属于「弹幕广告」，不包含在会员权益内，怎样看待这一回应？](http://www.movie.hkepx.cn/xiju/7262543.htm)
-- [男护士猥亵14岁女孩获刑1年2个月](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
-- [灭霸在学校住宿两个星期后终于放假了](http://www.movie.hkepx.cn/xiju/4947300.htm)
-- [一图速览进博会亮点](http://www.movie.hkepx.cn/xiju/5761043.htm)
-- [当你在过山车上紧急视频会议](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
-- [男子心梗前给豆包打电话救了自己](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
-- [肖战以为比杆多耳是个名人](http://www.movie.hkepx.cn/movie/5688642.htm)
-- [谷爱凌谈不要过度美化吃苦](http://www.daogukj.com/jvdbiekb/)
-- [许飞非虚构写作级别的表达](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
-- [“你土木的不会抽烟？？废物”](http://www.movie.hkepx.cn/xiju/4016086.htm)
-- [纯打游戏，选ps5还是高配pc？](http://www.movie.hkepx.cn/movie/2656990.htm)
-- [张萌老公简历居然这么厉害](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
-- [《再飞行！》MV：终于完整的旋律，是我们继续出发的BGM](http://www.movie.hkepx.cn/movie/6948720.htm)
-- [周迅回应获釜山电影节影后](http://www.movie.hkepx.cn/movie/3077263.htm)
-- [美媒曝韩女团NewJeans“卖身契”](http://www.movie.hkepx.cn/movie/1951037.htm)
-- [楼房玻璃能发热一年省8万取暖费](http://www.daogukj.com/0012222)
-- [人民日报评女厕偷拍黑产](http://www.movie.hkepx.cn/movie/6159585.htm)
-- [云南咖啡为何走不出中国？](http://www.movie.hkepx.cn/xiju/3354539.htm)
-- [大冰回答八年没上班的女子](http://www.movie.hkepx.cn/movie/4882379.htm)
-- [女中医说墓碑上的药方实用还不贵](http://www.movie.hkepx.cn/movie/1975079.htm)
-- [中国公民在尼泊尔误入印度境内被拘](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
-- [李乐成被免去工信部部长职务](http://www.movie.hkepx.cn/xiju/1921854.htm)
-- [厉娜因为有工作激动到睡不着](http://www.daogukj.com/4901061)
-- [我是奸商](http://www.daogukj.com/jetdabgu/)
-- [女子带娃仅点6元豆芽连吃7碗米饭](http://www.daogukj.com/7091816)
-- [残疾人证怎么成了生意](http://www.movie.hkepx.cn/movie/5119801.htm)
-- [《绝区零》赛维里安角色展示 | 督察是怎样练成的](http://www.daogukj.com/eozvjcki/)
-- [S16淘汰赛：KC对决T1](http://www.movie.hkepx.cn/movie/3647409.htm)
-- [外交部：中日关系严重困难日方全责](http://www.daogukj.com/olnmglro/)
-- [我让老公把一盘土豆丝倒女儿碗里，她气的把筷子摔了，还向我爆粗口，我教训了她一顿，我做错了吗？](http://www.movie.hkepx.cn/movie/0305763.htm)
-- [我要从中国走到欧洲，你觉得能成功吗｜拉在路上](http://www.movie.hkepx.cn/xiju/5270802.htm)
-- [全国 3.35 万座寺院、 9000 座道观同步启动财务大检查，到底意味着什么？](http://www.daogukj.com/novgnuvs/)
-- [WTA年终总决赛单人照公布](http://www.movie.hkepx.cn/movie/5479779.htm)
-- [姜妍吃的饭被蒋欣看到天要塌了](http://www.daogukj.com/pimnqdhd/)
-- [KC挑衅Faker](http://www.movie.hkepx.cn/movie/9614078.htm)
-- [怎样控制自己的情绪而不是压抑自己的情绪?](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
-- [李标被遣返回国](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
-- [张萌辟谣大IP剧是陈情令](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
-- [70年代及之前的PLA为什么普遍是驮马步兵师？为什么没有采用载重量更大的挽马？](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
-- [中国纯电车如何跨过500km/h这道坎](http://www.movie.hkepx.cn/xiju/1743642.htm)
-- [研究生导师是更喜欢保研上来的学生还是考研上来的学生？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
-- [民主党提出超级 AI 禁令，美股迎来 1896 年以来中期选举后表现最差的第二个交易日，影响有多大？](http://www.movie.hkepx.cn/movie/7048621.htm)
-- [哈尔滨下“棉花雪”了](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
-- [陈都灵发言 大气](http://www.movie.hkepx.cn/movie/9217518.htm)
-- [青稚听到和白小纯一起住偷笑](http://www.daogukj.com/mmmeuyql/)
-- [酒店27层落地窗可外开且无护栏](http://www.movie.hkepx.cn/xiju/2283933.htm)
+- [东北的糖葫芦进入“魔法时代”](http://www.daogukj.com/1906233)
+- [中方就美对华经贸限制表达严正关切](http://www.movie.hkepx.cn/movie/8207551.htm)
+- [曾经遍布大街小巷的2元店淡出视野，背后的原因是什么？名创优品等精品百货兴起，是传统2元店的一种升级吗？](http://www.daogukj.com/dztmbdzh/)
+- [立冬时节 这5个部位注意防寒](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
+- [男子预判金价能到2000元/克，花光积蓄买7斤黄金，9个月亏114万元，急用钱无奈割肉，如何看待此事？](http://www.movie.hkepx.cn/xiju/7262543.htm)
+- [今日立冬](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
+- [俄外交部建议本国公民暂缓赴伊朗旅行](http://www.movie.hkepx.cn/xiju/4947300.htm)
+- [古人过冬仪式感](http://www.movie.hkepx.cn/xiju/5761043.htm)
+- [美股收盘：AI概念股止跌反弹](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
+- [老芒果后期真有高手在](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
+- [挑战在岛上开发一个荒岛生存游戏！](http://www.movie.hkepx.cn/movie/5688642.htm)
+- [国产闪存大量涌入消费市场：供应远超需求｜显卡日报11月7日](http://www.daogukj.com/jvdbiekb/)
+- [体检空腹不等于滴水不沾](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
+- [10月辟谣榜](http://www.movie.hkepx.cn/xiju/4016086.htm)
+- [乔欣上班几年发现回家享福更适合自己](http://www.movie.hkepx.cn/movie/2656990.htm)
+- [夫妻入职药企不足一个月1死1瘫痪](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
+- [假如短剧是违禁品📱](http://www.movie.hkepx.cn/movie/6948720.htm)
+- [如果给你月薪9000，天天去图书馆看书你愿意吗？](http://www.movie.hkepx.cn/movie/3077263.htm)
+- [人的腚为什么没进化成三瓣，不是有三角形的稳定性吗？又为什么不变成一个整体，就像一个圆，这么进化作用？](http://www.movie.hkepx.cn/movie/1951037.htm)
+- [T1教练组](http://www.daogukj.com/0012222)
+- [曝陈奕迅因女儿陈康堤遭无缝衔接，已与男方黄泽林绝交，黄泽林否认出轨，具体是什么情况？谁说的是真的？](http://www.movie.hkepx.cn/movie/6159585.htm)
+- [马天宇说不要在一句话后面加那人名字](http://www.movie.hkepx.cn/xiju/3354539.htm)
+- [铁锅/不锈钢锅都能用：一套物理不粘公式，煎鱼豆腐都不粘](http://www.movie.hkepx.cn/movie/4882379.htm)
+- [中央气象台发布暴雪黄色预警](http://www.movie.hkepx.cn/movie/1975079.htm)
+- [中年大叔如何才能有少年感？](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
+- [工作人员回应电动鞋售价7999元](http://www.movie.hkepx.cn/xiju/1921854.htm)
+- [“盛家最争气俩孩子相聚了”](http://www.daogukj.com/4901061)
+- [女子带娃仅点6元豆芽连吃7碗米饭](http://www.daogukj.com/jetdabgu/)
+- [立冬有哪些老传统](http://www.daogukj.com/7091816)
+- [宝马、丰田、大众接连出现冒用召回名义的精准诈骗，骗子精准报出车架号、车牌和个人信息，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/5119801.htm)
+- [无薪跟岗 教师招聘不带这么羞辱人的](http://www.daogukj.com/eozvjcki/)
+- [政策严控 「速成车」，工信部第 413 批新车申报量锐减，新势力集体沉默，「速成车」时代要结束了吗？](http://www.movie.hkepx.cn/movie/3647409.htm)
+- [止疼药怎么知道身体什么部位疼](http://www.daogukj.com/olnmglro/)
+- [谁在把女性隐私明码标价](http://www.movie.hkepx.cn/movie/0305763.htm)
+- [全国水始冰地图来了](http://www.movie.hkepx.cn/xiju/5270802.htm)
+- [张萌老公简历居然这么厉害](http://www.daogukj.com/novgnuvs/)
+- [100万一棵的罗汉松从新楼盘里消失了](http://www.movie.hkepx.cn/movie/5479779.htm)
+- [人类文明有史以来最恐怖的泡沫](http://www.daogukj.com/pimnqdhd/)
+- [我是奸商](http://www.movie.hkepx.cn/movie/9614078.htm)
+- [纯稚史诗级吵架](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
+- [为什么大家在高中可以接受696学习，毕业后不能接受996工作？](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
+- [《绝区零》赛维里安角色展示 | 督察是怎样练成的](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
+- [伞兵称没法跟青稚玩](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
+- [女子称父亲倒在站台旅客施救被制止](http://www.movie.hkepx.cn/xiju/1743642.htm)
+- [今日立冬 离除夕还有90天](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
+- [存款利率拐点来了？有储户存500万](http://www.movie.hkepx.cn/movie/7048621.htm)
+- [原来许飞为厉娜花了这么多心思](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
+- [消失10个月，我带着一个新生命，重新出发！](http://www.movie.hkepx.cn/movie/9217518.htm)
+- [坐穿行大凉山的绿皮慢火车，寻访西南腹地的移民钢铁之城](http://www.daogukj.com/mmmeuyql/)
+- [《影之刃零》之后的村里第三个大学生，大伙最看好谁？](http://www.movie.hkepx.cn/xiju/2283933.htm)
 
 </details>
 
 ## 原始来源
 
-- [智慧教室会侵犯学生隐私系误读](https://www.baidu.com/s?wd=%E6%99%BA%E6%85%A7%E6%95%99%E5%AE%A4%E4%BC%9A%E4%BE%B5%E7%8A%AF%E5%AD%A6%E7%94%9F%E9%9A%90%E7%A7%81%E7%B3%BB%E8%AF%AF%E8%AF%BB&sa=fyb_news&rsv_dl=fyb_news)
+- [【八仙！】有钱就是年轻啊](https://b23.tv/BV12FxQ6sE41)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5caa6172f3b39a4d0871 -->
+<!-- content-fingerprint: 5068f81c15172c414f68 -->
