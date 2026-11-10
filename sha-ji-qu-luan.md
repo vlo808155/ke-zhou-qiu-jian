@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 张朝阳说从来不看AI漫剧，AI让内容产生一种塑料感，像化肥催熟的西红柿没有味，你同意吗？
+# 马和驴交配的时候在想什么？他们会觉得彼此符合自己的择偶标准吗？他们又是如何看待骡子的呢？
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：204 万热度 · 分类：问答 · 更新：2026-11-10T00:26:42+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：208 万热度 · 分类：问答 · 更新：2026-11-10T08:23:55+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“张朝阳说从来不看AI漫剧，AI让内容产生一种塑料感，像化肥催熟的西红柿没有味，你同意吗？”位列第 12 位，公开热度指标为 204 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“马和驴交配的时候在想什么？他们会觉得彼此符合自己的择偶标准吗？他们又是如何看待骡子的呢？”位列第 12 位，公开热度指标为 208 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：仿真人的，我不太爱看，是有塑料味。有个别的AI动画片，做得挺牛。张朝阳：我从来不看AI漫剧，AI让内容产生有一种塑料感，像化肥催熟的西红柿没有味_腾讯新闻
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《虚环》PV03｜致过去与未来的歌](yin-zhen-zhi-ke.md)
-- [王传君：《爱情公寓》只是份工作](ke-zhou-qiu-jian.md)
-- [金鸡奖最佳男主角提名](yan-er-dao-ling.md)
-- [大二女生称AI毁了她的计算机学位](nan-yuan-bei-zhe.md)
+- [最夸张的偷情怎么偷歪了美国的世界线？](yin-zhen-zhi-ke.md)
+- [德系三巨头的“中国提款机”彻底熄火](ke-zhou-qiu-jian.md)
+- [白小纯 王子璇](yan-er-dao-ling.md)
+- [NBA官宣周最佳球员](nan-yuan-bei-zhe.md)
 
 ## 站内推荐
 
 - [疑似秦始皇儿子头骨面容被复原，男子死时约30岁，头骨右颞骨中嵌有一枚青铜箭头，哪些细节值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [如何看待iG投资人称AL说被淘汰的队要给晋级的LPL队伍打训练赛，结果自己淘汰后第二天就回去了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [为什么 Doran 仍然是那个 Doran，S16 全球总决赛 T1 带不动他了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [把娃户口挪去东北（比如鹤岗），读高中和高考，是否可行？ 哪个城市比较建议？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [2026 年的 T1 相比 2025 年差在哪？真的是换走 Gumayusi 导致的吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [女子设置失误，5年给邻居充了近6000元话费，发觉后要求返还被拒，法院判定应全部返还，如何看待此事？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [如何看待蓉城博主发文「请成都纪委介入调查成都蓉城可能存在的违法违纪行为」？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [女儿兴高采烈地向爸爸述说第一笔工资的用途，全是用来买她喜爱的东西，一分都不考虑家长。这个问题怎么看？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [男子月薪过万公司按 4 千基数缴社保被裁后追讨，暴露了哪些问题？该如何维权？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [白小纯青稚飞升](http://www.movie.hkepx.cn/movie/8955570.htm)
-- [5吨的大象都会被吃，骆驼却几乎无天敌，为啥没有食肉动物吃它呢？](http://www.daogukj.com/krvvnboj/)
-- [王健林亲自披挂上阵接下烫手山芋](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
-- [大二女生称AI毁了她的计算机学位](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
-- [专家：AI已越过“超级智能逃逸速度”](http://www.movie.hkepx.cn/movie/1401219.htm)
-- [如何看待蔡少芬一家五口在中国香港住83平米房子却说是「豪宅」，很知足？](http://www.movie.hkepx.cn/movie/1801460.htm)
+- [白小纯说去韩国打了水光针](http://www.movie.hkepx.cn/movie/8955570.htm)
+- [胖东来发布系统化问题处理标准，称赔到破产也要坚守原则，落地难点在哪？](http://www.daogukj.com/krvvnboj/)
+- [纳指大涨近3% 英伟达缩水12800亿元](http://www.play.hengshemaoyi.cn/xiju/3242384.htm)
+- [NBA官宣周最佳球员](http://www.play.hengshemaoyi.cn/kongbu/4310856.htm)
+- [许飞：我作茧自缚](http://www.movie.hkepx.cn/movie/1401219.htm)
+- [山姆多款始祖鸟加拿大鹅被抢空，有商品比官方便宜近5000元，为什么能卖这么便宜？背后是怎样的商业策略？](http://www.movie.hkepx.cn/movie/1801460.htm)
 - [疑似秦始皇儿子头骨面容被复原，男子死时约30岁，头骨右颞骨中嵌有一枚青铜箭头，哪些细节值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4300817.htm)
-- [老人6亿遗产留再婚妻子 原配子女起诉](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
-- [楚钧：Nice！这样我才能看到左右手大战！](http://www.movie.hkepx.cn/xiju/0216852.htm)
-- [白敬亭井柏然 你穿着貂我露着背](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
-- [全球股市集体拉升 原油直线闪崩](http://www.daogukj.com/3303781)
-- [2026中超终于落下大幕，大连加冕，成都蓉城以一种几乎无法复刻的方式丢掉了冠军，为啥大家都觉得挺好？](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
-- [油价预计将大幅下调](http://www.movie.hkepx.cn/movie/5835677.htm)
-- [黄仁勋的恋爱脑伤到了哪些硅谷大佬](http://www.daogukj.com/6841256)
-- [全身麻醉醒来像「跳过了」几个小时，睡眠为什么没有这种感觉？](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
-- [倪妮穿的旗袍快一百年了](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
-- [《阴阳师》笼梦祸津神CG丨祸至无日（CV：中野彩麻）](http://www.daogukj.com/8289580)
-- [把娃户口挪去东北（比如鹤岗），读高中和高考，是否可行？ 哪个城市比较建议？](http://www.daogukj.com/ketbkhri/)
-- [比亚迪大唐前后轮毂装反](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
-- [尚公主官方拆cp](http://www.movie.hkepx.cn/movie/9768501.htm)
-- [东北糖葫芦已进化到“巨无霸”版本](http://www.movie.hkepx.cn/xiju/6011810.htm)
-- [英伟达股价盘初下跌8.8%](http://www.movie.hkepx.cn/xiju/6600784.htm)
-- [2026 年的 T1 相比 2025 年差在哪？真的是换走 Gumayusi 导致的吗？](http://www.movie.hkepx.cn/xiju/0855885.htm)
-- [哈工大硕士毕业后创业失败，如今在街头卖气球，被人质疑「浪费资源」，如何评价他的选择？真的是浪费资源吗？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
-- [山姆为何低价甩卖始祖鸟加拿大鹅](http://www.daogukj.com/vnsrnwfs/)
-- [大型SUV第一名是小米澎程N90](http://www.movie.hkepx.cn/movie/9967199.htm)
-- [英伟达突发「史上最大GPU盗窃案」，价值 1140 万美元的硬件失踪，具体什么情况？可能带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
-- [谁一周后的播放量高，谁就是流量王！！！【流量王番外篇红队】](http://www.movie.hkepx.cn/movie/6293448.htm)
-- [白小纯在发现有人没上车的30秒](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
-- [网友海边偶遇赵丽颖](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
+- [17岁张可依刷新亚洲少年纪录](http://www.play.hengshemaoyi.cn/xiju/5723240.htm)
+- [你我一起，改变世界.](http://www.movie.hkepx.cn/xiju/0216852.htm)
+- [童家堡回应白小纯恋情](http://www.play.hengshemaoyi.cn/kongbu/7432542.htm)
+- [沙特开始降价 中国买油会更便宜吗](http://www.daogukj.com/3303781)
+- [巴拉圭韦诺银行爆雷致 300 万人无法取款，总统遭弹劾被捕，这场危机快速失控的核心原因是什么？](http://www.play.hengshemaoyi.cn/kongbu/6701369.htm)
+- [猪油被称“心血管杀手”冤不冤](http://www.movie.hkepx.cn/movie/5835677.htm)
+- [山姆现20元一包泡面](http://www.daogukj.com/6841256)
+- [S16总决赛由BLG迎战GEN，你会看好哪一方？](http://www.play.hengshemaoyi.cn/xiju/3201711.htm)
+- [零元面馆每天出面上千碗 排百米长队](http://www.play.hengshemaoyi.cn/kongbu/1934474.htm)
+- [当我死去，群山不会震颤，河水不会倒流｜AI长片《汤症》【AI全民制作人】](http://www.daogukj.com/8289580)
+- [女儿兴高采烈地向爸爸述说第一笔工资的用途，全是用来买她喜爱的东西，一分都不考虑家长。这个问题怎么看？](http://www.daogukj.com/ketbkhri/)
+- [大型SUV第一名是小米澎程N90](http://www.play.hengshemaoyi.cn/xiju/4496785.htm)
+- [张凌赫是真升咖了](http://www.movie.hkepx.cn/movie/9768501.htm)
+- [吴磊问梁家辉是不是坐高铁来的](http://www.movie.hkepx.cn/xiju/6011810.htm)
+- [美债收益率集体上涨](http://www.movie.hkepx.cn/xiju/6600784.htm)
+- [男子月薪过万公司按 4 千基数缴社保被裁后追讨，暴露了哪些问题？该如何维权？](http://www.movie.hkepx.cn/xiju/0855885.htm)
+- [广东妈妈认为“山东饭”能长高，坚持为6岁儿子做疙瘩汤、煎饼等，一月后长高1.3厘米，山东饭这么神奇吗？](http://www.play.hengshemaoyi.cn/xiju/2316309.htm)
+- [陕西一政务中心门头遭损毁？警方通报](http://www.daogukj.com/vnsrnwfs/)
+- [男子搬家遭敲诈威胁除非把房子卖了](http://www.movie.hkepx.cn/movie/9967199.htm)
+- [Faker 无缘四连冠，赛后镜头捕捉其释怀笑容，对此你有什么想说的？](http://www.play.hengshemaoyi.cn/kongbu/2347273.htm)
+- [锐评BLG打破T1对LPL的十三年来的百胜率神话！击碎梦魇！找回自己！这期不串直接夸！](http://www.movie.hkepx.cn/movie/6293448.htm)
+- [美股高开高走科技股大涨](http://www.play.hengshemaoyi.cn/xiju/8836305.htm)
+- [演员王雷跪地庆祝大连英博夺冠](http://www.play.hengshemaoyi.cn/kongbu/1835415.htm)
 - [进博“购物车”含“科”量足](http://www.play.hengshemaoyi.cn/xiju/0952353.htm)
-- [我提出离职后领导加薪挽留，同时收到了其它公司的 offer，我该怎么选呢？](http://www.movie.hkepx.cn/movie/5654110.htm)
+- [代号「玄龙」的攻击-11 隐身无人机公开亮相，这一无人机有哪些细节值得关注？将如何影响未来空战？](http://www.movie.hkepx.cn/movie/5654110.htm)
 - [三大变化折射进博会开放新内涵](http://www.play.hengshemaoyi.cn/kongbu/6410086.htm)
-- [【2026全球总决赛】11月9日 BLG vs T1](http://www.daogukj.com/8061636)
-- [国乒问题并非王楚钦一个人问题](http://www.movie.hkepx.cn/xiju/3678798.htm)
-- [《绝区零》赛维里安EP | Gambit](http://www.daogukj.com/4240143)
-- [黄仁勋出事看似是八卦其实是生意](http://www.movie.hkepx.cn/xiju/6821618.htm)
+- [On萨勒芬妮大招测试：如果猴子不放分身，能改变时间线吗？](http://www.daogukj.com/8061636)
+- [警方通报政务大厅门头遭破坏](http://www.movie.hkepx.cn/xiju/3678798.htm)
+- [【2026全球总决赛】11月9日 BLG vs T1](http://www.daogukj.com/4240143)
+- [油价突然直线跳水](http://www.movie.hkepx.cn/xiju/6821618.htm)
 - [铸牢共同体中华一家亲](http://www.movie.hkepx.cn/xiju/6143707.htm)
-- [【暗区突围手游】 全民防火，突围有我！](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
-- [哈尔滨烤地瓜原价1688到手8元](http://www.daogukj.com/ipksuuvb/)
-- [伊朗最高领袖下令结束非战非和状态](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
-- [突破记录，创造历史，lpl观众最爽的一集，BLG拿下T1 [火兰吐槽]](http://www.movie.hkepx.cn/xiju/1798043.htm)
-- [官方回应招医生月薪最高2499元](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
-- [白敬亭井柏然宋威龙王嘉尔张凌赫同框](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
-- [山姆“低价”始祖鸟到底值不值得冲](http://www.movie.hkepx.cn/xiju/0765053.htm)
-- [选举大败特朗普和马斯克这下惨了](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
-- [花坛白骨涉案人28年间频繁出国](http://www.movie.hkepx.cn/xiju/3626228.htm)
-- [英伟达美股夜盘跌超 3%，其后续股价走势会如何？](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
+- [耗时5个月，5万元成本，我用AI拍了一部68分钟的原创中国科幻长片《南天门计划：灰蚀危机》【ai全民制作人】](http://www.play.hengshemaoyi.cn/xiju/7730604.htm)
+- [美股高开高走原因](http://www.daogukj.com/ipksuuvb/)
+- [男子因亲人去世失联 家属：人不在了](http://www.play.hengshemaoyi.cn/xiju/5093983.htm)
+- [13年的等待！和宁王赵大哥看BLG击败T1创造历史！【熬夜吧老头！06】](http://www.movie.hkepx.cn/xiju/1798043.htm)
+- [衡阳市长作为行政机关负责人出庭应诉](http://www.play.hengshemaoyi.cn/xiju/7507016.htm)
+- [W盛典红毯神级镜头出现了](http://www.play.hengshemaoyi.cn/xiju/0525381.htm)
+- [鹤岗精品住宅均价超4800元每平方米](http://www.movie.hkepx.cn/xiju/0765053.htm)
+- [《虚环》PV03｜致过去与未来的歌](http://www.play.hengshemaoyi.cn/xiju/9515640.htm)
+- [价格大跳水！智利车厘子即将大批上市](http://www.movie.hkepx.cn/xiju/3626228.htm)
+- [英伟达单日市值蒸发 1.2 万亿元，是市场过度反应了吗？](http://www.play.hengshemaoyi.cn/xiju/5585985.htm)
 - [中央网信办整治科普健康类网络谣言](http://www.movie.hkepx.cn/xiju/4004417.htm)
-- [AMD涨超8%](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
+- [倪妮穿的旗袍快一百年了](http://www.play.hengshemaoyi.cn/kongbu/6902700.htm)
 
 </details>
 
 ## 原始来源
 
-- [张朝阳说从来不看AI漫剧，AI让内容产生一种塑料感，像化肥催熟的西红柿没有味，你同意吗？](https://www.zhihu.com/question/2102717260867559519)
+- [马和驴交配的时候在想什么？他们会觉得彼此符合自己的择偶标准吗？他们又是如何看待骡子的呢？](https://www.zhihu.com/question/12971345454)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2f40e1549ef2996ec6ae -->
+<!-- content-fingerprint: f2375b22f7277ca4831d -->
