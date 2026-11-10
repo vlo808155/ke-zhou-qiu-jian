@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 伊朗最高领袖下令结束非战非和状态
+# 想出用空气炸锅烤奶茶的人也太绝了
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6949001 · 更新：2026-11-10T08:23:55+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6943623 · 更新：2026-11-10T15:37:58+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“伊朗最高领袖下令结束非战非和状态”位列第 9 位，公开热度指标为 6949001。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“想出用空气炸锅烤奶茶的人也太绝了”位列第 9 位，公开热度指标为 6943623。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，用空气炸锅做烤奶茶的做法走红网络。先以红茶、白糖、少许盐加水180℃烤出焦糖茶香，再倒入全脂牛奶续烤凝出厚奶皮，烤出的奶茶自带独特炭烤焦香，操作门槛低新手也容易上手。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [美股高开高走原因](zi-xiang-mao-dun.md)
-- [美债收益率集体上涨](bei-gong-she-ying.md)
-- [如何看待蓉城博主发文「请成都纪委介入调查成都蓉城可能存在的违法违纪行为」？](jing-gong-zhi-niao.md)
-- [选举大败特朗普和马斯克这下惨了](hu-jia-hu-wei.md)
+- [2026疯狂好六夜节目单](zi-xiang-mao-dun.md)
+- [特朗普称俄乌都已厌倦了打仗](bei-gong-she-ying.md)
+- [南京「零元面馆」无门槛免费吃面，周边面馆「日营业额下降2000元」，有商户想退租，善意是不是该有边界？](jing-gong-zhi-niao.md)
+- [【爱你】王力宏&王心凌「最好的地方Ⅱ」官摄 | 限定 “双王组合”首次同台，甜度加倍！](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [17岁张可依刷新亚洲少年纪录](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [男子因亲人去世失联 家属：人不在了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [鹤岗精品住宅均价超4800元每平方米](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [倪妮穿的旗袍快一百年了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [这些水果适合冬天热着吃](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [石家庄天降陨石最大单体35公斤](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [“沉睡艺人”拿“大芒果”翻红](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [未来几个月全球气温将异常偏高](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [咬开桃子露出褐色肉球 千万别吃](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [零元面馆每天出面上千碗 排百米长队](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [衡阳市长作为行政机关负责人出庭应诉](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [大型SUV第一名是小米澎程N90](http://www.daogukj.com/axnomarx/)
-- [几块钱一瓶的尿素霜火了 医生提醒](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [W盛典红毯神级镜头出现了](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [谁一周后的播放量高，谁就是流量王！！！【流量王番外篇红队】](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [高叶哽咽回应金鸡提名](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [S16总决赛由BLG迎战GEN，你会看好哪一方？](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [德牧不是狗是家里人](http://www.daogukj.com/9955752)
-- [进博“购物车”含“科”量足](http://www.movie.hkepx.cn/movie/6160167.htm)
-- [On萨勒芬妮大招测试：如果猴子不放分身，能改变时间线吗？](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [纳指大涨近3% 英伟达缩水12800亿元](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [特朗普称没必要再对伊朗采取军事行动](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
-- [Faker 无缘四连冠，赛后镜头捕捉其释怀笑容，对此你有什么想说的？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [男子月薪过万公司按 4 千基数缴社保被裁后追讨，暴露了哪些问题？该如何维权？](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [铸牢共同体中华一家亲](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [隋俊波称新剧《谷雨》是惊喜](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [三大变化折射进博会开放新内涵](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [全国陨石猎人扎堆赶赴石家庄](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [石家庄天降陨石最大单体35公斤](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [山姆现20元一包泡面](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [代号「玄龙」的攻击-11 隐身无人机公开亮相，这一无人机有哪些细节值得关注？将如何影响未来空战？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [山姆多款始祖鸟加拿大鹅被抢空，有商品比官方便宜近5000元，为什么能卖这么便宜？背后是怎样的商业策略？](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [演员王雷跪地庆祝大连英博夺冠](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [女子设置失误，5年给邻居充了近6000元话费，发觉后要求返还被拒，法院判定应全部返还，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [倪妮穿的旗袍快一百年了](http://www.daogukj.com/2395514)
-- [猪肉又便宜了](http://www.daogukj.com/6574038)
-- [你我一起，改变世界.](http://www.daogukj.com/ajcuxydy/)
-- [山姆“低价”始祖鸟到底值不值得冲](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [这些水果适合冬天热着吃](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [警方通报政务大厅门头遭破坏](http://www.daogukj.com/cfeqrkjc/)
-- [《绝区零》赛维里安EP | Gambit](http://www.daogukj.com/rkkegwyy/)
-- [男子因亲人去世失联 家属：人不在了](http://www.movie.hkepx.cn/xiju/5333033.htm)
-- [如何看待蓉城博主发文「请成都纪委介入调查成都蓉城可能存在的违法违纪行为」？](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [陕西一政务中心门头遭损毁？警方通报](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [美债收益率集体上涨](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [河南财大就「教师赵某彦被举报性骚扰女生」一事发布通报，称已成立专项调查组，事件有哪些值得关注的信息？](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [NBA官宣周最佳球员](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [我的世界粒子——建筑](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [给孩子做了一个半飞行的玩具车](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [谷歌被曝向英伟达发起挑战](http://www.daogukj.com/8099191)
-- [迪丽热巴爸爸20分钟卖了7000单苹果](http://www.daogukj.com/vrvcskzj/)
-- [山姆为何低价甩卖始祖鸟加拿大鹅](http://www.daogukj.com/lbbxrvry/)
-- [【2026全球总决赛】11月9日 BLG vs T1](http://www.daogukj.com/9295095)
-- [白敬亭果然看上井柏然的衣服了](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [价格大跳水！智利车厘子即将大批上市](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [美股高开高走科技股大涨](http://www.daogukj.com/7435478)
-- [王传君坦言爱情公寓只是份工作](http://www.daogukj.com/kwdurrnw/)
-- [人心散了，队伍不好带了！白宫开演“狼人杀”](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [零元面馆每天出面上千碗 排百米长队](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [鹤岗精品住宅均价超4800元每平方米](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [每天吃核桃真的能补脑吗](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [W盛典最牛的裙子](http://www.daogukj.com/axnomarx/)
+- [寒潮过后大回暖！全国升温大赛来了](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [金晨 没澄清不住海边没有妹妹](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [特厨探店|探店这么多年，没想到还是会震惊！](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [倪大红：来金鸡奖非常有意义](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [Claude Fable 5.2 正式发布了，大家怎么看它的实际能力和性价比？](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [花坛藏尸案被告长相曝光](http://www.daogukj.com/9955752)
+- [进博会“一米展台”洽谈热切](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [当我死去，群山不会震颤，河水不会倒流｜AI长片《汤症》【AI全民制作人】](http://www.movie.hkepx.cn/xiju/3768366.htm)
+- [A股收盘：全市场近百股涨停](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [一碗免费面咋把隔壁小店逼到想搬家](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [伊朗向特朗普发48小时最后通牒，要么接受德黑兰提出的最新方案，要么面临军事冲突升级，特朗普会如何选择？](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
+- [特朗普称似乎没必要再对伊朗采取军事行动，国际油价早盘一度跌超5%，中东局势真的进入阶段性降温了吗？](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [我国工业经济持续向新向优向好](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [手机的下一个形态可能不在手机里](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [共绘“健康中国”美好生活图景](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [幼儿园、小学、初中学龄人口已经达峰](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [短信提醒被取消卡里26万没了](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [勇士51分大胜鹈鹕](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [如何看待蓉城博主发文「请成都纪委介入调查成都蓉城可能存在的违法违纪行为」？](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [女子设置失误，5年给邻居充了近6000元话费，发觉后要求返还被拒，法院判定应全部返还，如何看待此事？](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [王树国谈张雪：学中干干中学](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [AI短剧《持械入宋》为什么能火爆出圈？](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [咬开桃子露出褐色肉球 千万别吃](http://www.daogukj.com/2395514)
+- [浙江永嘉一男子拒服兵役被部队除名](http://www.daogukj.com/6574038)
+- [当杀手和律师都以为对方是同行](http://www.daogukj.com/ajcuxydy/)
+- [足力健老人鞋创始人张京康成老赖](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [零元面馆每天出面上千碗 排百米长队](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [幼儿园小学初中学龄人口已达峰](http://www.daogukj.com/cfeqrkjc/)
+- [如何盗走《蒙娜丽莎》？【硬核狠人92】](http://www.daogukj.com/rkkegwyy/)
+- [“沉睡艺人”拿“大芒果”翻红](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [南京「零元面馆」无门槛免费吃面，周边面馆「日营业额下降2000元」，有商户想退租，善意是不是该有边界？](http://www.movie.hkepx.cn/xiju/3690191.htm)
+- [华为推出全新小折叠电脑](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [特朗普称俄乌都已厌倦了打仗](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [男子月薪过万公司按 4 千基数缴社保被裁后追讨，暴露了哪些问题？该如何维权？](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [杨幂谷爱凌郑钦文同框秀肌肉](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [On萨勒芬妮大招测试：如果猴子不放分身，能改变时间线吗？](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [锐评BLG打破T1对LPL的十三年来的百胜率神话！击碎梦魇！找回自己！这期不串直接夸！](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [国家发改委：改造2万间4人及以上病房](http://www.daogukj.com/8099191)
+- [郑丽文：2028一定要下架民进党](http://www.daogukj.com/vrvcskzj/)
+- [胖东来“日本产洗发水”疑云](http://www.daogukj.com/lbbxrvry/)
+- [Faker了一辈子的蹲方魂 终于…](http://www.daogukj.com/9295095)
+- [文吉儿 王子璇](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [“需求量暴增900%” 万亿元赛道爆发](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [王子璇是真的受影响最多的](http://www.daogukj.com/7435478)
+- [嫁金钗这一段是穿帮了吗](http://www.daogukj.com/kwdurrnw/)
+- [《崩坏：星穹铁道》走近星穹——「货币战争•入画奇航」特别节目](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [郑钦文：我不能和奔驰合影](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [未来几个月全球气温将异常偏高](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [伊朗最高领袖下令结束非战非和状态](https://www.baidu.com/s?wd=%E4%BC%8A%E6%9C%97%E6%9C%80%E9%AB%98%E9%A2%86%E8%A2%96%E4%B8%8B%E4%BB%A4%E7%BB%93%E6%9D%9F%E9%9D%9E%E6%88%98%E9%9D%9E%E5%92%8C%E7%8A%B6%E6%80%81&sa=fyb_news&rsv_dl=fyb_news)
+- [想出用空气炸锅烤奶茶的人也太绝了](https://www.baidu.com/s?wd=%E6%83%B3%E5%87%BA%E7%94%A8%E7%A9%BA%E6%B0%94%E7%82%B8%E9%94%85%E7%83%A4%E5%A5%B6%E8%8C%B6%E7%9A%84%E4%BA%BA%E4%B9%9F%E5%A4%AA%E7%BB%9D%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7eb9c0a134bb17c08a61 -->
+<!-- content-fingerprint: 30bfabd050f5ebb3c3bc -->
