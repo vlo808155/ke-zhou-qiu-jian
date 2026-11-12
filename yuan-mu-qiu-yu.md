@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待马志明收郭德纲为义子？
+# 把两只怀孕的蚁后分别放在不同生态，100天后谁发展的更厉害？
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：188 万热度 · 分类：问答 · 更新：2026-11-12T11:45:26+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：791432 · 分类：动物二创 · 更新：2026-11-12T20:00:02+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待马志明收郭德纲为义子？”位列第 12 位，公开热度指标为 188 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“把两只怀孕的蚁后分别放在不同生态，100天后谁发展的更厉害？”位列第 12 位，公开热度指标为 791432，榜单分类为“动物二创”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026年11月11日，郭德纲在天津举办西河门摆知收徒仪式时，马志明以反对论资排辈、主张江湖无辈处的是感情为由，当场认下相识数十年的郭德纲为义子，并明确此举不入相声谱系、不改行内辈分。 近些年郭德纲跟马志明走的一直比较亲近，在郭德纲因为红歌事件的节骨眼上，俩人结干亲，是不是在为郭德纲重新复出或者说挽回名誉而铺路，毕竟马志明和常宝丰是唯二的官方相声非遗传承人。
+来源公开摘要显示：微观世界：蚂蚁大战
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `动物二创`
 
 ## 相关热点
 
-- [喂，你们几个聊的很开心啊](sha-ji-qu-luan.md)
-- [初代网红夫妻大美高迪离婚](yin-zhen-zhi-ke.md)
-- [两京十五日定档央八](ke-zhou-qiu-jian.md)
-- [大爷随手一拍把形影不离具象化了](yan-er-dao-ling.md)
+- [零元面馆为什么可能带来坏结果](sha-ji-qu-luan.md)
+- [山姆399元羽绒服打脸谁](yin-zhen-zhi-ke.md)
+- [只有青稚察觉到表白不对](ke-zhou-qiu-jian.md)
+- [18岁女孩发烧查出肺癌晚期](yan-er-dao-ling.md)
 
 ## 站内推荐
 
-- [越南第一夫人为何穿和服面见高市早苗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [长征九号据传已经工程立项，是真的吗？最新情况如何？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [韩国有可能再恢复使用汉字吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [我们人类是地球上的第几代文明？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [沙僧在《西游记》中，除了挑担子外，出场的时候很少，为什么吴承恩在写《西游记》时不把他删掉？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [中方奉劝七国集团管好自己的事情](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [赵丽颖起诉红果短剧，案由涉及 AI 换脸肖像权纠纷，如何从法律层面解读？出品方、平台该承担什么责任？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [如何评价特朗普离任时给拜登的信？「与他在现实中的言论截然不同」指的是什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [真有人在这游戏里面没赌过吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女子生完孩子被丈夫拒之门外](http://www.daogukj.com/3439248)
-- [把土豆当主食吃真能减重吗](http://www.movie.hkepx.cn/xiju/5723356.htm)
-- [油价今晚有望大幅下降](http://www.daogukj.com/6000433)
-- [“包子2元停车10元”成历史](http://www.daogukj.com/7456083)
-- [徐艺洋儿子拿妈妈应援物](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
-- [老 兵 电 竟 2.0](http://www.movie.hkepx.cn/movie/2238087.htm)
-- [后会友期全员拿到大结果了](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
-- [李宇春原来是井柏然老板](http://www.movie.hkepx.cn/xiju/4841059.htm)
-- [这都能还原！！？【MC阿哈篇】](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
-- [如何看待卡蓓诺洗发水(Cabelo)火速上架亚马逊日本，它还有机会逆转吗？](http://www.movie.hkepx.cn/xiju/8193455.htm)
-- [汽车撞上风筝线多处被割坏](http://www.movie.hkepx.cn/xiju/1574035.htm)
-- [几家都说没救的猛禽3080，亮机后跑了七十七万分](http://www.movie.hkepx.cn/xiju/0717269.htm)
-- [两京十五日定档央八](http://www.daogukj.com/9326450)
-- [女子称产后与娃都患病丈夫不让进门](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
-- [控血糖生活方式是关键](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
-- [奔驰要变了：100%为中国](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
-- [Anthropic披露AI仅用3天适配AMD芯片](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
-- [被砍断手指留学生遭朋友卷走数十万](http://www.movie.hkepx.cn/xiju/7062133.htm)
-- [赵丽颖起诉红果短剧](http://www.daogukj.com/amzovuov/)
-- [山姆399元充绒量300克羽绒服断货](http://www.daogukj.com/2011735)
-- [泽连斯基嘲讽特朗普](http://www.movie.hkepx.cn/xiju/2237302.htm)
-- [警惕“车辆召回”虚假信息](http://www.movie.hkepx.cn/movie/3232131.htm)
-- [警惕车辆召回谣言 已有人受骗](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
-- [为什么一个企业的利润率0%，仍然可以赚钱？](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
-- [沙僧在《西游记》中，除了挑担子外，出场的时候很少，为什么吴承恩在写《西游记》时不把他删掉？](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
-- [韩国有可能再恢复使用汉字吗？](http://www.movie.hkepx.cn/movie/7476543.htm)
-- [间谍过家家·福杰夫妇：非凡之爱](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
-- [张雪回应公司又在意大利被偷](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
-- [现代人为什么越来越不敢接电话](http://www.daogukj.com/7278634)
-- [奔驰 CEO 称「在中国，车要大，非常大，大得惊人」，实际情况是这样吗？为什么国内外会存在这样的区别？](http://www.daogukj.com/kjritwpu/)
-- [NBA回应库里右侧髋部疑受伤](http://www.movie.hkepx.cn/movie/7092438.htm)
-- [深圳准备好了！APEC氛围拉满](http://www.movie.hkepx.cn/movie/3129013.htm)
-- [家长圈热议“小学生只上半天学”](http://www.movie.hkepx.cn/xiju/7500457.htm)
-- [原来李宇春是井柏然的老板](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
-- [寰宇频道特别栏目 | 远行](http://www.daogukj.com/pgoxgqgc/)
-- [C罗宣布个人首部剧集开机](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
-- [决不能让一个梗毁掉一个孩子](http://www.daogukj.com/euynrtzl/)
-- [大肥鱼适合做女朋友吗？（3）](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
-- [苹果宣布官方社区将于11月20日永久关闭，即日起停止新帖仅保留只读模式，可能出于什么原因？会有何影响？](http://www.movie.hkepx.cn/xiju/8147435.htm)
-- [《再 试 一 次！》](http://www.daogukj.com/soikllri/)
-- [河南省委书记到胖东来调研](http://www.daogukj.com/3156407)
-- [【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
-- [李彦宏称AI变革势不可挡](http://www.movie.hkepx.cn/xiju/1247424.htm)
-- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](http://www.daogukj.com/urlgwtmt/)
-- [我们人类是地球上的第几代文明？](http://www.movie.hkepx.cn/movie/3044896.htm)
-- [俄罗斯要求日本放弃推进再军事化](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
-- [大美高迪已无商业关联](http://www.movie.hkepx.cn/xiju/3522057.htm)
-- [日媒为何对高市“开战”言论集体失声](http://www.daogukj.com/1068378)
-- [喂，你们几个聊的很开心啊](http://www.movie.hkepx.cn/xiju/2722752.htm)
-- [某律师为了不把敏感资料上传云端，用 8 张 V100 搭建一台数千瓦功耗的本地 AI 服务器值得吗？](http://www.movie.hkepx.cn/xiju/6955801.htm)
+- [赵丽颖诉红果 短剧该有自己风格](http://www.daogukj.com/3439248)
+- [据说，这就是世界上最贵的贝类。。](http://www.movie.hkepx.cn/xiju/5723356.htm)
+- [朴树哥哥否认朴树去世](http://www.daogukj.com/6000433)
+- [如何看待12306回应外籍游客探出高铁车厢吸烟，称「个人素质行为」无法阻止？高铁站吸烟为何难以管理？](http://www.daogukj.com/7456083)
+- [日媒：石破茂处分风波暴露自民党双标](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
+- [疑似《崩坏：星穹铁道》星神★阿哈★真人角色PV流出](http://www.movie.hkepx.cn/movie/2238087.htm)
+- [福耀集团曹晖：企业绿色转型是必答题](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
+- [山姆399元羽绒服戳破行业泡沫](http://www.movie.hkepx.cn/xiju/4841059.htm)
+- [奥迪全新超跑来了 定价近500万元](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
+- [为什么腾讯28 周年内部线上直播马化腾「全程没啥笑脸」？](http://www.movie.hkepx.cn/xiju/8193455.htm)
+- [立陶宛设“台湾代表处”内幕曝光](http://www.movie.hkepx.cn/xiju/1574035.htm)
+- [《洛克王国：世界》全新活动预告「阿布重逢记」](http://www.movie.hkepx.cn/xiju/0717269.htm)
+- [只有青稚察觉到表白不对](http://www.daogukj.com/9326450)
+- [德芙广告宣扬错误婚恋观 被罚80万](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
+- [无牌四轮车撞倒老人后逃逸](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
+- [马天宇这里其实看出来了吧](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
+- [冲击全球最大IPO的招股书像恐怖小说](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
+- [双十一静悄悄 卖token很热闹](http://www.movie.hkepx.cn/xiju/7062133.htm)
+- [金价年内暴跌](http://www.daogukj.com/amzovuov/)
+- [Knight与chovy数据对比](http://www.daogukj.com/2011735)
+- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](http://www.movie.hkepx.cn/xiju/2237302.htm)
+- [“商家扬言取消外卖”系引流套路](http://www.movie.hkepx.cn/movie/3232131.htm)
+- [网传“商家扬言取消外卖”系谣言](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
+- [韩国有可能再恢复使用汉字吗？](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
+- [真有人在这游戏里面没赌过吗？](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
+- [如何评价特朗普离任时给拜登的信？「与他在现实中的言论截然不同」指的是什么？](http://www.movie.hkepx.cn/movie/7476543.htm)
+- [中美就300亿对等降税保持密切沟通](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
+- [APEC为什么选在大湾区举办](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
+- [舅舅患癌去世提醒定期检查身体](http://www.daogukj.com/7278634)
+- [德芙因七夕广告宣扬错误婚恋观，代运营方被罚 80 万，怎样看待这一结果？](http://www.daogukj.com/kjritwpu/)
+- [中方就中俄美元首会晤保持着沟通](http://www.movie.hkepx.cn/movie/7092438.htm)
+- [中国人餐桌上的APEC含量有多高](http://www.movie.hkepx.cn/movie/3129013.htm)
+- [结婚“随礼”14000元 民警：不同意](http://www.movie.hkepx.cn/xiju/7500457.htm)
+- [A股尾盘突变背后发生了什么](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
+- [《白银之城》角色PV - 馨西亚二世：到月下的城邦去](http://www.daogukj.com/pgoxgqgc/)
+- [1根肠过期7个半小时 商家被判赔千元](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
+- [一字肩羽绒服 冻肩膀自由](http://www.daogukj.com/euynrtzl/)
+- [高三生在拼豆店干坐1小时，留下5元钱、道歉纸条和父母电话，为什么能引发热议？给孩子教育留下怎样的启发？](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
+- [如何看待马志明收郭德纲为义子？](http://www.movie.hkepx.cn/xiju/8147435.htm)
+- [【纪录片】人生一串 第四季 02 心惊肉跳](http://www.daogukj.com/soikllri/)
+- [哈尔滨长春街25号原拆原建](http://www.daogukj.com/3156407)
+- [刷短剧上瘾怎么办](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
+- [举报是维护公平还是排除对手](http://www.movie.hkepx.cn/xiju/1247424.htm)
+- [泡面风波](http://www.daogukj.com/urlgwtmt/)
+- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](http://www.movie.hkepx.cn/movie/3044896.htm)
+- [男子失业断供房贷 法院暂不拍卖房产](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
+- [山姆399元羽绒服断货供应商回应](http://www.movie.hkepx.cn/xiju/3522057.htm)
+- [一字肩羽绒服都来了](http://www.daogukj.com/1068378)
+- [零元面馆为什么可能带来坏结果](http://www.movie.hkepx.cn/xiju/2722752.htm)
+- [通过低频脉冲刺激神经的「脉冲训练服」是什么原理？普通人能用来无痛锻炼吗？真能「坐着躺着就能长肌肉」吗？](http://www.movie.hkepx.cn/xiju/6955801.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待马志明收郭德纲为义子？](https://www.zhihu.com/question/2103957347660051158)
+- [把两只怀孕的蚁后分别放在不同生态，100天后谁发展的更厉害？](https://b23.tv/BV1s1Wt6UEMj)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4c3ba4ab6a6ca81d285b -->
+<!-- content-fingerprint: 949aaf8ad7ea3944539e -->
