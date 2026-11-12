@@ -2,11 +2,11 @@
 
 # 网传“商家扬言取消外卖”系谣言
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6850180 · 更新：2026-11-12T20:00:02+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6856398 · 更新：2026-11-13T03:49:52+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“网传“商家扬言取消外卖”系谣言”位列第 10 位，公开热度指标为 6850180。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“网传“商家扬言取消外卖”系谣言”位列第 10 位，公开热度指标为 6856398。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：近日，网传商家扬言取消外卖的短视频实为MCN批量炮制的引流噱头，宜宾已开展调查，涉事商家正常承接外卖业务。
 
@@ -18,74 +18,74 @@
 
 ## 相关热点
 
-- [金价年内暴跌](yu-mu-hun-zhu.md)
+- [疑似青稚白小纯对话用了传声耳机](yu-mu-hun-zhu.md)
 - [“商家扬言取消外卖”系引流套路](dong-shi-xiao-pin.md)
-- [如何看待马志明收郭德纲为义子？](han-dan-xue-bu.md)
-- [这都能还原！！？【MC阿哈篇】](qi-ren-you-tian.md)
+- [蒂姆·库克被提名为英伟达一把手潜在继任者，特朗普也建议其担任CEO，库克成为英伟达新掌门的概率大吗？](han-dan-xue-bu.md)
+- [补档：钢成军的秘密被灭建国发现了，这下可惨了](qi-ren-you-tian.md)
 
 ## 站内推荐
 
-- [【纪录片】人生一串 第四季 02 心惊肉跳](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [确认糖尿病 是否彻底跟甜食绝缘](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [山姆399元羽绒服打脸谁](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [舅舅患癌去世提醒定期检查身体](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [金晨现在就出发4路透](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [男子应聘司机干了6小时倒贴2万](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [年轻人为什么不爱买皮鞋了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [刘欢查出疑似癌症转移第二天岳父去世](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [朴树停演静养](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [男子怀疑女儿是外星人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [德芙广告宣扬错误婚恋观 被罚80万](http://www.daogukj.com/1906233)
-- [朴树哥哥否认朴树去世](http://www.movie.hkepx.cn/movie/8207551.htm)
-- [【逗鱼时刻】第502期 这把该你赢吗？就是会有的呀！](http://www.daogukj.com/dztmbdzh/)
-- [朴树哥哥否认朴树去世传闻](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
-- [如何看待马化腾在腾讯 28 周年庆全员会上的讲话？](http://www.movie.hkepx.cn/xiju/7262543.htm)
-- [爆款羽绒服工厂为何甘心躲在山姆后面](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
-- [听说新西兰卖1000一只的黑金鲍泛滥了！我临时起意…](http://www.movie.hkepx.cn/xiju/4947300.htm)
-- [三军会师启新程](http://www.movie.hkepx.cn/xiju/5761043.htm)
-- [通过低频脉冲刺激神经的「脉冲训练服」是什么原理？普通人能用来无痛锻炼吗？真能「坐着躺着就能长肌肉」吗？](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
-- [18岁女孩发烧查出肺癌晚期](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
-- [高迪否认大美偷税漏税](http://www.movie.hkepx.cn/movie/5688642.htm)
-- [双十一静悄悄 卖token很热闹](http://www.daogukj.com/jvdbiekb/)
-- [一字肩羽绒服都来了](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
-- [如何看待马志明收郭德纲为义子？](http://www.movie.hkepx.cn/xiju/4016086.htm)
-- [网红「疯狂小马哥」离世，家人称是「打 PK」被要求喝20瓶酒中途猝死，连麦者与平台应承担责任吗？](http://www.movie.hkepx.cn/movie/2656990.htm)
-- [双11消费逻辑正在重写](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
+- [美股](http://www.daogukj.com/1906233)
+- [德芙因七夕广告宣扬错误婚恋观，代运营方被罚 80 万，怎样看待这一结果？](http://www.movie.hkepx.cn/movie/8207551.htm)
+- [英伟达公司宣布：黄仁勋辞职](http://www.daogukj.com/dztmbdzh/)
+- [向太问许飞为什么当时不解开误会](http://www.play.hengshemaoyi.cn/xiju/8938178.htm)
+- [【纪录片】人生一串 第四季 02 心惊肉跳](http://www.movie.hkepx.cn/xiju/7262543.htm)
+- [英伟达临时CEO首次发声](http://www.play.hengshemaoyi.cn/xiju/2968049.htm)
+- [《再 试 一 次！》](http://www.movie.hkepx.cn/xiju/4947300.htm)
+- [中国经济三季报亮点解析](http://www.movie.hkepx.cn/xiju/5761043.htm)
+- [你支持小区取消物业，实行业主自治管理吗？](http://www.play.hengshemaoyi.cn/xiju/6262773.htm)
+- [双11为何越来越安静了](http://www.play.hengshemaoyi.cn/xiju/1312342.htm)
+- [你王菲啊 厉娜](http://www.movie.hkepx.cn/movie/5688642.htm)
+- [朴树哥哥否认朴树去世传闻](http://www.daogukj.com/jvdbiekb/)
+- [普京：俄不能接受外国军队在乌驻扎](http://www.play.hengshemaoyi.cn/xiju/5739203.htm)
+- [蒂姆·库克被提名为英伟达一把手潜在继任者，特朗普也建议其担任CEO，库克成为英伟达新掌门的概率大吗？](http://www.movie.hkepx.cn/xiju/4016086.htm)
+- [怎么看 Anthropic IPO 提到 Claude适配全芯片训练和推理，接入 AMD只用 3 天？](http://www.movie.hkepx.cn/movie/2656990.htm)
+- [发布朴树去世消息网友已私密账号](http://www.play.hengshemaoyi.cn/kongbu/7891766.htm)
 - [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.movie.hkepx.cn/movie/6948720.htm)
-- [冬天在云南烤火真的会胖](http://www.movie.hkepx.cn/movie/3077263.htm)
+- [腾讯裁员50%？知情人士回应](http://www.movie.hkepx.cn/movie/3077263.htm)
 - [中美就300亿对等降税保持密切沟通](http://www.movie.hkepx.cn/movie/1951037.htm)
-- [哈尔滨长春街25号原拆原建](http://www.daogukj.com/0012222)
-- [这都能还原！！？【MC阿哈篇】](http://www.movie.hkepx.cn/movie/6159585.htm)
-- [为什么一个企业的利润率0%，仍然可以赚钱？](http://www.movie.hkepx.cn/xiju/3354539.htm)
-- [金价 跌回一年前](http://www.movie.hkepx.cn/movie/4882379.htm)
-- [日媒：石破茂处分风波暴露自民党双标](http://www.movie.hkepx.cn/movie/1975079.htm)
-- [刷短剧上瘾怎么办](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
-- [油价13日起下调](http://www.movie.hkepx.cn/xiju/1921854.htm)
-- [朱一龙23岁演的剧要播了](http://www.daogukj.com/4901061)
-- [【1酱赛评四强篇-下】14年！为什么Faker输给了LPL没有被剥夺冠军和讥讽，反而获得了LPL观众的尊重和体谅？](http://www.daogukj.com/jetdabgu/)
-- [男子失业断供房贷 法院暂不拍卖房产](http://www.daogukj.com/7091816)
+- [“两岸和平倡议大会”在台北举办](http://www.daogukj.com/0012222)
+- [补档：钢成军的秘密被灭建国发现了，这下可惨了](http://www.movie.hkepx.cn/movie/6159585.htm)
+- [山姆399元羽绒服断货供应商回应](http://www.movie.hkepx.cn/xiju/3354539.htm)
+- [美防长在无名烈士墓说笑被哨兵训斥](http://www.movie.hkepx.cn/movie/4882379.htm)
+- [油价13日起下调](http://www.movie.hkepx.cn/movie/1975079.htm)
+- [今晚调油价 加满一箱油将少花25.5元](http://www.play.hengshemaoyi.cn/xiju/7696476.htm)
+- [黄仁勋辞去英伟达 CEO 职务，会给中国 AI 芯片厂商带来新的发展机会吗？](http://www.movie.hkepx.cn/xiju/1921854.htm)
+- [给阿嬷的情书获奖反应冷淡](http://www.daogukj.com/4901061)
+- [文明重启：耗时3年，我终于做出了我的第一件铁器](http://www.daogukj.com/jetdabgu/)
+- [第一个攻克癌症的中国公司已经亏损了](http://www.daogukj.com/7091816)
 - [0.01分赢下保研第二天就被室友举报](http://www.movie.hkepx.cn/movie/5119801.htm)
-- [超临界AZ3是机密爆率？在超临界爆肝1000个放射性储物箱，真实爆率有多离谱？](http://www.daogukj.com/eozvjcki/)
-- [三年之期已到，恭迎世一上归位！【第17集】](http://www.movie.hkepx.cn/movie/3647409.htm)
-- [中方就中俄美元首会晤保持着沟通](http://www.daogukj.com/olnmglro/)
-- [韩国有可能再恢复使用汉字吗？](http://www.movie.hkepx.cn/movie/0305763.htm)
-- [真有人在这游戏里面没赌过吗？](http://www.movie.hkepx.cn/xiju/5270802.htm)
+- [疑似《崩坏：星穹铁道》星神★阿哈★真人角色PV流出](http://www.daogukj.com/eozvjcki/)
+- [“这是解锁了什么特殊CG吗？！”](http://www.movie.hkepx.cn/movie/3647409.htm)
+- [老板给连吃7碗米饭母女放钱系摆拍](http://www.daogukj.com/olnmglro/)
+- [如何看待28岁中国留学毕业生在墨尔本遇袭，两根手指被砍断，膝盖被砍伤，还遭朋友卷走5.4万澳元医药费？](http://www.movie.hkepx.cn/movie/0305763.htm)
+- [这都能还原！！？【MC阿哈篇】](http://www.movie.hkepx.cn/xiju/5270802.htm)
 - [“商家扬言取消外卖”系引流套路](http://www.daogukj.com/novgnuvs/)
-- [只有青稚察觉到表白不对](http://www.movie.hkepx.cn/movie/5479779.htm)
-- [山姆399元羽绒服打脸谁](http://www.daogukj.com/pimnqdhd/)
-- [舅舅患癌去世提醒定期检查身体](http://www.movie.hkepx.cn/movie/9614078.htm)
-- [不断地向人道歉是什么心理？过多的道歉为什么让人反感？](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
-- [今晚调油价 加满一箱油将少花25.5元](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
-- [冲击全球最大IPO的招股书像恐怖小说](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
-- [女子在西西弗书店买了200元的书，想坐咖啡区却被拒，店方称需另行消费才能入座，这一规定合理吗？](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
-- [部分弱资质信用债大幅调整](http://www.movie.hkepx.cn/xiju/1743642.htm)
-- [如何看待女子称产后患血小板减少症遭丈夫拒之门外导致其流离失所，后男方因涉遗弃罪被捕？这是怎样的病症？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
-- [赵丽颖起诉红果短剧，案由涉及 AI 换脸肖像权纠纷，如何从法律层面解读？出品方、平台该承担什么责任？](http://www.movie.hkepx.cn/movie/7048621.htm)
-- [APEC为什么选在大湾区举办](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
-- [确认糖尿病 是否彻底跟甜食绝缘](http://www.movie.hkepx.cn/movie/9217518.htm)
-- [赵丽颖诉红果 短剧该有自己风格](http://www.daogukj.com/mmmeuyql/)
-- [奥迪全新超跑来了 定价近500万元](http://www.movie.hkepx.cn/xiju/2283933.htm)
+- [20岁男子疑遭拘禁殴打被解救后去世](http://www.movie.hkepx.cn/movie/5479779.htm)
+- [刘欢查出疑似癌症转移第二天岳父去世](http://www.daogukj.com/pimnqdhd/)
+- [朴树停演静养](http://www.movie.hkepx.cn/movie/9614078.htm)
+- [如何看待马志明收郭德纲为义子？](http://www.play.hengshemaoyi.cn/kongbu/5509722.htm)
+- [深圳APEC媒体包藏着满满的惊喜](http://www.play.hengshemaoyi.cn/kongbu/9393992.htm)
+- [新生抽中“免费吃食堂一年”特等奖](http://www.play.hengshemaoyi.cn/kongbu/0517308.htm)
+- [如何评价黄仁勋任职英伟达CEO期间的全部贡献？](http://www.play.hengshemaoyi.cn/xiju/1782616.htm)
+- [国产手机再迎双品牌战略](http://www.movie.hkepx.cn/xiju/1743642.htm)
+- [房子已经过剩，为什么一直还在新盖楼盘？](http://www.play.hengshemaoyi.cn/kongbu/9473879.htm)
+- [女子在西西弗书店买了200元的书，想坐咖啡区却被拒，店方称需另行消费才能入座，这一规定合理吗？](http://www.movie.hkepx.cn/movie/7048621.htm)
+- [朴树哥哥否认朴树去世](http://www.play.hengshemaoyi.cn/kongbu/7352088.htm)
+- [年轻人为什么不爱买皮鞋了](http://www.movie.hkepx.cn/movie/9217518.htm)
+- [大冰谈夫妻异地城市选择](http://www.daogukj.com/mmmeuyql/)
+- [东莞卫健局介入“患者欠费扣医生钱”](http://www.movie.hkepx.cn/xiju/2283933.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2b6a943bf74579f4f30f -->
+<!-- content-fingerprint: 35bbc98ecc857f2a801c -->
