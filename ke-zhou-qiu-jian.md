@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 大衣哥和他的“流量往事”
+# S16决赛海报公布
 
-> 来源：百度热搜 · 排名：第 8 位 · 热度：7046403 · 更新：2026-11-13T08:49:13+08:00
+> 来源：微博热搜 · 排名：第 9 位 · 热度：383587 · 分类：电竞 · 更新：2026-11-13T15:29:26+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“大衣哥和他的“流量往事””位列第 8 位，公开热度指标为 7046403。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“S16决赛海报公布”位列第 9 位，公开热度指标为 383587，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月底，大衣哥朱之文因被黑粉举报导致十几场商业演出取消，在山东菏泽老家录视频喊话黑粉要“干到底”。此前，他饱受网络造谣与围观骚扰。无论再遇到什么烦恼，他都觉得自己始终是幸运的。“不跟任何人比，我就跟以前比。”
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `电竞`
 
 ## 相关热点
 
-- [意大利3比1法国](yan-er-dao-ling.md)
-- [俄称愿立即与美国讨论欧洲安全问题](nan-yuan-bei-zhe.md)
-- [如何看待张一鸣称字节不应依赖蒸馏，应长期自主研发，「追上 OpenAI 还需三四年」？核心难点在哪？](mai-du-huan-zhu.md)
-- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](ye-gong-hao-long.md)
+- [唐湘龙：罗大佑曾在演唱会剪美国护照](yan-er-dao-ling.md)
+- [禅让制为何在尧舜禹之间传了三代就玩不下去了？](nan-yuan-bei-zhe.md)
+- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](mai-du-huan-zhu.md)
+- [创业板指高开低走跌3.32%](ye-gong-hao-long.md)
 
 ## 站内推荐
 
-- [在深圳科技触手可及](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [3D打印6小时造一双鞋](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [网传“商家扬言取消外卖”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [刘欢妻子公开信辟谣多个消息](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [张萌马天宇聊王子璇](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [我们的城市有条中山路](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [阿姨照料患癌男同事14年开销AA制](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [宋雨琦转发中国台湾被韩网热议](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [曝魏晨被雪藏的原因](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [叶舒华在台湾综艺说了Chinese](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [华农兄弟：抓鸭抓鹅一起炖，兄弟都说好吃](http://www.movie.hkepx.cn/xiju/2843648.htm)
-- [工作中怀疑最大领导不喜欢你，怎么办？](http://www.daogukj.com/0895296)
-- [德芙因七夕广告宣扬错误婚恋观，代运营方被罚 80 万，怎样看待这一结果？](http://www.movie.hkepx.cn/xiju/3970296.htm)
-- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](http://www.movie.hkepx.cn/movie/5125967.htm)
-- [感觉杨超越不捂住董思成的嘴都要亲了](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
-- [荷兰法院已驳回捷豹路虎突击调取比亚迪研发资料的申请，还有哪些信息值得关注？这一裁定意味着什么？](http://www.movie.hkepx.cn/xiju/5735202.htm)
-- [双11为何“无感”了](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
-- [给阿嬷的情书获奖反应冷淡](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
-- [年轻人为什么不爱买皮鞋了](http://www.daogukj.com/1682120)
-- [成都成中国唯一入选美国《国家地理》全球最佳旅行地城市，凭什么吸引世界目光？](http://www.daogukj.com/3781657)
-- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
-- [刘欢录跨年晚会时癌细胞疑已扩散](http://www.movie.hkepx.cn/xiju/8318389.htm)
-- [“商家扬言取消外卖”系引流套路](http://www.movie.hkepx.cn/xiju/6056931.htm)
-- [金价再迎暴跌专家劝别抄底](http://www.movie.hkepx.cn/xiju/3703541.htm)
-- [怀孕妻子发现丈夫的白月光](http://www.movie.hkepx.cn/xiju/8516838.htm)
-- [新生抽中“免费吃食堂一年”特等奖](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
-- [如何看待马化腾在腾讯 28 周年庆全员会上的讲话？](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
-- [刘欢癌症扩散后曾放手一搏试新药](http://www.movie.hkepx.cn/movie/7128560.htm)
-- [英伟达显卡美亚销量暴跌超过70%｜显卡日报11月13日](http://www.daogukj.com/3515190)
-- [刘欢安葬于北京 曾与膀胱癌斗争多年](http://www.daogukj.com/0169777)
-- [伏笔满满、高层改戏、英雄崩溃！漫威口碑“系列最差”的《复联2》到底冤不冤？](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
-- [店老板为连吃7碗米饭母女放钱系摆拍](http://www.daogukj.com/4071713)
-- [乡干部捅伤村民潜逃 15 年，其间违规吃空饷 140 万元并升为正科，暴露出哪些问题？](http://www.daogukj.com/pjoqnyew/)
-- [普通人用AI和会用AI的人](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
-- [刘欢死因首次曝光，系感染性休克，生前与膀胱癌斗争十几年，膀胱癌有多危险？该怎样预防？](http://www.movie.hkepx.cn/movie/5516169.htm)
-- [退役特级飞行员：中国空军发展太快](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
-- [《反方向の忠》](http://www.daogukj.com/pgdrxeea/)
-- [同是东亚内卷，日韩打工人，生活差距有多大？](http://www.daogukj.com/7272013)
-- [中国正在编织这样一张大网](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
-- [英伟达大跌13%](http://www.daogukj.com/3521407)
-- [零元面馆称周边商家若受损失愿补偿](http://www.daogukj.com/9982293)
-- [冰箱当废品卖50元 男子自拆卖260](http://www.movie.hkepx.cn/xiju/3540024.htm)
-- [千吨百亩甘蔗倒伏 村庄发文求助](http://www.movie.hkepx.cn/movie/9307027.htm)
-- [补档：钢成军的秘密被灭建国发现了，这下可惨了](http://www.movie.hkepx.cn/movie/7494540.htm)
-- [斯玛特因挥拳打人被停薪禁赛3场](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
-- [在深圳科技触手可及](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
-- [3D打印6小时造一双鞋](http://www.daogukj.com/4973551)
-- [英伟达股民天塌了](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
-- [英伟达公司宣布：黄仁勋辞职](http://www.daogukj.com/zirrjtcq/)
-- [中国经济三季报亮点解析](http://www.daogukj.com/pvjkdvkl/)
-- [NVIDIA：黄仁勋辞职](http://www.movie.hkepx.cn/movie/8281799.htm)
-- [山姆399元羽绒服断货供应商回应](http://www.movie.hkepx.cn/movie/4145451.htm)
-- [【纪录片】人生一串 第四季 02 心惊肉跳](http://www.movie.hkepx.cn/xiju/5480896.htm)
-- [库里腹斜肌撕裂 两周后复查](http://www.movie.hkepx.cn/xiju/6192675.htm)
-- [后会友期民宿离晚餐地点不到四公里](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
+- [淮海战役作战命令进高三语文考题](http://www.movie.hkepx.cn/xiju/2843648.htm)
+- [黄仁勋下台会对英伟达游戏卡造成什么影响？](http://www.daogukj.com/0895296)
+- [NVIDIA：黄仁勋辞职](http://www.movie.hkepx.cn/xiju/3970296.htm)
+- [创业板指高开低走跌3.32%](http://www.movie.hkepx.cn/movie/5125967.htm)
+- [Outlook崩了日本政府改用电话工作](http://www.play.hengshemaoyi.cn/xiju/1337428.htm)
+- [被传裁员后腾讯紧急辟谣「裁员 50%」说法，被热议的腾讯，是业务出了什么问题吗？](http://www.movie.hkepx.cn/xiju/5735202.htm)
+- [飞秒手术要降价了](http://www.play.hengshemaoyi.cn/xiju/9911862.htm)
+- [上海交警用英文丝滑执法走红](http://www.play.hengshemaoyi.cn/xiju/7171160.htm)
+- [周鸿祎回应黄仁勋辞职对中国AI影响](http://www.daogukj.com/1682120)
+- [永夜扉间PV及技能初探丨此身为烛](http://www.daogukj.com/3781657)
+- [KFC列车诞生了](http://www.play.hengshemaoyi.cn/xiju/4523172.htm)
+- [问界](http://www.movie.hkepx.cn/xiju/8318389.htm)
+- [失去灵魂人物的英伟达接下来会走向何方？英伟达当前最大的隐忧是什么？](http://www.movie.hkepx.cn/xiju/6056931.htm)
+- [青稚后悔了](http://www.movie.hkepx.cn/xiju/3703541.htm)
+- [破译“科学”流言不可不知100个真相](http://www.movie.hkepx.cn/xiju/8516838.htm)
+- [考研人数](http://www.play.hengshemaoyi.cn/kongbu/5705049.htm)
+- [臣妾要线上告发熹贵妃 2.0](http://www.play.hengshemaoyi.cn/xiju/3380758.htm)
+- [比亚迪悬赏最高500万征集抹黑线索](http://www.movie.hkepx.cn/movie/7128560.htm)
+- [女子花8950将爱犬毛发做钻戒戴手上](http://www.daogukj.com/3515190)
+- [饶毅喊话耿同学「欢迎耿同学批评」，如何理解他们两位观点的异同？](http://www.daogukj.com/0169777)
+- [刘欢墓地曝光](http://www.play.hengshemaoyi.cn/xiju/7779464.htm)
+- [和平饭店账单造假事件15人被抓](http://www.daogukj.com/4071713)
+- [《崩坏：星穹铁道》EP：「无中生有」](http://www.daogukj.com/pjoqnyew/)
+- [刘欢妻子发8000字长文](http://www.play.hengshemaoyi.cn/kongbu/6524738.htm)
+- [无烟酒吧倒闭、张美玉抑郁、大学生无偿代跑拒绝供出同学【抽象周刊】](http://www.movie.hkepx.cn/movie/5516169.htm)
+- [为什么人到中年，很多人会觉得友情没那么重要？还有些人会觉得这是成熟的表现？](http://www.play.hengshemaoyi.cn/kongbu/4282047.htm)
+- [徐峥刷到自己的AI换脸视频惊了](http://www.daogukj.com/pgdrxeea/)
+- [市民捐赠公交车保暖坐垫4天被拿光](http://www.daogukj.com/7272013)
+- [亚太共此时](http://www.play.hengshemaoyi.cn/kongbu/9763109.htm)
+- [女子3年没睡过整觉 吃安眠药也没用](http://www.daogukj.com/3521407)
+- [放二十年的金砖被物理好的人取走了](http://www.daogukj.com/9982293)
+- [《密档》口碑、票房均不如《给阿嬷的情书》《南京照相馆》，其导演却拿下最佳导演，金鸡奖的评审逻辑是什么？](http://www.movie.hkepx.cn/xiju/3540024.htm)
+- [有英伟达员工称已经开始找工作了](http://www.movie.hkepx.cn/movie/9307027.htm)
+- [刘欢癌症扩散后曾放手一搏试新药](http://www.movie.hkepx.cn/movie/7494540.htm)
+- [三年多没联系的同事，突然发微信问我在不在？我该怎么回复？](http://www.play.hengshemaoyi.cn/xiju/0723547.htm)
+- [我们的城市有条中山路](http://www.play.hengshemaoyi.cn/kongbu/6411795.htm)
+- [阿姨照料患癌男同事14年开销AA制](http://www.daogukj.com/4973551)
+- [创业板指跌3.32%](http://www.play.hengshemaoyi.cn/kongbu/1784194.htm)
+- [荷兰法院驳回路虎取证比亚迪申请](http://www.daogukj.com/zirrjtcq/)
+- [张雪回应「读书无用论」，称这种定义很 low，自己几乎每天都学习，如何看待这一表态？](http://www.daogukj.com/pvjkdvkl/)
+- [秋假带火研学游、亲子游](http://www.movie.hkepx.cn/movie/8281799.htm)
+- [两广人为什么餐餐吃空心菜？真这么好吃吗？](http://www.movie.hkepx.cn/movie/4145451.htm)
+- [警方通报和平饭店51万元天价小票](http://www.movie.hkepx.cn/xiju/5480896.htm)
+- [前两年平价牛肉餐饮疯狂开店，现如今牛肉价格涨幅已达 27% ，牛肉为何吃不起了？](http://www.movie.hkepx.cn/xiju/6192675.htm)
+- [“一代腿王”黄正利去世](http://www.play.hengshemaoyi.cn/kongbu/0796215.htm)
 - [他真的太优雅了！灰太狼&红太狼【非凡之爱】](http://www.play.hengshemaoyi.cn/kongbu/7913467.htm)
-- [网传“商家扬言取消外卖”系谣言](http://www.movie.hkepx.cn/movie/8224566.htm)
-- [意大利3比1法国](http://www.daogukj.com/rdjgxawo/)
-- [英伟达临时CEO曾因黄仁勋入职](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
-- [议员儿子涉毒，当红男明星偷拍，黑帮大佬遭绑架？钱已到位，罪恶都市清道夫来活了！《黑白清道夫》](http://www.daogukj.com/4280554)
+- [宋雨琦转发中国台湾被韩网热议](http://www.movie.hkepx.cn/movie/8224566.htm)
+- [唐湘龙：罗大佑曾在演唱会剪美国护照](http://www.daogukj.com/rdjgxawo/)
+- [中到大雪即将抵达河南](http://www.play.hengshemaoyi.cn/xiju/8567311.htm)
+- [张萌后悔叫马天宇上节目](http://www.daogukj.com/4280554)
 
 </details>
 
 ## 原始来源
 
-- [大衣哥和他的“流量往事”](https://www.baidu.com/s?wd=%E5%A4%A7%E8%A1%A3%E5%93%A5%E5%92%8C%E4%BB%96%E7%9A%84%E2%80%9C%E6%B5%81%E9%87%8F%E5%BE%80%E4%BA%8B%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [S16决赛海报公布](https://s.weibo.com/weibo?q=S16%E5%86%B3%E8%B5%9B%E6%B5%B7%E6%8A%A5%E5%85%AC%E5%B8%83)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 10936e1c56d7bcc1a89f -->
+<!-- content-fingerprint: 3bff7504a397e149ea40 -->

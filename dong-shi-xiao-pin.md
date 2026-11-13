@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 怀孕妻子发现丈夫的白月光
+# 破译“科学”流言不可不知100个真相
 
-> 来源：微博热搜 · 排名：第 11 位 · 热度：271463 · 分类：情感 · 更新：2026-11-13T08:49:13+08:00
+> 来源：今日头条热榜 · 排名：第 11 位 · 热度：13338445 · 分类：辟谣 · 更新：2026-11-13T15:29:26+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“怀孕妻子发现丈夫的白月光”位列第 11 位，公开热度指标为 271463，榜单分类为“情感”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“破译“科学”流言不可不知100个真相”位列第 11 位，公开热度指标为 13338445，榜单分类为“辟谣”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `情感`
+`今日头条热榜` `实时热搜` `热点资讯` `辟谣`
 
 ## 相关热点
 
-- [“商家扬言取消外卖”系引流套路](han-dan-xue-bu.md)
-- [英伟达为何会选择科莱特·克雷斯出任临时CEO？她个人有哪些成就？她能坐稳继任者位置吗？](qi-ren-you-tian.md)
-- [我将负责嘎嘎乱吃！](chao-san-mu-si.md)
-- [英伟达临时CEO发声](dui-niu-tan-qin.md)
+- [失去灵魂人物的英伟达接下来会走向何方？英伟达当前最大的隐忧是什么？](han-dan-xue-bu.md)
+- [【烂奇迹】三毛：我的一生颠沛流离，活到现在算是个奇迹](qi-ren-you-tian.md)
+- [男子生吞新鲜蛇胆 脑子里长满寄生虫](chao-san-mu-si.md)
+- [陈晓楠 张泉灵](dui-niu-tan-qin.md)
 
 ## 站内推荐
 
-- [金价](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [后会友期民宿离晚餐地点不到四公里](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [意大利3比1法国](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [刘欢癌症扩散后曾放手一搏试新药](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [厉娜节目里第一次叫许飞名字](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [2027研究生报考人数347万](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [“一代腿王”黄正利去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [唐湘龙：罗大佑曾在演唱会剪美国护照](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [比亚迪悬赏最高500万征集抹黑线索](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [华为Mate X8真机疑曝光](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
-- [《你跟他废什么话》](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
-- [王子璇白小纯4公里开了三小时](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
+- [创业板指高开低走跌3.32%](http://www.play.hengshemaoyi.cn/kongbu/9638512.htm)
+- [国产苹果卷出新高度](http://www.play.hengshemaoyi.cn/kongbu/5255973.htm)
+- [后会友期陈晓楠评论区](http://www.play.hengshemaoyi.cn/xiju/1323390.htm)
 - [他真的太优雅了！灰太狼&红太狼【非凡之爱】](http://www.movie.hkepx.cn/movie/5991338.htm)
-- [感觉影之刃里的各种字体都好帅啊，比如“决战、殒命”等，这是单独请人写的吗，还是说能靠AI跑一批出来？](http://www.daogukj.com/lxoougkn/)
-- [厉娜节目里第一次叫许飞名字](http://www.daogukj.com/8326428)
-- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.movie.hkepx.cn/xiju/5072880.htm)
-- [NVIDIA：黄仁勋辞职](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
-- [黄仁勋4万美元打造出4万亿英伟达](http://www.daogukj.com/1022614)
-- [专家：科学护肾记住这几件事](http://www.movie.hkepx.cn/xiju/7621812.htm)
-- [蒂姆·库克被提名为英伟达一把手潜在继任者，特朗普也建议其担任CEO，库克成为英伟达新掌门的概率大吗？](http://www.movie.hkepx.cn/movie/2413887.htm)
-- [如何评价《一人之下》第784（839）话？](http://www.movie.hkepx.cn/xiju/7532931.htm)
-- [我将负责嘎嘎乱吃！](http://www.daogukj.com/kbhgllhh/)
-- [刘欢妻子公开信辟谣多个消息](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
-- [买来的副主任帽子 戴谁头上都是耻辱](http://www.daogukj.com/1222828)
-- [刘欢安葬于北京 曾与膀胱癌斗争多年](http://www.daogukj.com/ttvulxwh/)
-- [中国经济三季报亮点解析](http://www.movie.hkepx.cn/xiju/9490112.htm)
-- [刘欢妻子长文](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
-- [英伟达显卡美亚销量暴跌超过70%｜显卡日报11月13日](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
-- [英伟达单日市值蒸发1820亿美元](http://www.daogukj.com/qxdtupzr/)
-- [刘欢死因首次曝光，系感染性休克，生前与膀胱癌斗争十几年，膀胱癌有多危险？该怎样预防？](http://www.movie.hkepx.cn/xiju/3795229.htm)
-- [特朗普连续发帖痛斥民主党腐败](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
-- [微软Outlook服务宕机](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
-- [乡干部捅伤村民潜逃 15 年，其间违规吃空饷 140 万元并升为正科，暴露出哪些问题？](http://www.daogukj.com/8473621)
-- [辽宁公布最新油价](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
-- [年轻人为什么不爱买皮鞋了](http://www.movie.hkepx.cn/xiju/0754538.htm)
-- [库里腹斜肌撕裂 两周后复查](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
-- [房子已经过剩，为什么一直还在新盖楼盘？](http://www.daogukj.com/nddpfxtw/)
-- [零元面馆称周边商家若受损失愿补偿](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
-- [【纪录片】人生一串 第四季 02 心惊肉跳](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
-- [山姆399元羽绒服断货供应商回应](http://www.daogukj.com/0923785)
-- [给阿嬷的情书获奖反应冷淡](http://www.daogukj.com/ytapmyxr/)
-- [【烂奇迹】三毛：我的一生颠沛流离，活到现在算是个奇迹](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
-- [网传“商家扬言取消外卖”系谣言](http://www.daogukj.com/3735760)
-- [店老板为连吃7碗米饭母女放钱系摆拍](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
-- [议员儿子涉毒，当红男明星偷拍，黑帮大佬遭绑架？钱已到位，罪恶都市清道夫来活了！《黑白清道夫》](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
-- [《崩坏：星穹铁道》EP：「无中生有」](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
-- [7碗米饭摆拍事件更显媒体调查价值](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
-- [补档：钢成军的秘密被灭建国发现了，这下可惨了](http://www.daogukj.com/0437875)
-- [为什么伽利略、爱因斯坦没有成为物理学单位？](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
-- [感觉杨超越不捂住董思成的嘴都要亲了](http://www.movie.hkepx.cn/xiju/4010771.htm)
-- [如何看待马化腾在腾讯 28 周年庆全员会上的讲话？](http://www.daogukj.com/cvgkgyqv/)
-- [拿什么打手游最过瘾？游戏平板采销推荐](http://www.daogukj.com/afffhqsf/)
-- [张萌马天宇聊王子璇](http://www.movie.hkepx.cn/movie/4359740.htm)
-- [发悼念文配朴树图网友已设私密账号](http://www.daogukj.com/zaudsbpz/)
-- [臣妾要线上告发熹贵妃 2.0](http://www.daogukj.com/riicnlnn/)
-- [后会友期民宿离晚餐地点不到四公里](http://www.movie.hkepx.cn/movie/3461436.htm)
-- [同是东亚内卷，日韩打工人，生活差距有多大？](http://www.movie.hkepx.cn/xiju/6388091.htm)
-- [华农兄弟：抓鸭抓鹅一起炖，兄弟都说好吃](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
-- [德芙因七夕广告宣扬错误婚恋观，代运营方被罚 80 万，怎样看待这一结果？](http://www.daogukj.com/9288361)
+- [《蓝色星原：旅谣》公测预告PV](http://www.daogukj.com/lxoougkn/)
+- [华为Mate X8真机疑曝光](http://www.daogukj.com/8326428)
+- [KFC列车诞生了](http://www.movie.hkepx.cn/xiju/5072880.htm)
+- [秋假带火研学游、亲子游](http://www.play.hengshemaoyi.cn/kongbu/4154286.htm)
+- [黄仁勋辞职前自嘲我就是个人渣](http://www.daogukj.com/1022614)
+- [大学保研中举报现象越来越频发，背后原因是什么？为了保研主动切断同学关系是否可取？](http://www.movie.hkepx.cn/xiju/7621812.htm)
+- [和君哥美好又饱满的10小时…](http://www.movie.hkepx.cn/movie/2413887.htm)
+- [拥有你 我的生活从一地鸡毛变成了一地狗毛](http://www.movie.hkepx.cn/xiju/7532931.htm)
+- [男子生吞新鲜蛇胆 脑子里长满寄生虫](http://www.daogukj.com/kbhgllhh/)
+- [曝魏晨被雪藏的原因](http://www.play.hengshemaoyi.cn/kongbu/9138600.htm)
+- [新一轮大范围雨雪明夜起来袭](http://www.daogukj.com/1222828)
+- [饶毅喊话耿同学「欢迎耿同学批评」，如何理解他们两位观点的异同？](http://www.daogukj.com/ttvulxwh/)
+- [张雪回应「读书无用论」，称这种定义很 low，自己几乎每天都学习，如何看待这一表态？](http://www.movie.hkepx.cn/xiju/9490112.htm)
+- [喝酒后出现这3个信号说明不适合喝酒](http://www.play.hengshemaoyi.cn/kongbu/2448364.htm)
+- [女子花8950将爱犬毛发做钻戒戴手上](http://www.play.hengshemaoyi.cn/kongbu/7077924.htm)
+- [杨超越早期经历](http://www.daogukj.com/qxdtupzr/)
+- [无烟酒吧倒闭、张美玉抑郁、大学生无偿代跑拒绝供出同学【抽象周刊】](http://www.movie.hkepx.cn/xiju/3795229.htm)
+- [微软多项服务发生大规模故障，Outlook异常报告超13万起，问题可能出在哪？你现在还能正常登录吗？](http://www.play.hengshemaoyi.cn/xiju/9364806.htm)
+- [今年前10月个税收入预计超去年全年](http://www.play.hengshemaoyi.cn/kongbu/6374223.htm)
+- [《崩坏：星穹铁道》EP：「无中生有」](http://www.daogukj.com/8473621)
+- [网友称高铁座椅 USB 口充手机越充越掉电，12306 称电压更低，用于应急补电，这个设计合理吗？](http://www.play.hengshemaoyi.cn/xiju/8338406.htm)
+- [周鸿祎回应黄仁勋辞职对中国AI影响](http://www.movie.hkepx.cn/xiju/0754538.htm)
+- [前两年平价牛肉餐饮疯狂开店，现如今牛肉价格涨幅已达 27% ，牛肉为何吃不起了？](http://www.play.hengshemaoyi.cn/kongbu/5781488.htm)
+- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.daogukj.com/nddpfxtw/)
+- [放二十年的金砖被物理好的人取走了](http://www.play.hengshemaoyi.cn/xiju/9984950.htm)
+- [警方通报和平饭店51万元天价小票](http://www.play.hengshemaoyi.cn/xiju/2491157.htm)
+- [两广人为什么餐餐吃空心菜？真这么好吃吗？](http://www.daogukj.com/0923785)
+- [上海交警用英文丝滑执法走红](http://www.daogukj.com/ytapmyxr/)
+- [英雄联盟总决赛带火凌晨影院](http://www.play.hengshemaoyi.cn/xiju/1851076.htm)
+- [宋雨琦转发中国台湾被韩网热议](http://www.daogukj.com/3735760)
+- [和平饭店账单造假事件15人被抓](http://www.play.hengshemaoyi.cn/xiju/3653492.htm)
+- [张萌后悔叫马天宇上节目](http://www.play.hengshemaoyi.cn/kongbu/9516440.htm)
+- [破译流言 不可不知的100个真相](http://www.play.hengshemaoyi.cn/xiju/3976579.htm)
+- [淮海战役作战命令进试卷有何意义](http://www.play.hengshemaoyi.cn/xiju/6722922.htm)
+- [刘欢癌症扩散后曾放手一搏试新药](http://www.daogukj.com/0437875)
+- [《反方向の忠》](http://www.play.hengshemaoyi.cn/xiju/2841762.htm)
+- [Outlook崩了日本政府改用电话工作](http://www.movie.hkepx.cn/xiju/4010771.htm)
+- [臣妾要线上告发熹贵妃 2.0](http://www.daogukj.com/cvgkgyqv/)
+- [睡前有这5种表现可能是脑梗](http://www.daogukj.com/afffhqsf/)
+- [叶舒华在台湾综艺说了Chinese](http://www.movie.hkepx.cn/movie/4359740.htm)
+- [40岁男子花4千元做96集AI短剧爆火](http://www.daogukj.com/zaudsbpz/)
+- [刘欢妻子不到10个月失去两个至亲](http://www.daogukj.com/riicnlnn/)
+- [“一代腿王”黄正利去世](http://www.movie.hkepx.cn/movie/3461436.htm)
+- [市民捐赠公交车保暖坐垫4天被拿光](http://www.movie.hkepx.cn/xiju/6388091.htm)
+- [淮海战役作战命令进高三语文考题](http://www.play.hengshemaoyi.cn/kongbu/2494793.htm)
+- [NVIDIA：黄仁勋辞职](http://www.daogukj.com/9288361)
 
 </details>
 
 ## 原始来源
 
-- [怀孕妻子发现丈夫的白月光](https://s.weibo.com/weibo?q=%E6%80%80%E5%AD%95%E5%A6%BB%E5%AD%90%E5%8F%91%E7%8E%B0%E4%B8%88%E5%A4%AB%E7%9A%84%E7%99%BD%E6%9C%88%E5%85%89)
+- [破译“科学”流言不可不知100个真相](https://www.toutiao.com/trending/7707476395047436330/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227707476395047436330%22%2C%22hot_board_impr_id%22%3A%22202611131529258BCAFA3DFCACB0CC734C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 463bc551add4306572aa -->
+<!-- content-fingerprint: e7f33646262d4ff74e68 -->
