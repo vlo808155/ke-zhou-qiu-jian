@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 唐湘龙：罗大佑曾在演唱会剪美国护照
+# 重庆通报「帮连吃 7 碗米饭母女放钱」视频系摆拍已立案，这类虚假摆拍该承担哪些法律责任？
 
-> 来源：今日头条热榜 · 排名：第 9 位 · 热度：16291614 · 更新：2026-11-13T15:29:26+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：115 万热度 · 分类：问答 · 更新：2026-11-13T23:39:24+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“唐湘龙：罗大佑曾在演唱会剪美国护照”位列第 9 位，公开热度指标为 16291614。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“重庆通报「帮连吃 7 碗米饭母女放钱」视频系摆拍已立案，这类虚假摆拍该承担哪些法律责任？”位列第 9 位，公开热度指标为 115 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：重庆市梁平区联合调查组11月12日发布情况通报： 近期，“一饭店老板悄悄为连吃7碗米饭母女放钱”视频引发关注。我区高度重视，组织网信、公安、民政、市场监管等部门成立联合调查组开展核查。 经查，李某（女，57岁，餐馆运营人）为博取关注、吸引流量，编造虚假情节、组织人员摆拍、制作视频发布。相关内容误导公众认知，造成不良影响，扰乱正常网络公共秩序。目前，相关部门已对其立案调查，对涉嫌违法行为将依法进行处理。 在此提醒：网络不是法外之地，在网络活动中须严守法律法规。请广大网民理性甄别，不造谣、不信谣、不传谣，共同维护清朗网络空间。重庆梁平：“饭店老板为连吃7碗米
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [禅让制为何在尧舜禹之间传了三代就玩不下去了？](nan-yuan-bei-zhe.md)
-- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](mai-du-huan-zhu.md)
-- [创业板指高开低走跌3.32%](ye-gong-hao-long.md)
-- [和平饭店账单造假事件15人被抓](lan-yu-chong-shu.md)
+- [【烂奇迹】三毛：我的一生颠沛流离，活到现在算是个奇迹](nan-yuan-bei-zhe.md)
+- [汪明荃演唱会听歌吃席两不误](mai-du-huan-zhu.md)
+- [英伟达董事会4天态度反转](ye-gong-hao-long.md)
+- [专家：黄金价格迎来新一轮调整压力](lan-yu-chong-shu.md)
 
 ## 站内推荐
 
-- [亚太共此时](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [喝酒后出现这3个信号说明不适合喝酒](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [破译“科学”流言不可不知100个真相](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [Outlook崩了日本政府改用电话工作](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [三年多没联系的同事，突然发微信问我在不在？我该怎么回复？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [APEC“中国年”遇见“十五五”开局之年](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [在图书馆里面看闲书而不是刷题/工作/自习的人，到底是怎么想的？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [高架上汽车撞上风筝线，车顶、雷达等多处被割坏，为什么一根线能有这么大威力？遇到这种情况该怎么办？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [李彦宏称公司不会仅用 AI 就更有竞争力，这一说法有何依据？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [早餐适合吃什么呢？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待2026年10月特斯拉国内销量暴跌？](http://www.daogukj.com/dzgfjkrf/)
-- [问界](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
-- [我们的城市有条中山路](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
-- [拥有你 我的生活从一地鸡毛变成了一地狗毛](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
-- [警方通报和平饭店51万元天价小票](http://www.daogukj.com/3970663)
-- [和君哥美好又饱满的10小时…](http://www.movie.hkepx.cn/movie/5367817.htm)
-- [禅让制为何在尧舜禹之间传了三代就玩不下去了？](http://www.daogukj.com/bcavubqj/)
-- [国产苹果卷出新高度](http://www.daogukj.com/8795484)
-- [S16决赛海报公布](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
-- [黄仁勋下台会对英伟达游戏卡造成什么影响？](http://www.movie.hkepx.cn/xiju/9388208.htm)
-- [后会友期陈晓楠评论区](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
-- [放二十年的金砖被物理好的人取走了](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
-- [东鹏饮料开始卖酒了，名字就叫好厉害，你看好吗？](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
-- [黄仁勋辞职前自嘲我就是个人渣](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
-- [40岁男子花4千元做96集AI短剧爆火](http://www.daogukj.com/3703920)
-- [NVIDIA：黄仁勋辞职](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
-- [飞秒手术要降价了](http://www.daogukj.com/akojpuxw/)
-- [KFC列车诞生了](http://www.movie.hkepx.cn/movie/0307482.htm)
-- [为什么人到中年，很多人会觉得友情没那么重要？还有些人会觉得这是成熟的表现？](http://www.movie.hkepx.cn/xiju/4985219.htm)
-- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
-- [王子璇听到白小纯说青稚是太子爷的表情](http://www.daogukj.com/sqbgfepf/)
-- [叶舒华在台湾综艺说了Chinese](http://www.daogukj.com/0772573)
-- [拿中老年病痛玩梗，还被44万人点赞，这是最近最让我恶心的烂梗！](http://www.daogukj.com/iaiklsqf/)
-- [男子生吞新鲜蛇胆 脑子里长满寄生虫](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
-- [新一轮大范围雨雪明夜起来袭](http://www.daogukj.com/iejdmdav/)
-- [刘欢妻子发8000字长文](http://www.daogukj.com/3595629)
-- [翻山覆海，以我之名｜2026全球总决赛冠亚军决赛宣传片](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
-- [英伟达超97%员工挽留黄仁勋](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
-- [淮海战役作战命令进试卷有何意义](http://www.daogukj.com/7736560)
-- [这辅助塞恩太夸张了！](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
-- [阿姨照料患癌男同事14年开销AA制](http://www.daogukj.com/9580900)
-- [《崩坏：星穹铁道》EP：「无中生有」](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
-- [前两年平价牛肉餐饮疯狂开店，现如今牛肉价格涨幅已达 27% ，牛肉为何吃不起了？](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
-- [永夜扉间PV及技能初探丨此身为烛](http://www.daogukj.com/lsbolopb/)
-- [和平饭店账单造假事件15人被抓](http://www.daogukj.com/ssuxjwef/)
-- [他真的太优雅了！灰太狼&红太狼【非凡之爱】](http://www.daogukj.com/ukxzmdih/)
-- [破译流言 不可不知的100个真相](http://www.movie.hkepx.cn/movie/0461195.htm)
-- [新人第二条视频](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
-- [上海交警用英文丝滑执法走红](http://www.movie.hkepx.cn/movie/9527500.htm)
-- [MJ宇宙校园之末日降临第一集](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
-- [周鸿祎回应黄仁勋辞职对中国AI影响](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
+- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](http://www.daogukj.com/dzgfjkrf/)
+- [APEC峰会到底有多重要](http://www.play.hengshemaoyi.cn/xiju/5853475.htm)
+- [青春华章我们的新长征](http://www.play.hengshemaoyi.cn/xiju/2504264.htm)
+- [大疆宣布涨价](http://www.play.hengshemaoyi.cn/xiju/8967782.htm)
+- [磁带怎么突然打赢复活赛了](http://www.daogukj.com/3970663)
+- [【S16决赛预热】信念不灭，一起为BLG加油！](http://www.movie.hkepx.cn/movie/5367817.htm)
+- [【烂奇迹】三毛：我的一生颠沛流离，活到现在算是个奇迹](http://www.daogukj.com/bcavubqj/)
+- [今何在 江南](http://www.daogukj.com/8795484)
+- [女子静脉曲张找中医扎针血直往外喷](http://www.play.hengshemaoyi.cn/xiju/8916706.htm)
+- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.movie.hkepx.cn/xiju/9388208.htm)
+- [湖北连夜开会就王忠林被查表态](http://www.play.hengshemaoyi.cn/xiju/1511838.htm)
+- [王晶回应麻将女王票房](http://www.play.hengshemaoyi.cn/xiju/3198297.htm)
+- [THANK YOU nobody](http://www.play.hengshemaoyi.cn/xiju/3202411.htm)
+- [导演白雪认为如果停止思考和阅读，只依靠大脑存量内容和 AI 对话，长期一定会出问题，你碰过类似情况吗？](http://www.play.hengshemaoyi.cn/kongbu/8839046.htm)
+- [黑人牙膏 别信口开河](http://www.daogukj.com/3703920)
+- [中学生手搓时速350公里拦截机](http://www.play.hengshemaoyi.cn/xiju/0319407.htm)
+- [主人提醒邻居别给猫按电梯](http://www.daogukj.com/akojpuxw/)
+- [王忠林被查 湖北省委表态](http://www.movie.hkepx.cn/movie/0307482.htm)
+- [THANK YOU CHICHOO](http://www.movie.hkepx.cn/xiju/4985219.htm)
+- [汪明荃演唱会听歌吃席两不误](http://www.play.hengshemaoyi.cn/kongbu/0378717.htm)
+- [白小纯因为青稚这几句话一直憋眼泪](http://www.daogukj.com/sqbgfepf/)
+- [酒后这3个信号说明不适合喝酒](http://www.daogukj.com/0772573)
+- [山西大同采空区塌陷引发强震系谣言](http://www.daogukj.com/iaiklsqf/)
+- [深夜徐老师怀孕](http://www.play.hengshemaoyi.cn/kongbu/2595709.htm)
+- [飞秒手术全球1000万例中国750万例](http://www.daogukj.com/iejdmdav/)
+- [Fable 5.2生成FPS游戏《Saltline》成本约为550美元，如果换成人工，大概需要多少钱？](http://www.daogukj.com/3595629)
+- [特惠车、一口价 逼“疯”网约车司机](http://www.play.hengshemaoyi.cn/kongbu/0118777.htm)
+- [南京零元面馆改为仅4类人群免费](http://www.play.hengshemaoyi.cn/xiju/3573015.htm)
+- [明明跟梁家辉一起演的《捕风追影》，戏份也不少，为啥成龙没有奖项提名？](http://www.daogukj.com/7736560)
+- [被举报性骚扰女生 教师赵某彦被开除](http://www.play.hengshemaoyi.cn/xiju/4174246.htm)
+- [河南财大性骚扰女生教师被开除](http://www.daogukj.com/9580900)
+- [央行出手！2000亿元买断式逆回购来了](http://www.play.hengshemaoyi.cn/xiju/4356886.htm)
+- [MJ宇宙校园之末日降临第一集](http://www.play.hengshemaoyi.cn/xiju/8243790.htm)
+- [动态视频｜全网最高画质第一人称逛展，会拍到啥？](http://www.daogukj.com/lsbolopb/)
+- [专家：黄金价格迎来新一轮调整压力](http://www.daogukj.com/ssuxjwef/)
+- [极致的走线！](http://www.daogukj.com/ukxzmdih/)
+- [芒果把这段放出来](http://www.movie.hkepx.cn/movie/0461195.htm)
+- [凭“一件衣服”怒赚100亿](http://www.play.hengshemaoyi.cn/kongbu/7447539.htm)
+- [美议员夫妇在英伟达股票高位减持](http://www.movie.hkepx.cn/movie/9527500.htm)
+- [95后少年白手起家 买了一家上市公司](http://www.play.hengshemaoyi.cn/xiju/9368145.htm)
+- [葡萄牙全队将穿7号球衣比赛致敬C罗](http://www.play.hengshemaoyi.cn/xiju/1826963.htm)
 - [【独家】《罗小黑战记》第43话 跟师父一起做任务啦【10月国创】](http://www.daogukj.com/hvfyixhj/)
-- [1600元网购冲锋衣口袋有张身份证](http://www.movie.hkepx.cn/movie/4719114.htm)
-- [中到大雪即将抵达河南](http://www.daogukj.com/jollzwuo/)
-- [荷兰法院驳回路虎取证比亚迪申请](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
-- [郭树清再度建议尽快启动「遗产税」与「赠与税」，新增税收补助基本养老金，如何解读？](http://www.movie.hkepx.cn/movie/4200387.htm)
-- [喝酒后出现这3个信号说明不适合喝酒](http://www.movie.hkepx.cn/xiju/0668299.htm)
-- [破译“科学”流言不可不知100个真相](http://www.movie.hkepx.cn/xiju/2277955.htm)
-- [女子花8950将爱犬毛发做钻戒戴手上](http://www.daogukj.com/7974348)
-- [大学保研中举报现象越来越频发，背后原因是什么？为了保研主动切断同学关系是否可取？](http://www.movie.hkepx.cn/xiju/6045140.htm)
+- [洗一件摇粒绒掉70万纤维](http://www.movie.hkepx.cn/movie/4719114.htm)
+- [黄仁勋算是美国中期选举的牺牲品吗？为什么偏偏是他？](http://www.daogukj.com/jollzwuo/)
+- [段永平：目前不会卖出英伟达](http://www.play.hengshemaoyi.cn/xiju/9254321.htm)
+- [家里的老人总是不间断的给孩子吃零食导致孩子不吃饭，我该怎么沟通？](http://www.movie.hkepx.cn/movie/4200387.htm)
+- [在图书馆里面看闲书而不是刷题/工作/自习的人，到底是怎么想的？](http://www.movie.hkepx.cn/xiju/0668299.htm)
+- [高架上汽车撞上风筝线，车顶、雷达等多处被割坏，为什么一根线能有这么大威力？遇到这种情况该怎么办？](http://www.movie.hkepx.cn/xiju/2277955.htm)
+- [张萌王子璇别试探了有市场](http://www.daogukj.com/7974348)
+- [《蓝色星原：旅谣》公测预告PV](http://www.movie.hkepx.cn/xiju/6045140.htm)
 
 </details>
 
 ## 原始来源
 
-- [唐湘龙：罗大佑曾在演唱会剪美国护照](https://www.toutiao.com/trending/7707463882884776474/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227707463882884776474%22%2C%22hot_board_impr_id%22%3A%22202611131529258BCAFA3DFCACB0CC734C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [重庆通报「帮连吃 7 碗米饭母女放钱」视频系摆拍已立案，这类虚假摆拍该承担哪些法律责任？](https://www.zhihu.com/question/2104310469767054805)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ab4939b6d068ad20857a -->
+<!-- content-fingerprint: 948f58df2ee792c6af30 -->
