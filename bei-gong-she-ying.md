@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 于东来称胖东来将就洗发水争议出调研报告，消费者该关注哪些信息？
+# 乌对俄发动近5年来最大规模空袭
 
-> 来源：知乎热榜 · 排名：第 10 位 · 热度：216 万热度 · 分类：问答 · 更新：2026-11-14T09:50:23+08:00
+> 来源：今日头条热榜 · 排名：第 10 位 · 热度：22976694 · 更新：2026-11-14T16:23:41+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“于东来称胖东来将就洗发水争议出调研报告，消费者该关注哪些信息？”位列第 10 位，公开热度指标为 216 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“乌对俄发动近5年来最大规模空袭”位列第 10 位，公开热度指标为 22976694。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月13日，胖东来创始人于东来社媒发文称：针对目前出现的关于洗发水的问题、胖东来公司已经安排成立专项工作团队展开更详细的调查、大家不要急、胖东来会给社会拿出详细的调研报告、即便是万一有问题、胖东来也会拿出让顾客满意的解决方案!https://mp.weixin.qq.com/s/EBSIUtK-F5iyfFUUiPdpbg
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [当家里的大肥鱼被饿了好几个小时以后](jing-gong-zhi-niao.md)
-- [山西大同采空区塌陷引发强震系谣言](hu-jia-hu-wei.md)
-- [产妇求剖腹产遭拒孩子脑瘫丈夫发声](yu-mu-hun-zhu.md)
-- [山西大同采空区塌陷引地震不实](dong-shi-xiao-pin.md)
+- [为什么国内止痛药普遍使用布洛芬而不是阿司匹林？](jing-gong-zhi-niao.md)
+- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](hu-jia-hu-wei.md)
+- [4人造谣“几十亩蔬菜随便挖”被罚](yu-mu-hun-zhu.md)
+- [大美晒受伤照片](dong-shi-xiao-pin.md)
 
 ## 站内推荐
 
-- [特朗普：美空管系统故障与网络攻击无关](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [《给阿嬷的情书》获金鸡奖最佳编剧时无人响应，《密档》获金鸡奖最佳导演时掌声一片，你怎么看？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [Ruler或Viper如果此次S16夺冠，其历史地位是否会超过Bang？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [白小纯上综艺只是为给公司带点流量](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [顾客尝了口面整碗扔垃圾桶付钱走人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [曝万斯考虑退出2028年美国总统大选](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [瑞幸越来越不像咖啡公司了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [如何看金价走势](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [全看过的这辈子有了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [中国新贵上桌 外国人拖箱子扫货](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男孩玩手机肘击奶奶被妈妈用胶带绑起](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
-- [美高官回应停飞：非又一次9·11](http://www.daogukj.com/0517179)
-- [假⚡️面⚡️难⚡️藏⚡️泪](http://www.daogukj.com/yzfviyov/)
-- [【独家】《罗小黑战记》第43话 跟师父一起做任务啦【10月国创】](http://www.movie.hkepx.cn/xiju/0529283.htm)
-- [巨型生物袭击村庄，而你却孤身一人！面对你的只有绝望！](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
-- [老板假装扫了500余次付款码](http://www.daogukj.com/1191355)
-- [2027英雄联盟赛事举办地公布](http://www.movie.hkepx.cn/xiju/7511993.htm)
-- [蜀汉政权为什么没有产生篡国的权臣？是刘禅大智若愚吗？](http://www.daogukj.com/2850206)
-- [山西大同采空区塌陷引发强震系谣言](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
-- [Ruler或Viper如果此次S16夺冠，其历史地位是否会超过Bang？](http://www.daogukj.com/5364901)
-- [美国回应全国航班停飞](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
-- [当家里的大肥鱼被饿了好几个小时以后](http://www.daogukj.com/nisjsldl/)
-- [美国所有航班暂停起飞](http://www.daogukj.com/xvspcmfq/)
-- [如果小时候幻想过的职业真的成真了？会是怎样？](http://www.daogukj.com/4116400)
-- [结直肠癌如何预防](http://www.daogukj.com/nncunhqi/)
-- [小羊与宝宝玩耍提供满满情绪价值](http://www.movie.hkepx.cn/movie/4671908.htm)
-- [顾客尝了口面整碗扔垃圾桶付钱走人](http://www.daogukj.com/svuwbdap/)
-- [《请回答1988》善宇扮演者酒驾](http://www.daogukj.com/qvipjsxc/)
-- [什么样的家庭能养出厉娜](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
-- [全美航班停飞令已解除](http://www.movie.hkepx.cn/movie/2146522.htm)
-- [都说AI提效，为什么打工人反而更累了？](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
-- [中青赛决赛浙江VS上海申花发生恶性球场暴力，球员打球童，有球迷受伤，现场发生了什么？](http://www.daogukj.com/wvyvpuql/)
-- [中国总理时隔7年访问 泰总理接机](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
-- [南京零元面馆周围7家店转让](http://www.daogukj.com/yktxglwn/)
-- [原来李宇春是井柏然的老板](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
-- [“美国茅台”再创新高](http://www.daogukj.com/2377613)
-- [如何评价11月13日上市的问界新M8，售价37.98万元起，这一价格在如今的市场有竞争力嘛？](http://www.movie.hkepx.cn/movie/4178444.htm)
-- [多地高中严格执行周末双休、厅长公开表示对学生太累深感愧疚，江苏教育这次突然的大动作是何原因？](http://www.movie.hkepx.cn/xiju/1015974.htm)
-- [曝魏晨被雪藏的原因](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
-- [张泉灵新视频被指内涵白小纯](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
-- [有用版新僵尸：慈祥二爷](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
-- [我国严禁任何形式代孕](http://www.movie.hkepx.cn/xiju/0230554.htm)
-- [《给阿嬷的情书》获金鸡奖最佳编剧时无人响应，《密档》获金鸡奖最佳导演时掌声一片，你怎么看？](http://www.daogukj.com/qkjpzqjb/)
-- [AI短剧《梦回红楼》被指侵害17位演员肖像，还魔改出林黛玉掌掴薛宝钗等情节，制作方要承担哪些法律责任？](http://www.movie.hkepx.cn/movie/5245486.htm)
-- [特朗普：空管系统故障与网络攻击无关](http://www.movie.hkepx.cn/xiju/8042790.htm)
-- [离谱答案大合集4](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
-- [王忠林被查 武汉市委表态](http://www.daogukj.com/opgycgjr/)
-- [刘亦菲海边氧气感自拍](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
-- [特朗普：美空管系统故障与网络攻击无关](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
-- [有可以单独猎杀体重大于自身数倍甚至十数倍的动物吗？](http://www.daogukj.com/3894638)
-- [白小纯落泪堪比北影教材](http://www.daogukj.com/ihugvxjr/)
-- [黄仁勋还能重返英伟达吗？](http://www.movie.hkepx.cn/movie/4579345.htm)
-- [SpaceX要把火箭发射的两级都接回来](http://www.movie.hkepx.cn/movie/4397885.htm)
-- [南京零元面馆改为仅4类人群免费](http://www.daogukj.com/owscegnp/)
-- [Lisa一脚把人踹下台了](http://www.movie.hkepx.cn/xiju/7089965.htm)
-- [vibe知识大赏：岳飞](http://www.movie.hkepx.cn/movie/8160414.htm)
-- [顾居居 白小纯](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
-- [媒体：别让秋假成为甜蜜的烦恼](http://www.daogukj.com/9324764)
-- [冬天洗澡多久一次最好](http://www.daogukj.com/awlcbyru/)
-- [产妇求剖腹产遭拒孩子脑瘫丈夫发声](http://www.daogukj.com/5750670)
+- [沈腾 嘲笑林一成为林一理解林一](http://www.play.hengshemaoyi.cn/kongbu/6234628.htm)
+- [厉娜 不负少年不负卿](http://www.daogukj.com/0517179)
+- [有可以单独猎杀体重大于自身数倍甚至十数倍的动物吗？](http://www.daogukj.com/yzfviyov/)
+- [【独家】《凡人修仙传之慕兰之战》第24集【总第200集】](http://www.movie.hkepx.cn/xiju/0529283.htm)
+- [于东来称胖东来将就洗发水争议出调研报告，消费者该关注哪些信息？](http://www.play.hengshemaoyi.cn/xiju/9396843.htm)
+- [年轻人又抠又大方的消费观](http://www.daogukj.com/1191355)
+- [iPhoneDuo45.7万次折叠后铰链明显磨损](http://www.movie.hkepx.cn/xiju/7511993.htm)
+- [新婚夫妻还没出蜜月双双确诊糖尿病](http://www.daogukj.com/2850206)
+- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](http://www.play.hengshemaoyi.cn/xiju/6098260.htm)
+- [如何看金价走势](http://www.daogukj.com/5364901)
+- [持械入宋](http://www.play.hengshemaoyi.cn/xiju/6849988.htm)
+- [为什么国内止痛药普遍使用布洛芬而不是阿司匹林？](http://www.daogukj.com/nisjsldl/)
+- [顾客尝了口面整碗扔垃圾桶付钱走人](http://www.daogukj.com/xvspcmfq/)
+- [英伟达临时CEO被曝是制衡黄仁勋的重要力量，是唯一一位给AI投资唱反调的人，她会给英伟达带来哪些变化？](http://www.daogukj.com/4116400)
+- [花店老板接4781元订单后报警](http://www.daogukj.com/nncunhqi/)
+- [911后第二次全美停飞](http://www.movie.hkepx.cn/movie/4671908.htm)
+- [中国新贵上桌 外国人拖箱子扫货](http://www.daogukj.com/svuwbdap/)
+- [【唐唐】深度解析伪纪录片《放送禁止》细思极恐的答案！](http://www.daogukj.com/qvipjsxc/)
+- [曝娱乐圈下周会发生一次世纪大和解](http://www.play.hengshemaoyi.cn/kongbu/3336632.htm)
+- [原价129万一支的天价药进医保了](http://www.movie.hkepx.cn/movie/2146522.htm)
+- [赵本山主演喜剧《走马上任》开播，该剧口碑如何，有哪些亮点与不足？](http://www.play.hengshemaoyi.cn/kongbu/8212878.htm)
+- [乌鲁木齐禁售马肉马肠制品？假的](http://www.daogukj.com/wvyvpuql/)
+- [中国乘客亲历全美停飞以为被空袭](http://www.play.hengshemaoyi.cn/xiju/5620870.htm)
+- [原价129万/支的天价药进医保了](http://www.daogukj.com/yktxglwn/)
+- [深圳市长：衷心感谢市民理解支持](http://www.play.hengshemaoyi.cn/kongbu/3159881.htm)
+- [女子回应读博期间3年生下3个孩子](http://www.daogukj.com/2377613)
+- [马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？](http://www.movie.hkepx.cn/movie/4178444.htm)
+- [美国因出现特殊情况及安全原因，所有航班一度暂停起飞，目前停飞令已解除，具体情况如何？造成影响有多大？](http://www.movie.hkepx.cn/xiju/1015974.htm)
+- [奚梦瑶家里的盘子用的都是爱马仕的](http://www.play.hengshemaoyi.cn/kongbu/3105128.htm)
+- [奔驰女司机借300元加油钱后手机关机](http://www.play.hengshemaoyi.cn/xiju/1066200.htm)
+- [如何看待《后会友期》中文吉儿一句「顺我一下」，最终让所有人等到晚上9点才吃上饭这件事？](http://www.play.hengshemaoyi.cn/kongbu/3231190.htm)
+- [男子自己做饭1年逆转糖尿病](http://www.movie.hkepx.cn/xiju/0230554.htm)
+- [瑞幸越来越不像咖啡公司了](http://www.daogukj.com/qkjpzqjb/)
+- [研究称把普通食盐全换为富钾盐，全球每年可预防 300 万人死亡，是真的吗？富钾盐为什么更健康？](http://www.movie.hkepx.cn/movie/5245486.htm)
+- [你的旧手机号可能被别人用来消费](http://www.movie.hkepx.cn/xiju/8042790.htm)
+- [鸟山明故居与工作室被曝已开始拆除，是否应作为纪念设施保留？](http://www.play.hengshemaoyi.cn/xiju/4544842.htm)
+- [" 1 ＋0 ＝10 "](http://www.daogukj.com/opgycgjr/)
+- [国乒单打4人输外协](http://www.play.hengshemaoyi.cn/xiju/5602264.htm)
+- [曝万斯考虑退出2028年美国总统大选](http://www.play.hengshemaoyi.cn/xiju/8625899.htm)
+- [林黛玉吃五香大头菜是败笔吗？](http://www.daogukj.com/3894638)
+- [多家银行关停信用卡等App](http://www.daogukj.com/ihugvxjr/)
+- [南京零元面馆改为仅4类人群免费](http://www.movie.hkepx.cn/movie/4579345.htm)
+- [马斯克卫星为何遇到麻烦](http://www.movie.hkepx.cn/movie/4397885.htm)
+- [许飞 不知道厉娜喜欢什么就都准备了](http://www.daogukj.com/owscegnp/)
+- [曝娜然怀孕了](http://www.movie.hkepx.cn/xiju/7089965.htm)
+- [动物:苦日子终于到头了！！！](http://www.movie.hkepx.cn/movie/8160414.htm)
+- [大美高迪事件怀疑不等于公开指控](http://www.play.hengshemaoyi.cn/kongbu/3610880.htm)
+- [超5万人请愿黄仁勋复职](http://www.daogukj.com/9324764)
+- [国产芯片迎来窗口期了吗](http://www.daogukj.com/awlcbyru/)
+- [4人造谣“几十亩蔬菜随便挖”被罚](http://www.daogukj.com/5750670)
 
 </details>
 
 ## 原始来源
 
-- [于东来称胖东来将就洗发水争议出调研报告，消费者该关注哪些信息？](https://www.zhihu.com/question/2104692031402647745)
+- [乌对俄发动近5年来最大规模空袭](https://www.toutiao.com/trending/7707841396476199474/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227707841396476199474%22%2C%22hot_board_impr_id%22%3A%2220261114162340FE9348707F38DB82D8AB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ec942f4952d5a238465f -->
+<!-- content-fingerprint: 3c3400c63ab18fbf1bb8 -->
