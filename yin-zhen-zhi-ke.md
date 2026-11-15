@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 谭开心自曝与高迪合作经历
+# 天呐！英雄联盟历史上含金量最高的冠军！BLG传奇1穿4LCK修成正果！【1酱短评】
 
-> 来源：微博热搜 · 排名：第 13 位 · 热度：652538 · 分类：艺人 · 更新：2026-11-15T12:17:27+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：560371 · 分类：电子竞技 · 更新：2026-11-15T20:05:54+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“谭开心自曝与高迪合作经历”位列第 13 位，公开热度指标为 652538，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“天呐！英雄联盟历史上含金量最高的冠军！BLG传奇1穿4LCK修成正果！【1酱短评】”位列第 12 位，公开热度指标为 560371，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：视频制作剪辑@闻人常安AreS
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
 
 ## 相关热点
 
-- [APEC](ke-zhou-qiu-jian.md)
-- [余承东宣布华为Mate X8即将登场](yan-er-dao-ling.md)
-- [奔驰司机以车辆没油为由向路人借钱，收钱后便失联，涉事者将承担哪些责任？遇到类似求助该如何辨别真假？](nan-yuan-bei-zhe.md)
-- [【BLG vs GEN】德云色解说：新王登基！等待一生的巨浪！（2026全球总决赛）](mai-du-huan-zhu.md)
+- [著名钢琴家天津演出冷到加穿羽绒服](ke-zhou-qiu-jian.md)
+- [学号不是按名字首字母排序吗](yan-er-dao-ling.md)
+- [北方多地迎降雪 南方有大范围降雨](nan-yuan-bei-zhe.md)
+- [Riot 宣布《英雄联盟》即将全面升级为《英雄联盟:曙光》，你觉得此举对于这款游戏意味着什么？](mai-du-huan-zhu.md)
 
 ## 站内推荐
 
-- [1穿4连斩LCK战队！恭喜BLG，加冕为王！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [【英雄联盟S16】BLG夺冠时刻](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [Bin 世一上](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [佟丽娅也忍不住多看杨幂几眼](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [沈腾拿到大结果周深拿到大后果](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [三年之期已到，恭迎世一上归位！【第18集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [锐评S16 BLG战胜GEN夺冠：一穿四LCK夺冠！我们是冠军！！！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [BLG夺冠单曲《十年人间》——“旧时梦魇，今日高声唱！”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [欧洲开心坏了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [夫妻都是B型血孩子户口簿上却是AB型](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [Knight说事实证明我比Chovy强](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
-- [BLG夺冠Tim送iPhoneDuo](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
-- [在这个世界里，你身后走过的地面会消失](http://www.daogukj.com/tqrulkrm/)
-- [奔驰司机以车辆没油为由向路人借钱，收钱后便失联，涉事者将承担哪些责任？遇到类似求助该如何辨别真假？](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
-- [热火轻取活塞迎4连胜 字母哥砍34分](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
-- [许飞厉娜好到把如来都删掉](http://www.daogukj.com/2903535)
-- [BLG夺冠刷屏半个娱乐圈](http://www.movie.hkepx.cn/movie/8396411.htm)
-- [人民日报三问希望小学卖惨骗捐案](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
-- [APEC](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
-- [1穿4战胜LCK赛区战队！祝贺BLG拿下2026英雄联盟全球总决赛冠军！](http://www.movie.hkepx.cn/movie/7093450.htm)
-- [乌克兰一夜向俄罗斯发射近 1200 架无人机，创下冲突以来最大规模袭击之一，释放了什么信号？](http://www.daogukj.com/2824694)
-- [啄木鸟平台屡被曝「小病大修」，为何此类问题屡禁不止？师傅称平台考核严苛，平台经营模式是否助长过度维修？](http://www.daogukj.com/yjkpaybt/)
-- [BLG一穿四](http://www.daogukj.com/9138421)
-- [官方辟谣“太原还有3天雪假”](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
-- [折月亮](http://www.movie.hkepx.cn/xiju/5067207.htm)
-- [糖尿病很可能让身体“千疮百孔”](http://www.daogukj.com/7199630)
-- [BLG 单刷 LCK 赛区四支战队夺冠，这是不是迄今为止最具含金量的冠军？](http://www.movie.hkepx.cn/movie/6135897.htm)
-- [20克金镯子暴跌10000元](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
-- [央行重大调整](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
-- [B站九年电竞投资等来大结果了吗](http://www.daogukj.com/2412867)
-- [S16 总决赛 BLG 3:1 击败 GEN，中国战队时隔 5 年再夺总冠军，如何评价这场比赛？](http://www.daogukj.com/0344516)
-- [董明珠称格力逐步取消文凭考量，本事是硬通行证，格力技校学费9000元起，但格力每年补贴1亿，如何解读？](http://www.movie.hkepx.cn/movie/0187296.htm)
-- [4分钟读懂APEC](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
-- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](http://www.daogukj.com/qfjukyqn/)
-- [为什么年轻人越来越把友情当回事，很怕失去自己亲密的朋友？](http://www.daogukj.com/uumjcsie/)
-- [如何评价 S16 最终决战 Chovy 又「同意」了？](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
-- [家人用旧金给儿子备婚省20万](http://www.movie.hkepx.cn/movie/7623929.htm)
-- [央视曝光假牛肉案](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
-- [疾风传：鸣佐vs一式！](http://www.movie.hkepx.cn/movie/8313935.htm)
-- [韩网热议BLG夺冠](http://www.daogukj.com/fqjpdyus/)
-- [合影！一人一句恭喜BLG！2026英雄联盟全球总决赛决战高光时刻](http://www.daogukj.com/5983723)
-- [业内称山姆399元羽绒服是钩子商品](http://www.movie.hkepx.cn/xiju/4176767.htm)
-- [本周我国多领域硬核成果刷屏](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
-- [最怕BLG夺冠之人是什么梗【梗指南】](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
-- [泽连斯基：乌不会确立中立地位](http://www.movie.hkepx.cn/movie/8664223.htm)
-- [三问兴平牵手希望小学卖惨骗捐案](http://www.movie.hkepx.cn/movie/1942982.htm)
-- [中国近六成家庭户不超过两个人](http://www.movie.hkepx.cn/movie/5767803.htm)
-- [如何看待王传君谈《爱情公寓》言论争议，称当年脑子里只有「关我屁事」和「关你屁事」，现在为冲动买单？](http://www.movie.hkepx.cn/xiju/8972635.htm)
-- [美国超75%空管系统无法持续或有风险，为何设备老化问题难解决？一次通信故障致全航班停飞，暴露哪些问题？](http://www.movie.hkepx.cn/xiju/5657270.htm)
-- [疑似后会友期白小纯表白王子璇路透](http://www.movie.hkepx.cn/movie/4036246.htm)
-- [凌晨3点电影院热闹得像过年](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
-- [余承东宣布华为Mate X8即将登场](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
+- [金价能止跌吗](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
+- [青稚前女友](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
+- [炸串摊主遭差评后轻生去世，当地警方不予立案，死者家属称将对避雷贴发帖人提起诉讼，如何从法律角度解读？](http://www.daogukj.com/tqrulkrm/)
+- [北方多地迎降雪 南方有大范围降雨](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
+- [大美妈妈回应](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
+- [额尔古纳日晕奇观：太阳戴上冰晶王冠](http://www.daogukj.com/2903535)
+- [BLG1穿4最终夺冠！纽约前方和Ming米勒一起回味S16决赛！【熬夜吧老头！07】](http://www.movie.hkepx.cn/movie/8396411.htm)
+- [“烤红薯香是加了香精”系捕风捉影](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
+- [著名钢琴家天津演出冷到加穿羽绒服](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
+- [官方辟谣连霍高速发生泥石流](http://www.movie.hkepx.cn/movie/7093450.htm)
+- [李梦被迪丽热巴蝴蝶妆狠狠种草](http://www.daogukj.com/2824694)
+- [高迪已报警](http://www.daogukj.com/yjkpaybt/)
+- [解放军东风-61有多强](http://www.daogukj.com/9138421)
+- [HR 要求求职者面试时帮忙带咖啡，被拒后取消面试，平台已暂停该招聘账号权限，暴露了背后哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
+- [“那老虎也刹了一下闸”](http://www.movie.hkepx.cn/xiju/5067207.htm)
+- [BLG夺冠刷屏半个娱乐圈](http://www.daogukj.com/7199630)
+- [探秘塔克拉玛干沙漠腹地千年巨型胡杨](http://www.movie.hkepx.cn/movie/6135897.htm)
+- [S16 总决赛 BLG 3:1 击败 GEN，中国战队时隔 5 年再夺总冠军，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
+- [花几千买的电动车无法上牌 多方回应](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
+- [进价6元的药转手就卖到598元](http://www.daogukj.com/2412867)
+- [如何看待王传君谈《爱情公寓》言论争议，称当年脑子里只有「关我屁事」和「关你屁事」，现在为冲动买单？](http://www.daogukj.com/0344516)
+- [央行托底金价为何下跌](http://www.movie.hkepx.cn/movie/0187296.htm)
+- [115家世界500强企业参加工商峰会](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
+- [高速上窜出东北虎 司机紧急避让](http://www.daogukj.com/qfjukyqn/)
+- [高盛2027展望：美元将迎“最后一涨”](http://www.daogukj.com/uumjcsie/)
+- [BLG一穿四](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
+- [孙海洋女儿孙悦结婚：不收彩礼不随礼](http://www.movie.hkepx.cn/movie/7623929.htm)
+- [小学生在回答里写「吃饭打包很丢脸」，老师打叉并扣其4分，你觉得这个回答到底该不该被扣分？](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
+- [俄一地遭大规模无人机袭击](http://www.movie.hkepx.cn/movie/8313935.htm)
+- [红果短剧爆火美国！你就拿这种短剧考验红脖子？哪个红脖子经得起这样的考验！？？？](http://www.daogukj.com/fqjpdyus/)
+- [一穿四LCK捧杯夺冠，含金量最高的一集，我们是冠军！！！【火兰吐槽】](http://www.daogukj.com/5983723)
+- [北京金店挤满人](http://www.movie.hkepx.cn/xiju/4176767.htm)
+- [在构建亚太共同体之路上携手同行](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
+- [12位APEC经济体领导人将出席峰会](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
+- [印尼14岁小将与门将相撞后离世](http://www.movie.hkepx.cn/movie/8664223.htm)
+- [BLG一穿四夺冠！BLG 3-1 GEN 赛后数据雷达图丨2026全球总决赛-决赛](http://www.movie.hkepx.cn/movie/1942982.htm)
+- [深圳APEC近700辆豪华车队来了](http://www.movie.hkepx.cn/movie/5767803.htm)
+- [中国新能源企业在芬建厂涉人口贩运调查，出海中企该如何规避海外用工合规风险？](http://www.movie.hkepx.cn/xiju/8972635.htm)
+- [BLG夺冠](http://www.movie.hkepx.cn/xiju/5657270.htm)
+- [东西或许是半价的，但爱却不是！](http://www.movie.hkepx.cn/movie/4036246.htm)
+- [乌克兰一夜向俄罗斯发射近 1200 架无人机，创下冲突以来最大规模袭击之一，释放了什么信号？](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
+- [学号不是按名字首字母排序吗](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
 - [【2026全球总决赛】11月15日 GEN vs BLG](http://www.movie.hkepx.cn/xiju/0860317.htm)
-- [中国乘客亲历全美停飞以为被空袭](http://www.daogukj.com/lyyagrpj/)
-- [有家长问“能否保证新老师不怀孕”](http://www.daogukj.com/1732815)
-- [日本在南海动作有何意图](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
-- [王乐乐 高迪](http://www.daogukj.com/sokjghqt/)
-- [根本没有这样的夹子](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
-- [脚底走多了会长茧，皮肤怎么知道哪里需要变厚？](http://www.daogukj.com/fcgqpwva/)
-- [BLG S16夺冠赞歌《仰望星空》](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
+- [朱天天 创造101](http://www.daogukj.com/lyyagrpj/)
+- [Bin 夺得全球总决赛冠军泪洒现场，如何评价他的一路历程？今天的表现他当得起世一上吗？](http://www.daogukj.com/1732815)
+- [梓渝摘墨镜那一下](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
+- [店里¥788一个的蛋糕，自己在家做，能省多少钱？](http://www.daogukj.com/sokjghqt/)
+- [怎么看崔添翼在DeepSeek发布全家桶 API 后说，下一个超级 App 只属于个人的超级 App？](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
+- [中国拉面在德国大学食堂火了](http://www.daogukj.com/fcgqpwva/)
+- [Knight 获得 S16 总决赛 FMVP，成为继田野后 LPL 第二位大满贯，对此你有什么想说的？](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
 
 </details>
 
 ## 原始来源
 
-- [谭开心自曝与高迪合作经历](https://s.weibo.com/weibo?q=%E8%B0%AD%E5%BC%80%E5%BF%83%E8%87%AA%E6%9B%9D%E4%B8%8E%E9%AB%98%E8%BF%AA%E5%90%88%E4%BD%9C%E7%BB%8F%E5%8E%86)
+- [天呐！英雄联盟历史上含金量最高的冠军！BLG传奇1穿4LCK修成正果！【1酱短评】](https://b23.tv/BV1Gbsn63EcU)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7e4e109339b5864f89f8 -->
+<!-- content-fingerprint: 04dfc71920f84c2e894e -->
