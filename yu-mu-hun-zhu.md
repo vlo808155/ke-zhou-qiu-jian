@@ -2,11 +2,11 @@
 
 # “烤红薯香是加了香精”系捕风捉影
 
-> 来源：百度热搜 · 排名：第 10 位 · 热度：6849046 · 更新：2026-11-15T20:05:54+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6852696 · 更新：2026-11-16T02:53:27+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，““烤红薯香是加了香精”系捕风捉影”位列第 10 位，公开热度指标为 6849046。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““烤红薯香是加了香精”系捕风捉影”位列第 10 位，公开热度指标为 6852696。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：近期，记者调查发现，烤红薯加香精、智能镜子盗人脸等“避雷帖”实为发帖者脑补的造谣套路，利用信息差制造焦虑博取流量。专家澄清红薯香气源于美拉德反应，上海商场镜子仅靠红外感应。
 
@@ -18,73 +18,73 @@
 
 ## 相关热点
 
-- [青稚前女友发文](dong-shi-xiao-pin.md)
+- [红果AI漫剧热播榜排名TOP10](dong-shi-xiao-pin.md)
 - [官方辟谣连霍高速发生泥石流](han-dan-xue-bu.md)
-- [S16 总决赛 BLG 3:1 击败 GEN，中国战队时隔 5 年再夺总冠军，如何评价这场比赛？](qi-ren-you-tian.md)
-- [店里¥788一个的蛋糕，自己在家做，能省多少钱？](chao-san-mu-si.md)
+- [美国又有近万架航班取消或延误，预计15日晚恢复正常，故障根源仍尚未查明，能预期恢复正常吗？](qi-ren-you-tian.md)
+- [《立贤不立长》](chao-san-mu-si.md)
 
 ## 站内推荐
 
-- [央视曝光火车票洗钱犯罪](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [暴雪、 大暴雪来了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [著名钢琴家天津演出冷到加穿羽绒服](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [进价6元的药转手就卖到598元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [朱天天 创造101](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [“酸奶界的爱马仕”卖不动了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [多地医院调整配置 部分院区停接急诊](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [约翰逊自曝被普京拒见](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [深圳水贝金价跌三分之一](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [颜值超高的空气凤梨竟是生态刺客](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [BLG一穿四](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [今何在 不要都觉得比我更了解江南](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [王楚然济南感受家乡热情](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [店里¥788一个的蛋糕，自己在家做，能省多少钱？](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [青稚前女友六点澄清](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [曝许飞退群](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [方博获代表哈萨克斯坦参赛后首冠](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [《立贤不立长》](http://www.movie.hkepx.cn/movie/9298248.htm)
 - [GEN 总决赛不敌 BLG 止步亚军，这场比赛他们输在哪？](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [“那老虎也刹了一下闸”](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [朱天天 创造101](http://www.daogukj.com/4734416)
-- [解放军东风-61有多强](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [怎么看崔添翼在DeepSeek发布全家桶 API 后说，下一个超级 App 只属于个人的超级 App？](http://www.daogukj.com/eujljnlh/)
-- [北方多地迎降雪 南方有大范围降雨](http://www.daogukj.com/3484796)
-- [著名钢琴家天津演出冷到加穿羽绒服](http://www.daogukj.com/6840289)
-- [外媒曝中国男足再度收紧纹身限制，国脚需佩戴肤色护臂遮盖，对此你怎么看，国家队限制纹身外露是否合理？](http://www.daogukj.com/8544186)
-- [小学生在回答里写「吃饭打包很丢脸」，老师打叉并扣其4分，你觉得这个回答到底该不该被扣分？](http://www.daogukj.com/4262842)
-- [暴雪、 大暴雪来了](http://www.movie.hkepx.cn/movie/0136106.htm)
-- [2分钟带你看APEC热词](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [进价6元的药转手就卖到598元](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [青稚前女友发文](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [人民日报三问希望小学卖惨骗捐案](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [BLG夺冠](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [炸串摊主遭差评后轻生去世，当地警方不予立案，死者家属称将对避雷贴发帖人提起诉讼，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [命运让他们彼此对立，也让他们彼此靠近｜上](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [见识到秋假的威力了](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [Bin 夺得全球总决赛冠军泪洒现场，如何评价他的一路历程？今天的表现他当得起世一上吗？](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [Riot 宣布《英雄联盟》即将全面升级为《英雄联盟:曙光》，你觉得此举对于这款游戏意味着什么？](http://www.daogukj.com/4133568)
-- [Knight 获得 S16 总决赛 FMVP，成为继田野后 LPL 第二位大满贯，对此你有什么想说的？](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [HR 要求求职者面试时帮忙带咖啡，被拒后取消面试，平台已暂停该招聘账号权限，暴露了背后哪些问题？](http://www.daogukj.com/0480016)
-- [女子花1千元翻新3件羽绒服直呼划算](http://www.daogukj.com/4561506)
-- [探秘塔克拉玛干沙漠腹地千年巨型胡杨](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [1穿4连斩LCK战队！恭喜BLG，加冕为王！](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [梓渝摘墨镜那一下](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [Knight说没想到年纪这么大才拿冠军](http://www.daogukj.com/jbdvxipc/)
-- [BLG 成功逆袭夺冠，雷鸟达成不退款条件，如何评价这一波营销策略？](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [2026王者荣耀巅峰之夜](http://www.daogukj.com/awgjjjvg/)
-- [金价能止跌吗](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [乌克兰一夜向俄罗斯发射近 1200 架无人机，创下冲突以来最大规模袭击之一，释放了什么信号？](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [这便是历届全球总决赛最具含金量的冠军—— BLG](http://www.daogukj.com/ditzbwwz/)
-- [央视曝售楼处成旅游购物点](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [【卜劳恩《父与子》/非凡父爱】“如果没有那一场残酷的战争，父与子的结局或许会是这样……”](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [印尼14岁球员与门将相撞后离世](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [如何评价 S16 最终决战 Chovy 又「同意」了？](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [高速上窜出东北虎 司机紧急避让](http://www.daogukj.com/aqmuomii/)
-- [花几千买的电动车无法上牌 多方回应](http://www.daogukj.com/phjdnbun/)
+- [【BLG vs GEN】德云色解说：新王登基！等待一生的巨浪！（2026全球总决赛）](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [颜值超高的空气凤梨竟是生态刺客](http://www.daogukj.com/4734416)
+- [男子长期吃猪脚饭确诊糖尿病酮症](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [业内称山姆399元羽绒服是钩子商品](http://www.daogukj.com/eujljnlh/)
+- [APEC领导人会议周参会嘉宾陆续抵达](http://www.daogukj.com/3484796)
+- [约翰逊自曝被普京拒见](http://www.daogukj.com/6840289)
+- [炸串摊主遭差评后轻生去世，当地警方不予立案，死者家属称将对避雷贴发帖人提起诉讼，如何从法律角度解读？](http://www.daogukj.com/8544186)
+- [如何评价 Ruler 在 S16 全球总决赛上的表现？](http://www.daogukj.com/4262842)
+- [多地医院调整配置 部分院区停接急诊](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [APEC领导人会议周活动升温](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
+- [深圳水贝金价跌三分之一](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [红果AI漫剧热播榜排名TOP10](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [暖阳没拿年度最佳打野](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [朱天天 创造101](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [BLG夺冠](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [大声告诉我，现在谁是世界第一中单!](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [方博复出到夺冠仅5个月](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [外媒曝中国男足再度收紧纹身限制，国脚需佩戴肤色护臂遮盖，对此你怎么看，国家队限制纹身外露是否合理？](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [如何评价 Chovy 在 S16 全球总决赛上的表现？](http://www.daogukj.com/4133568)
+- [BLG 成功逆袭夺冠，雷鸟达成不退款条件，如何评价这一波营销策略？](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [开拓者官号发赛场照，唯独单放1张杨瀚森通道离去背影图，是否预示截止日会交易杨瀚森，去哪个队好？](http://www.daogukj.com/0480016)
+- [1穿4连斩LCK战队！恭喜BLG，加冕为王！](http://www.daogukj.com/4561506)
+- [中方代表：中东海湾必须遏止战争](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [中国新能源企业在芬建厂涉人口贩运调查，出海中企该如何规避海外用工合规风险？](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [女子随手拍让偏僻小店爆火](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [青稚聊天记录](http://www.daogukj.com/jbdvxipc/)
+- [多地叫停强制家长护学](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [BLG一串四原来是烤串的串](http://www.daogukj.com/awgjjjvg/)
+- [脑瘫女孩摆摊卖烤肠赵传与其合唱](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [Knight 成为首位中国籍全球总决赛冠军中单，他能在中单选手中排进第几名？](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [如何评价赵本山在《走马上任》原声演唱的推广曲《慌啥子嘛》？](http://www.daogukj.com/ditzbwwz/)
+- [Lisa把钱塞腰上被质疑](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [iPhoneDuo经45.7万次折叠后屏幕完好铰链松动，测试结果说明了啥？能在多大程度上反映手机寿命？](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [全美航班停飞 乐队万米高空即兴演出](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [BLG夺冠刷屏半个娱乐圈](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [解放军东风-61有多强](http://www.daogukj.com/aqmuomii/)
+- [北大羽绒外套卖断货](http://www.daogukj.com/phjdnbun/)
 - [【独家】牧神记 第109集 无忧剑](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [如何评价赵本山在《走马上任》原声演唱的推广曲《慌啥子嘛》？](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [BLG S16夺冠赞歌《仰望星空》](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [借钱给陌生人救急 十年后被其打骨折](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [青稚前女友](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [高迪已报警](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [赵雅芝晒73岁庆生照](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [拜登回忆录痛批内塔尼亚胡说话不算数](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [BLG夺冠单曲《十年人间》——“旧时梦魇，今日高声唱！”](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [曝“国民火腿肠”要被卖了](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [BLG庆功宴](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [丹麦新工签将向中国公民开放](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [【卜劳恩《父与子》/非凡父爱】“如果没有那一场残酷的战争，父与子的结局或许会是这样……”](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
 - [官方辟谣连霍高速发生泥石流](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: af97b621c42a7013c56d -->
+<!-- content-fingerprint: eb9dbaa94f743bd23a2c -->
