@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 把苏德拼好给你｜6分钟看完二战苏德战场
+# 20克金镯子暴跌10000元
 
-> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：968274 · 分类：MV · 更新：2026-11-15T07:50:48+08:00
+> 来源：百度热搜 · 排名：第 11 位 · 热度：6751994 · 更新：2026-11-15T12:17:27+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“把苏德拼好给你｜6分钟看完二战苏德战场”位列第 11 位，公开热度指标为 968274，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“20克金镯子暴跌10000元”位列第 11 位，公开热度指标为 6751994。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：从1941年6月22日巴巴罗萨行动到1945年5月柏林投降：布列斯特要塞、明斯克、列宁格勒围城、基辅、莫斯科保卫战、塞瓦斯托波尔、斯大林格勒、库尔斯克、巴格拉季昂行动、柏林战役，苏德战场近四年。纪念世界反法西斯战争的胜利，铭记历史，珍爱和平。 战役兵力与伤亡取自公开资料，各家估计不一，取常见区间。 地图数据：Natural Earth（公有领域）、Historical Basemaps（GPL-3.0）；河流、城市与铁路为按公开资料手工摆放的示意。 美术：人物面貌与装备外形参考 Wikimedia Com
+来源公开摘要显示：近日，受国际金价跳水拖累，国内周大福、老凤祥等品牌足金饰品克价集体下调，多数跌破1200元关口，较年内高点暴跌超500元，20克大金镯子暴跌10000元！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `MV`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [Viper炸弹人狂炸9.4万伤害](chao-san-mu-si.md)
-- [SpaceX首次实现筷子夹飞船](dui-niu-tan-qin.md)
-- [男子上门推拿加钟时性侵技师获刑](mang-ren-mo-xiang.md)
-- [专家称今冬我国大部大概率是暖冬但寒潮偏多，该如何从气象学角度上理解这一结论？](yuan-mu-qiu-yu.md)
+- [王乐乐 高迪](chao-san-mu-si.md)
+- [评论员：美芯片壁垒助推中国国产订单](dui-niu-tan-qin.md)
+- [乌克兰一夜向俄罗斯发射近 1200 架无人机，创下冲突以来最大规模袭击之一，释放了什么信号？](mang-ren-mo-xiang.md)
+- [最怕BLG夺冠之人是什么梗【梗指南】](yuan-mu-qiu-yu.md)
 
 ## 站内推荐
 
-- [于东来称胖东来的经营永远不会完美，不要因认知差异而过度争执，时间会给出最好的答案，如何看待这一表态？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [耗资上万！我把匠魂做进了网页版mc... 【B站AI创造公开赛】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [纯黑《影之刃零》逆天者全程无伤一镜到底攻略解说 第三期](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [当你穿进老钱班40](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [S16 总决赛 BLG 3:1 击败 GEN，中国战队时隔 5 年再夺总冠军，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [台式电脑送人，留下了硬盘。想彻底清除硬盘信息，2个简单方法:用脏水泡，用锤子砸，可靠吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [【BLG vs GEN】德云色解说：新王登基！等待一生的巨浪！（2026全球总决赛）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [凌晨3点电影院热闹得像过年](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [7000多的罕见病药报销后仅500多元](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [葡媒：C罗计划明年7月全家搬回葡萄牙](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
-- [MCN摆拍骑手悲惨遭遇实为卖翡翠](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
-- [" 1 ＋0 ＝10 "](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
-- [中国乘客亲历全美停飞以为被空袭](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
-- [许飞听到不负少年不负卿上热搜的反应](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
-- [我就说不能败选吧！万税爷辈分都降了](http://www.movie.hkepx.cn/xiju/2772866.htm)
-- [根本没有这样的夹子](http://www.movie.hkepx.cn/movie/8157133.htm)
-- [猛虎袭击巴基斯坦19岁少年 致其死亡](http://www.movie.hkepx.cn/movie/3703338.htm)
-- [SpaceX 星舰第 15 次试飞，飞船首次成功回收，如何理解本次结果？](http://www.movie.hkepx.cn/xiju/3368241.htm)
-- [零元面馆附近商铺没人租](http://www.movie.hkepx.cn/movie/9040401.htm)
-- [Chovy真同意了](http://www.movie.hkepx.cn/movie/7194765.htm)
-- [英雄联盟曙光](http://www.movie.hkepx.cn/movie/6128990.htm)
-- [当你穿进老钱班40](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
-- [詹俊：国足比上个月的比赛有明显提升](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
-- [男子借10元救急 10多年不还](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
-- [闻着香吃着却不甜的街边烤红薯，真的是用香精浸泡过的吗？这是什么原理？可以如何辨别？](http://www.movie.hkepx.cn/movie/4858272.htm)
-- [飞歼-20是什么感觉](http://www.daogukj.com/bfxepwya/)
-- [零元面馆老板：只要活一天就做一天](http://www.movie.hkepx.cn/xiju/4024765.htm)
-- [SpaceX首次完成“筷子夹飞船”](http://www.movie.hkepx.cn/xiju/0737631.htm)
-- [疾风传：鸣佐vs一式！](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
-- [王乐乐](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
-- [日本两位前首相公开批评高市早苗](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
-- [白小纯居然是来报恩的](http://www.movie.hkepx.cn/xiju/7334347.htm)
-- [拍铃铛1V3~](http://www.daogukj.com/7849300)
-- [多地网约车司机称被特惠车、一口价订单逼「疯」，不开特惠单就变少，怎样才能让乘客打车实惠、司机有单可接？](http://www.daogukj.com/aozagmkd/)
-- [Viper炸弹人狂炸9.4万伤害](http://www.daogukj.com/ioafjlkc/)
-- [专家称今冬我国大部大概率是暖冬但寒潮偏多，该如何从气象学角度上理解这一结论？](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
-- [后C罗时代葡萄牙遭遇大败](http://www.movie.hkepx.cn/xiju/2137446.htm)
-- [APEC如何走进你我生活](http://www.daogukj.com/0166884)
-- [怪诞虫：一只看起来活不过三天的动物，真的存在过？](http://www.movie.hkepx.cn/movie/0848231.htm)
-- [曝爱奇艺尖叫之夜座位双C](http://www.daogukj.com/tckpumpu/)
-- [遗传角度来看，孙子是和爷爷奶奶血缘更近，还是和外公外婆？](http://www.daogukj.com/0292547)
-- [在这里，万亿吨水被强行灌进火山……【地理志】](http://www.daogukj.com/hejavvee/)
-- [韩国为何愿花17年把柿子卖到中国](http://www.movie.hkepx.cn/xiju/2863382.htm)
-- [【唐唐】深度解析伪纪录片《放送禁止》细思极恐的答案！](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
-- [乌鲁木齐禁售马肉马肠制品？假的](http://www.daogukj.com/gurgtiup/)
-- [男子狂买57箱花生油结果付的是赃款](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
-- [CFA 中国之队肇庆国际足球邀请赛，国足 2-0 马来西亚，终结 3 连败进球荒，如何评价这场比赛？](http://www.daogukj.com/nlwlvqny/)
-- [《影之刃零》沐小葵建模获海外好评，如何看待东西方游戏女性角色审美的差异？](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
-- [董明珠称格力逐步取消文凭考量，本事是硬通行证，格力技校学费9000元起，但格力每年补贴1亿，如何解读？](http://www.daogukj.com/4367144)
-- [人民日报三问希望小学“卖惨骗捐”案](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
-- [《今 日 手 绷》](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
-- [抽象新闻：11月人类迷惑行为大赏（上）](http://www.movie.hkepx.cn/movie/3421929.htm)
-- [S16总决赛：BLG2比1GEN拿到赛点](http://www.movie.hkepx.cn/xiju/7147911.htm)
-- [原价129万/支的天价药进医保了](http://www.movie.hkepx.cn/xiju/5231443.htm)
-- [男子上门推拿加钟时性侵技师获刑](http://www.daogukj.com/hwjpoycr/)
-- [SpaceX首次实现筷子夹飞船](http://www.movie.hkepx.cn/movie/7786575.htm)
-- [【独家】《凡人修仙传之慕兰之战》第24集【总第200集】](http://www.movie.hkepx.cn/movie/1630389.htm)
-- [球衣被印敌国广告，中国都帮不动的小国，出路在哪？【东非 05丨布隆迪】](http://www.daogukj.com/ijajouly/)
-- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](http://www.daogukj.com/7130534)
+- [青稚 白小纯](http://www.play.hengshemaoyi.cn/kongbu/2771391.htm)
+- [Bin 世一上](http://www.play.hengshemaoyi.cn/xiju/7770753.htm)
+- [于东来回应“人红是非多”](http://www.play.hengshemaoyi.cn/kongbu/2633664.htm)
+- [BLG夺冠引来半个娱乐圈](http://www.play.hengshemaoyi.cn/xiju/3428323.htm)
+- [许飞厉娜好到把如来都删掉](http://www.play.hengshemaoyi.cn/kongbu/3615114.htm)
+- [BLG一穿四夺冠！BLG 3-1 GEN 赛后数据雷达图丨2026全球总决赛-决赛](http://www.movie.hkepx.cn/xiju/2772866.htm)
+- [【2026全球总决赛】11月15日 GEN vs BLG](http://www.movie.hkepx.cn/movie/8157133.htm)
+- [20克大金镯子暴跌10000元](http://www.movie.hkepx.cn/movie/3703338.htm)
+- [刘耀文独家直播全程回顾：文火慢聊【2026时代少年团系列直播】](http://www.movie.hkepx.cn/xiju/3368241.htm)
+- [余承东宣布华为Mate X8即将登场](http://www.movie.hkepx.cn/movie/9040401.htm)
+- [北方超级浓雾 压迫感已达寂静岭级别](http://www.movie.hkepx.cn/movie/7194765.htm)
+- [日本在南海动作有何意图](http://www.movie.hkepx.cn/movie/6128990.htm)
+- [7000多的罕见病药报销后仅500多元](http://www.play.hengshemaoyi.cn/kongbu/8097962.htm)
+- [如何评价 S16 最终决战 Chovy 又「同意」了？](http://www.play.hengshemaoyi.cn/kongbu/9999661.htm)
+- [【独家】牧神记 第109集 无忧剑](http://www.play.hengshemaoyi.cn/kongbu/7662003.htm)
+- [怪诞虫：一只看起来活不过三天的动物，真的存在过？](http://www.movie.hkepx.cn/movie/4858272.htm)
+- [疑似后会友期白小纯表白王子璇路透](http://www.daogukj.com/bfxepwya/)
+- [BLG赛后感谢C9教练和选手](http://www.movie.hkepx.cn/xiju/4024765.htm)
+- [BLG夺冠](http://www.movie.hkepx.cn/xiju/0737631.htm)
+- [男子失业后断供房贷靠跑外卖维生，法院判决非恶意断供，涉案房系唯一住所暂不拍卖房产，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/4061017.htm)
+- [人民日报三问希望小学卖惨骗捐案](http://www.play.hengshemaoyi.cn/kongbu/3930271.htm)
+- [遗传角度来看，孙子是和爷爷奶奶血缘更近，还是和外公外婆？](http://www.play.hengshemaoyi.cn/xiju/4650193.htm)
+- [央行重大调整](http://www.movie.hkepx.cn/xiju/7334347.htm)
+- [官方辟谣“太原还有3天雪假”](http://www.daogukj.com/7849300)
+- [胖东来羽绒服标注进货价与毛利率](http://www.daogukj.com/aozagmkd/)
+- [王乐乐 高迪](http://www.daogukj.com/ioafjlkc/)
+- [最怕BLG夺冠之人是什么梗【梗指南】](http://www.play.hengshemaoyi.cn/kongbu/7432332.htm)
+- [BLG夺冠Tim送iPhoneDuo](http://www.movie.hkepx.cn/xiju/2137446.htm)
+- [4分钟读懂APEC](http://www.daogukj.com/0166884)
+- [三问兴平牵手希望小学卖惨骗捐案](http://www.movie.hkepx.cn/movie/0848231.htm)
+- [Knight说事实证明我比Chovy强](http://www.daogukj.com/tckpumpu/)
+- [BLG 单刷 LCK 赛区四支战队夺冠，这是不是迄今为止最具含金量的冠军？](http://www.daogukj.com/0292547)
+- [BLG S16夺冠赞歌《仰望星空》](http://www.daogukj.com/hejavvee/)
+- [脚底走多了会长茧，皮肤怎么知道哪里需要变厚？](http://www.movie.hkepx.cn/xiju/2863382.htm)
+- [Knight 获得 S16 总决赛 FMVP，成为继田野后 LPL 第二位大满贯，对此你有什么想说的？](http://www.play.hengshemaoyi.cn/kongbu/7718417.htm)
+- [Bin 夺得全球总决赛冠军泪洒现场，如何评价他的一路历程？今天的表现他当得起世一上吗？](http://www.daogukj.com/gurgtiup/)
+- [谭开心自曝与高迪合作经历](http://www.play.hengshemaoyi.cn/kongbu/2754809.htm)
+- [1穿4战胜LCK赛区战队！祝贺BLG拿下2026英雄联盟全球总决赛冠军！](http://www.daogukj.com/nlwlvqny/)
+- [糖尿病很可能让身体“千疮百孔”](http://www.play.hengshemaoyi.cn/xiju/8917753.htm)
+- [BLG一穿四](http://www.daogukj.com/4367144)
+- [我们把欢呼声送给BLG！他们是世界冠军！](http://www.play.hengshemaoyi.cn/kongbu/7307323.htm)
+- [央视曝光假牛肉案](http://www.play.hengshemaoyi.cn/kongbu/1161049.htm)
+- [韩网热议BLG夺冠](http://www.movie.hkepx.cn/movie/3421929.htm)
+- [S16总决赛：中国战队BLG逆转夺冠](http://www.movie.hkepx.cn/xiju/7147911.htm)
+- [美国超75%空管系统无法持续或有风险，为何设备老化问题难解决？一次通信故障致全航班停飞，暴露哪些问题？](http://www.movie.hkepx.cn/xiju/5231443.htm)
+- [乌克兰一夜向俄罗斯发射近 1200 架无人机，创下冲突以来最大规模袭击之一，释放了什么信号？](http://www.daogukj.com/hwjpoycr/)
+- [评论员：美芯片壁垒助推中国国产订单](http://www.movie.hkepx.cn/movie/7786575.htm)
+- [如何看待王传君谈《爱情公寓》言论争议，称当年脑子里只有「关我屁事」和「关你屁事」，现在为冲动买单？](http://www.movie.hkepx.cn/movie/1630389.htm)
+- [赵本山《慌啥子嘛》第一句就忘词了](http://www.daogukj.com/ijajouly/)
+- [【BLG vs GEN】德云色解说：新王登基！等待一生的巨浪！（2026全球总决赛）](http://www.daogukj.com/7130534)
 
 </details>
 
 ## 原始来源
 
-- [把苏德拼好给你｜6分钟看完二战苏德战场](https://b23.tv/BV17KWY6DETN)
+- [20克金镯子暴跌10000元](https://www.baidu.com/s?wd=20%E5%85%8B%E9%87%91%E9%95%AF%E5%AD%90%E6%9A%B4%E8%B7%8C10000%E5%85%83&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7a62108fef8f9f29fe7a -->
+<!-- content-fingerprint: 03883478e1c18cea4806 -->
