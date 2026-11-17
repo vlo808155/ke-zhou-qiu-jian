@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 特朗普出访亚洲团队名单
+# 《地下城与勇士》怀旧服定于 2027 年上线，你认为「八百万勇士」能否如期回归？
 
-> 来源：百度热搜 · 排名：第 12 位 · 热度：6657877 · 更新：2026-11-17T20:03:46+08:00
+> 来源：知乎热榜 · 排名：第 12 位 · 热度：107 万热度 · 分类：问答 · 更新：2026-11-18T04:49:15+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“特朗普出访亚洲团队名单”位列第 12 位，公开热度指标为 6657877。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“《地下城与勇士》怀旧服定于 2027 年上线，你认为「八百万勇士」能否如期回归？”位列第 12 位，公开热度指标为 107 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：美国总统特朗普11月18日访问中国深圳，参加亚太经合组织领导人非正式会议。陪同特朗普出访亚洲的成员包括美国国务卿鲁比奥、美国财政部长贝森特、美国贸易代表格里尔以及多位白宫工作人员等。
+来源公开摘要显示：31日，Nexon在东京举办的资本市场简报（CMB）上，公开了《地下城与勇士》（DNF）系列两款新作的开发进展。 其中，《地下城与勇士养成记（暂译）》计划于2026年年内推出，该作延续《冒险岛养成记》的风格，主打休闲易上手的体验，除服务核心玩家外，还将承担吸引新用户及轻度用户加入该系列的职责。 另一款新作《地下城与勇士：经典版》（怀旧服）为基于2009年版本的重制版，在保留原作动作精髓的基础上，对UI及UX进行了现代化优化，计划于2027年推出。 Nexon CEO李正宪当天介绍了DNF系列的发展战略，他表示，公司正同时推进三 八百万勇士何在！《地下城与
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [郑渊洁说许飞当年分文未取](sha-ji-qu-luan.md)
-- [外交部：深圳成中国靓丽名片](yin-zhen-zhi-ke.md)
-- [一组数字看深圳与APEC双向奔赴](ke-zhou-qiu-jian.md)
-- [波司登王力宏同款羽绒服售价 2399 元至 5999 元，仅售 16 件，波司登高端化之路走错了吗？](yan-er-dao-ling.md)
+- [西班牙400万人大罢工，抗议房价太高，物价飞涨](sha-ji-qu-luan.md)
+- [特朗普：我期待访问中国](yin-zhen-zhi-ke.md)
+- [字节多领域追赶腾讯](ke-zhou-qiu-jian.md)
+- [深圳以暖心服务迎接亚太宾客](yan-er-dao-ling.md)
 
 ## 站内推荐
 
-- [特朗普戴红领带开启亚洲行](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [九阳一天内从跌停附近被抬到涨停](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [【纪录片】蓝色星球 第三季 03 四季海洋](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [小彩旗已拿到英国皇家学院硕士学位](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [原来王子璇也高反了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [女子得知被抱养辞职回农村陪养父母](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [国足友谊赛，中国男足 2-2 巴林，拜合拉木、张玉宁破门、王钰栋造点，如何评价本场比赛双方的表现？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [校招进了一个大公司新成立的部门，只有自己一个人，且直接跟大领导汇报，求经验？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [为何芒果能精准抓住 NPD特质这一元素，并找到嘉宾做出多档爆款综艺？现实生活中真有这么多 NPD 吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [波兰小伙自灭满门后景区屠杀，警界战神丝血反杀，国宝神医逆天改命！【2026年波兰克拉科夫枪击案详解】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待中南大学湘雅二医院被曝医学sci论文图片为AI生成？](http://www.daogukj.com/3439248)
-- [EUV光刻机 | "上帝的手术刀"](http://www.movie.hkepx.cn/xiju/5723356.htm)
-- [特朗普亚洲行团队名单：鲁比奥在列](http://www.daogukj.com/6000433)
-- [这就是我等待了一生的巨浪！BLG夺冠再锐评！说点心里话！雷鸟你到底看到了多远的未来！](http://www.daogukj.com/7456083)
-- [多所高校被巡视指出存在转专业乱象，整改该如何兼顾公平与学生选择权？](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
-- [现货黄金创年内新低，金饰克价回撤超540元，50克金镯账面缩水2.7万，现在该抄底吗？](http://www.movie.hkepx.cn/movie/2238087.htm)
-- [为什么有些沙漠不适合种树？如果我们把所有沙漠都种满树，那不就能消灭沙漠了吗？](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
-- [最新研究显示全球冰冻圈已突破安全底线，部分变化不可逆，会带来什么影响？普通人能怎么应对？](http://www.movie.hkepx.cn/xiju/4841059.htm)
-- [腾讯 字节](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
-- [《哈利波特与枪》](http://www.movie.hkepx.cn/xiju/8193455.htm)
-- [【守护解放西·传承季】总预告：守护第七年，我们再次出发！](http://www.movie.hkepx.cn/xiju/1574035.htm)
-- [网友曝衣服面料「珊瑚绒、羊羔绒」等很多都是化纤塑料，是真的吗？为什么面料命名有这么多叫法，符合规范吗？](http://www.movie.hkepx.cn/xiju/0717269.htm)
-- [一组数字看深圳与APEC双向奔赴](http://www.daogukj.com/9326450)
-- [“希望我的祖国也能有一个深圳”](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
-- [杨洋现偶回宫](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
-- [于东来奖励员工310辆坦克700](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
-- [第一次带团队后，发现自己越负责大家越不主动，该怎么调整领导方式？](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
-- [后会友期火车迟到时间线](http://www.movie.hkepx.cn/xiju/7062133.htm)
-- [小米辟谣汽车召回短信](http://www.daogukj.com/amzovuov/)
-- [王传福：我赢你输的路子走不远](http://www.daogukj.com/2011735)
-- [小时候去朋友家玩电脑](http://www.movie.hkepx.cn/xiju/2237302.htm)
-- [为什么BLG放弃全华班就夺冠了？](http://www.movie.hkepx.cn/movie/3232131.htm)
-- [杜海涛英语直播 全障碍交流](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
-- [高市游说东盟把石油存日本有何算计](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
-- [原来王子璇也高反了](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
-- [【纪录片】蓝色星球 第三季 03 四季海洋](http://www.movie.hkepx.cn/movie/7476543.htm)
-- [马斯克确认将来中国](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
-- [校招进了一个大公司新成立的部门，只有自己一个人，且直接跟大领导汇报，求经验？](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
-- [61 岁女子登机口抛硬币祈福致航班延误 58 分钟被拘 5 日，该处罚尺度是否合理？](http://www.daogukj.com/7278634)
-- [俄方代表团阵容强大](http://www.daogukj.com/kjritwpu/)
-- [如何评价 Xun 在 S16 全球总决赛上的表现？](http://www.movie.hkepx.cn/movie/7092438.htm)
-- [一起进入APEC深圳时间](http://www.movie.hkepx.cn/movie/3129013.htm)
-- [广东人放弃背心人字拖 白衬衫整起](http://www.movie.hkepx.cn/xiju/7500457.htm)
-- [普京将带3位副总理7位部长来华参会](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
-- [灭霸金融小课堂：应届生小浣熊的疑惑，什么是五险一金](http://www.daogukj.com/pgoxgqgc/)
-- [“他们没有任何血缘关系，但却拥有同一个妈妈.”【Scared play sacred place】【治愈心灵の小曲】](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
-- [外国人在深圳聚餐齐齐用筷子](http://www.daogukj.com/euynrtzl/)
-- [纵观历史几千年，为什么科技才近一两百年发生了质的飞跃，有了电话、飞机、火车，那么之前的人们在干嘛去了？](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
-- [11月18日上线｜《终极角逐》全新模式 「生存挑战赛」](http://www.movie.hkepx.cn/xiju/8147435.htm)
-- [【完结】财神窦占龙 第16集 归乡【8月国创】](http://www.daogukj.com/soikllri/)
-- [腾讯总办发文复盘司庆讲话，号召全员AI时代再创业，并推进组织扁平化，有哪些看点？这波改革能成吗？](http://www.daogukj.com/3156407)
-- [虞书欣2天2起争议是巧合吗](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
-- [不小心惹了上帝](http://www.movie.hkepx.cn/xiju/1247424.htm)
-- [雷军：具身智能机器人是巨大机会](http://www.daogukj.com/urlgwtmt/)
-- [小彩旗已拿到英国皇家学院硕士学位](http://www.movie.hkepx.cn/movie/3044896.htm)
-- [深圳APEC主持人阵容拉满](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
-- [BLG：绝境一穿四！](http://www.movie.hkepx.cn/xiju/3522057.htm)
-- [马斯克确认即将前往中国](http://www.daogukj.com/1068378)
-- [郑渊洁说许飞当年分文未取](http://www.movie.hkepx.cn/xiju/2722752.htm)
-- [曝Gala小明或加入WBG](http://www.movie.hkepx.cn/xiju/6955801.htm)
+- [方桃子被罚 AI代言不能啥都敢说](http://www.daogukj.com/3439248)
+- [哈尔滨把“世界”冻进园区了](http://www.movie.hkepx.cn/xiju/5723356.htm)
+- [Doggo 就抢女友事件致歉「这完全是我个人的错，没有任何借口」，对此你有什么想说的？](http://www.daogukj.com/6000433)
+- [特朗普亚洲行团队名单：鲁比奥在列](http://www.daogukj.com/7456083)
+- [BLG赛点局ON高喊别虐泉](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
+- [张麻子《鹅城Dangerous》](http://www.movie.hkepx.cn/movie/2238087.htm)
+- [小米18真机曝光](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
+- [曾沛慈说要去声生不息追星](http://www.movie.hkepx.cn/xiju/4841059.htm)
+- [“他们没有任何血缘关系，但却拥有同一个妈妈.”【Scared play sacred place】【治愈心灵の小曲】](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
+- [连续坚持10秒不呼吸就奖励100元，每再坚持1秒，奖励就会翻倍一次，你认为你能赚多少？](http://www.movie.hkepx.cn/xiju/8193455.htm)
+- [中方回应特朗普称或在华会见金正恩](http://www.movie.hkepx.cn/xiju/1574035.htm)
+- [【蜘蛛侠/MJ】非凡之爱真人版](http://www.movie.hkepx.cn/xiju/0717269.htm)
+- [字节多领域追赶腾讯](http://www.daogukj.com/9326450)
+- [雷军APEC现场挨个发名片](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
+- [特朗普戴红领带开启亚洲行](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
+- [河南安徽多地回应“撞脸药”乱象](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
+- [Anthropic纳斯达克IPO获准](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
+- [医生：干发帽包头超5分钟易脱发](http://www.movie.hkepx.cn/xiju/7062133.htm)
+- [一个月一万块这工作普通人干不了](http://www.daogukj.com/amzovuov/)
+- [金价三重冲击](http://www.daogukj.com/2011735)
+- [特朗普宣布即将访华 将与中俄元首会晤](http://www.movie.hkepx.cn/xiju/2237302.htm)
+- [小米辟谣汽车召回短信](http://www.movie.hkepx.cn/movie/3232131.htm)
+- [小米：相关内容纯属虚构](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
+- [美联储主席警告美国 AI 热潮若落空将致美股大跌失业率攀升，该判断有哪些现实依据？](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
+- [波兰小伙自灭满门后景区屠杀，警界战神丝血反杀，国宝神医逆天改命！【2026年波兰克拉科夫枪击案详解】](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
+- [校招进了一个大公司新成立的部门，只有自己一个人，且直接跟大领导汇报，求经验？](http://www.movie.hkepx.cn/movie/7476543.htm)
+- [迎接我们的羁绊吧！](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
+- [深圳APEC主持人阵容拉满](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
+- [工人8楼高空作业疑被住户割断安全绳](http://www.daogukj.com/7278634)
+- [为什么诸葛亮没有因为刘备晚年移宠法正而黑化？](http://www.daogukj.com/kjritwpu/)
+- [PEL竞男ob小锁](http://www.movie.hkepx.cn/movie/7092438.htm)
+- [APEC工商领导人峰会聚焦哪些议题](http://www.movie.hkepx.cn/movie/3129013.htm)
+- [U19国足2比1韩国夺冠](http://www.movie.hkepx.cn/xiju/7500457.htm)
+- [虞书欣近1年掉粉118万](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
+- [【BLG冠军麦克风】这一刻，我们是世界冠军！](http://www.daogukj.com/pgoxgqgc/)
+- [花花一个眼神藏了800个心眼子](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
+- [小米回应雷军APEC发言紧张](http://www.daogukj.com/euynrtzl/)
+- [灭霸金融小课堂：应届生小浣熊的疑惑，什么是五险一金](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
+- [最新研究显示全球冰冻圈已突破安全底线，部分变化不可逆，会带来什么影响？普通人能怎么应对？](http://www.movie.hkepx.cn/xiju/8147435.htm)
+- [近半米高的超长奶茶火了](http://www.daogukj.com/soikllri/)
+- [经常吃面条对身体好还是不好](http://www.daogukj.com/3156407)
+- [错了就要认，挨打要立正，对不起，这一次是我骗了你们！](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
+- [PEL看到小锁女装的反应](http://www.movie.hkepx.cn/xiju/1247424.htm)
+- [61 岁女子登机口抛硬币祈福致航班延误 58 分钟被拘 5 日，该处罚尺度是否合理？](http://www.daogukj.com/urlgwtmt/)
+- [为何芒果能精准抓住 NPD特质这一元素，并找到嘉宾做出多档爆款综艺？现实生活中真有这么多 NPD 吗？](http://www.movie.hkepx.cn/movie/3044896.htm)
+- [深圳市民给APEC晚宴疯狂安利猪脚饭](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
+- [郭德纲委托律师发布声明](http://www.movie.hkepx.cn/xiju/3522057.htm)
+- [泰国正大集团董事长想买中国的电](http://www.daogukj.com/1068378)
+- [西班牙400万人大罢工，抗议房价太高，物价飞涨](http://www.movie.hkepx.cn/xiju/2722752.htm)
+- [为什么在家带娃会比上班还要累？](http://www.movie.hkepx.cn/xiju/6955801.htm)
 
 </details>
 
 ## 原始来源
 
-- [特朗普出访亚洲团队名单](https://www.baidu.com/s?wd=%E7%89%B9%E6%9C%97%E6%99%AE%E5%87%BA%E8%AE%BF%E4%BA%9A%E6%B4%B2%E5%9B%A2%E9%98%9F%E5%90%8D%E5%8D%95&sa=fyb_news&rsv_dl=fyb_news)
+- [《地下城与勇士》怀旧服定于 2027 年上线，你认为「八百万勇士」能否如期回归？](https://www.zhihu.com/question/2022437072498083012)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3b4dda31d8cd0bc95b40 -->
+<!-- content-fingerprint: 6bb00b9cc68f3c37d2f5 -->

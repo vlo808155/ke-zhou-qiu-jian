@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# “十几年前聊天的网友应该是妈妈”
+# 高中生吸未知物质，当场喷红花油成中微子
 
-> 来源：百度热搜 · 排名：第 9 位 · 热度：6947959 · 更新：2026-11-17T20:03:46+08:00
+> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：415988 · 分类：人文历史 · 更新：2026-11-18T04:49:15+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，““十几年前聊天的网友应该是妈妈””位列第 9 位，公开热度指标为 6947959。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“高中生吸未知物质，当场喷红花油成中微子”位列第 9 位，公开热度指标为 415988，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，一篇“十几年前聊天的网友是妈妈”的帖子引发共鸣。博主回忆，十几年前刚有QQ时妈妈为陪伴孤单的她，特意注册账号假扮12岁小姑娘陪聊、玩“偷菜”。博主初中后淡忘该账号，近期想明白后询问，得到妈妈大方承认。
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `人文历史`
 
 ## 相关热点
 
-- [后会友期火车迟到时间线](ye-gong-hao-long.md)
-- [王传福：我赢你输的路子走不远](lan-yu-chong-shu.md)
-- [校招进了一个大公司新成立的部门，只有自己一个人，且直接跟大领导汇报，求经验？](zi-xiang-mao-dun.md)
-- [【纪录片】蓝色星球 第三季 03 四季海洋](bei-gong-she-ying.md)
+- [医生：干发帽包头超5分钟易脱发](ye-gong-hao-long.md)
+- [金价三重冲击](lan-yu-chong-shu.md)
+- [深圳APEC主持人阵容拉满](zi-xiang-mao-dun.md)
+- [校招进了一个大公司新成立的部门，只有自己一个人，且直接跟大领导汇报，求经验？](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [Knight 直播称「MSI 没拿是好事，拿了S冠不一定是我」，如何评价近几年拳头的平衡策略？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [《哈利波特：魔法觉醒》官宣 2027 年 3 月停服，授权到期，怎么看待这款手游落幕？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [女子盒马仅退款400次零食堆成山](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [虞书欣2天2起争议是巧合吗](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [第一次带团队后，发现自己越负责大家越不主动，该怎么调整领导方式？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [波司登王力宏同款羽绒服售价 2399 元至 5999 元，仅售 16 件，波司登高端化之路走错了吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [《最礼乐崩坏の一集》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [11月18日上线｜《终极角逐》全新模式 「生存挑战赛」](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [错了就要认，挨打要立正，对不起，这一次是我骗了你们！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [Anthropic纳斯达克IPO获准](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [5个美院人“喝”出5件作品，一起紫气东来！](http://www.daogukj.com/9193901)
-- [高市游说东盟把石油存日本有何算计](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [于东来奖励员工310辆坦克700](http://www.daogukj.com/9193901)
+- [美联储主席警告美国 AI 热潮若落空将致美股大跌失业率攀升，该判断有哪些现实依据？](http://www.movie.hkepx.cn/xiju/8468269.htm)
 - [2026APEC这些看点值得期待](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [亚太合作如何改变日常生活](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [536分捡漏上北大考生被公派瑞士读博](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [工人8楼高空作业疑被住户割断安全绳](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [《哈利波特：魔法觉醒》官宣 2027 年 3 月停服，授权到期，怎么看待这款手游落幕？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [最新研究显示全球冰冻圈已突破安全底线，部分变化不可逆，会带来什么影响？普通人能怎么应对？](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [女子下单400余次均仅退款被刑拘](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [王传福：我赢你输的路子走不远](http://www.daogukj.com/1877942)
-- [曝Gala小明或加入WBG](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [泰国正大集团董事长想买中国的电](http://www.daogukj.com/nuqwxjlx/)
-- [虞书欣2天2起争议是巧合吗](http://www.daogukj.com/4054231)
-- [“希望我的祖国也能有一个深圳”](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [打工人开豪车上班，老板娘要来家访…](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [警方披露“51万天价小票案”细节](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [《最礼乐崩坏の一集》](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [原来王子璇也高反了](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [11月18日上线｜《终极角逐》全新模式 「生存挑战赛」](http://www.daogukj.com/ygpoeeya/)
-- [华人双胞胎被不同家庭收养](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [小米辟谣汽车召回短信](http://www.daogukj.com/9246627)
-- [马斯克确认将来中国](http://www.daogukj.com/2490072)
-- [开拓者 98:106 森林狼，杨瀚森被教练要求对戈贝尔执行砍鲨战术，2分钟5犯，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [全新红旗H9将于广州车展正式上市](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [小彩旗已拿到英国皇家学院硕士学位](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [杜海涛英语直播 全障碍交流](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [第一次带团队后，发现自己越负责大家越不主动，该怎么调整领导方式？](http://www.movie.hkepx.cn/movie/6846982.htm)
-- [灭霸金融小课堂：应届生小浣熊的疑惑，什么是五险一金](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [中汽协将对比亚迪、小米等 17 家重点车企开展供应商账款支付情况调研评估，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [腾讯总办发文复盘司庆讲话，号召全员AI时代再创业，并推进组织扁平化，有哪些看点？这波改革能成吗？](http://www.daogukj.com/8715491)
-- [《山海奇旅》兜风测试PV | 落脚小岛，出发兜风！](http://www.daogukj.com/4788107)
-- [115家世界500强为何齐聚深圳](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [深圳APEC主持人阵容拉满](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [大国仪仗圈粉 外国宾客不停拍](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [俄方代表团阵容强大](http://www.daogukj.com/3872248)
-- [坐船去大连，差点忘了这是东北](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [校招进了一个大公司新成立的部门，只有自己一个人，且直接跟大领导汇报，求经验？](http://www.daogukj.com/sguhnydl/)
-- [为什么有些沙漠不适合种树？如果我们把所有沙漠都种满树，那不就能消灭沙漠了吗？](http://www.daogukj.com/6123602)
-- [【纪录片】蓝色星球 第三季 03 四季海洋](http://www.daogukj.com/7243934)
-- [女子以为肚子大是长胖 结果是怀孕了](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [中方回应特朗普称或在华会见金正恩](http://www.daogukj.com/fgkxwaik/)
-- [郑渊洁说许飞当年分文未取](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [2026全球总决赛冠亚军决赛英雄麦克疯：“我们是冠军！”](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [为什么BLG放弃全华班就夺冠了？](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [61 岁女子登机口抛硬币祈福致航班延误 58 分钟被拘 5 日，该处罚尺度是否合理？](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [普京将带3位副总理7位部长来华参会](http://www.daogukj.com/4800229)
-- [外交部：深圳成中国靓丽名片](http://www.daogukj.com/1329201)
-- [陈翔六点半：假如上学是修仙](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [甘肃两当县因慢生活出圈](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [女子盒马仅退款400次零食堆成山](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [三次东道主 这次有什么不一样](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [难怪郑恺高考成绩可以上复旦](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [为什么飞机不能飞过西藏？](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [《最礼乐崩坏の一集》](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [曾沛慈说要去声生不息追星](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [华农兄弟：宰只公羊来炖，兄弟来帮忙，味道好极了](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [金价三重冲击](http://www.daogukj.com/1877942)
+- [为什么在家带娃会比上班还要累？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [何超琼讲话董明珠注视满眼欣赏](http://www.daogukj.com/nuqwxjlx/)
+- [错了就要认，挨打要立正，对不起，这一次是我骗了你们！](http://www.daogukj.com/4054231)
+- [雷军APEC现场挨个发名片](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [小锁女装](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [【纪录片】蓝色星球 第三季 03 四季海洋](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [蚌埠住的时候就抽出七匹狼](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [波兰小伙自灭满门后景区屠杀，警界战神丝血反杀，国宝神医逆天改命！【2026年波兰克拉科夫枪击案详解】](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [最新研究显示全球冰冻圈已突破安全底线，部分变化不可逆，会带来什么影响？普通人能怎么应对？](http://www.daogukj.com/ygpoeeya/)
+- [字节被指只差聊天软件](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [一个月一万块这工作普通人干不了](http://www.daogukj.com/9246627)
+- [迎接我们的羁绊吧！](http://www.daogukj.com/2490072)
+- [TGA2026年度游戏提名公开](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [【守护解放西·传承季】总预告：守护第七年，我们再次出发！](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [为何芒果能精准抓住 NPD特质这一元素，并找到嘉宾做出多档爆款综艺？现实生活中真有这么多 NPD 吗？](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [小米：相关内容纯属虚构](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [Anthropic纳斯达克IPO获准](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [【BLG冠军麦克风】这一刻，我们是世界冠军！](http://www.movie.hkepx.cn/xiju/3845334.htm)
+- [特朗普启程亚洲行，准备参与 APEC 会议，称「可能与金正恩委员长会面」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [经常吃面条对身体好还是不好](http://www.daogukj.com/8715491)
+- [钢铁侠给贾维斯装上病娇插件，这下玩大了](http://www.daogukj.com/4788107)
+- [EUV光刻机 | "上帝的手术刀"](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [深圳市民给APEC晚宴疯狂安利猪脚饭](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [加拿大总理亮出Plan B有何意味](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [为什么诸葛亮没有因为刘备晚年移宠法正而黑化？](http://www.daogukj.com/3872248)
+- [冬天不穿秋裤会变成老寒腿吗](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [深圳APEC主持人阵容拉满](http://www.daogukj.com/sguhnydl/)
+- [小米18真机曝光](http://www.daogukj.com/6123602)
+- [校招进了一个大公司新成立的部门，只有自己一个人，且直接跟大领导汇报，求经验？](http://www.daogukj.com/7243934)
+- [董明珠称格力已研发机器人十几年](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [雷军社交名场面](http://www.daogukj.com/fgkxwaik/)
+- [西班牙400万人大罢工，抗议房价太高，物价飞涨](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [现在的AI剧制作越来越精良，不久的将来，它是否会完全抢占真人剧市场？](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [小米辟谣汽车召回短信](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [工人8楼高空作业疑被住户割断安全绳](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [虞书欣近1年掉粉118万](http://www.daogukj.com/4800229)
+- [特朗普：我期待访问中国](http://www.daogukj.com/1329201)
+- [《慌啥子嘛》为什么让成年人破防](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [耗时半年手工复刻圆明园海晏堂](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [11月18日上线｜《终极角逐》全新模式 「生存挑战赛」](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [“十几年前聊天的网友应该是妈妈”](https://www.baidu.com/s?wd=%E2%80%9C%E5%8D%81%E5%87%A0%E5%B9%B4%E5%89%8D%E8%81%8A%E5%A4%A9%E7%9A%84%E7%BD%91%E5%8F%8B%E5%BA%94%E8%AF%A5%E6%98%AF%E5%A6%88%E5%A6%88%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [高中生吸未知物质，当场喷红花油成中微子](https://b23.tv/BV16ssM6sE2A)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 241f4702bc342ce38a47 -->
+<!-- content-fingerprint: 47c9c27e4f3f78930e93 -->
