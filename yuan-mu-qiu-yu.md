@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 美股芯片股暗盘大涨，英伟达股价直线拉升，涨幅一度超过 4%，怎样解读？
+# 宣布一下，我也当爸爸了！
 
-> 来源：知乎热榜 · 排名：第 12 位 · 热度：96 万热度 · 分类：问答 · 更新：2026-11-17T04:44:51+08:00
+> 来源：哔哩哔哩热门 · 排名：第 12 位 · 热度：652476 · 分类：搞笑 · 更新：2026-11-17T11:13:46+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“美股芯片股暗盘大涨，英伟达股价直线拉升，涨幅一度超过 4%，怎样解读？”位列第 12 位，公开热度指标为 96 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“宣布一下，我也当爸爸了！”位列第 12 位，公开热度指标为 652476，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：北京时间11月16日凌晨，英伟达暗盘股价直线拉升，涨幅一度超过4%；截至发稿时，英伟达暗盘涨3.56%。其他AI硬件股也集体走高，美光科技、SK海力士、闪迪涨超2%，英特尔、迈威尔科技、康宁、超威半导体等暗盘涨幅均超过1%。美股期货也直线拉升，纳指期货涨0.60%。 美股芯片股暗盘大涨 据券商中国援引英国《金融时报》报道，黄仁勋正考虑重返英伟达担任首席执行官。报道称，随着几位硅谷盟友开始游说让他回归，黄仁勋一直在讨论重返英伟达的可能性。 大宗商品方面，国际油价、黄金白银全线下跌，截至北京时间7:20，美油跌0.27%，最新报88.32美元/桶，布伦特原油
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [《雷索纳斯》×《BLACK SOULSⅡ》「箱庭内外」联动PV](sha-ji-qu-luan.md)
-- [手握微信流量 绿泡泡凶猛战红果](yin-zhen-zhi-ke.md)
-- [吃对碳水的人炎症水平更低还不易胖](ke-zhou-qiu-jian.md)
-- [新007是帕丁森](yan-er-dao-ling.md)
+- [公公婆婆拿钱催生如今抱娃到手软](sha-ji-qu-luan.md)
+- [BLG成员现场观战篮网76人比赛](yin-zhen-zhi-ke.md)
+- [用24小时 看深圳的APEC日常故事](ke-zhou-qiu-jian.md)
+- [10月货物进出口同比增长31.2%](yan-er-dao-ling.md)
 
 ## 站内推荐
 
-- [墨总统交叉双臂抱于胸前有何深意](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [老外被深圳一条马路惊艳到](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [金价跌回一年前 黄金定价逻辑变了吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [宣布一下，我也当爸爸了！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [手机不小心掉床缝听了一小时…](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [腾讯发文称已到生死存亡时刻](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [中国女保镖贴身保护墨西哥总统](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [决赛赛后采访，Viper称希望继续留在BLG，但目前有较多因素待考虑，你觉得Viper会继续留下吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [坐船去大连，差点忘了这是东北](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [小孩走失被成功找到 汪汪队立大功了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [墨西哥总统抵达深圳后做了一个动作](http://www.daogukj.com/3439248)
-- [大肥鱼捅穿AZ3？！带着大肥鱼猛攻三角洲是什么感觉？](http://www.movie.hkepx.cn/xiju/5723356.htm)
-- [中俄美元首即将会晤释放强烈信号](http://www.daogukj.com/6000433)
-- [有一种说法认为中国乒乓球逐渐被世界赶超，有一方面因素是我们对器材的理解和研究落后了，对此你怎么看？](http://www.daogukj.com/7456083)
-- [日本23岁女演员中田乃爱突然去世](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
-- [华晨宇演唱会拉动4亿消费](http://www.movie.hkepx.cn/movie/2238087.htm)
-- [砒霜是怎么成为治疗癌症救命神药的](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
-- [波司登羽绒服被吐槽雷霆审美](http://www.movie.hkepx.cn/xiju/4841059.htm)
-- [女子登机口抛硬币致航班延误](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
-- [APEC安保天团又高又壮又帅](http://www.movie.hkepx.cn/xiju/8193455.htm)
-- [刘德华自曝1年没拍戏](http://www.movie.hkepx.cn/xiju/1574035.htm)
-- [欧国联西班牙主场 2-3 不敌英格兰，43 场不败纪录遭终结，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/0717269.htm)
-- [吃对碳水的人炎症水平更低还不易胖](http://www.daogukj.com/9326450)
-- [何超琼又有新身份](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
-- [虞书欣围裙 国外博主原图](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
-- [华尔街日报必须道歉](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
-- [金价创今年以来新低](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
-- [美国野心滔天？把战火烧到鸭绿江？！那么 你将面对中朝军民合力反击！](http://www.movie.hkepx.cn/xiju/7062133.htm)
-- [“沈阳中考英语听力口语改革”不实](http://www.daogukj.com/amzovuov/)
-- [《慌啥子嘛》为何如此上头](http://www.daogukj.com/2011735)
-- [为什么AI生成一条5秒钟的视频费用很高，而类似漫剧这样的内容却能大批量生产？​？](http://www.movie.hkepx.cn/xiju/2237302.htm)
-- [建议大家不要一直穿同一双鞋](http://www.movie.hkepx.cn/movie/3232131.htm)
-- [黄金左手！一穿四LCK夺冠，从隐身骂名，到LPL国产中单的终极门面【S16冠军纪念】](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
-- [黄仁勋借钱成台湾新型诈骗](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
-- [手机不小心掉床缝听了一小时…](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
-- [金价跌回一年前 黄金定价逻辑变了吗](http://www.movie.hkepx.cn/movie/7476543.htm)
-- [零元面馆提供免费面是慈善还是添乱](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
-- [高迪懒得解释](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
-- [过度付出可能换来恶意](http://www.daogukj.com/7278634)
-- [9月9日](http://www.daogukj.com/kjritwpu/)
-- [106岁父亲和86岁女儿分享长寿秘诀](http://www.movie.hkepx.cn/movie/7092438.htm)
-- [APEC离我们的生活有多远](http://www.movie.hkepx.cn/movie/3129013.htm)
-- [墨总统3次交叉双臂抱于胸前有何深意](http://www.movie.hkepx.cn/xiju/7500457.htm)
-- [泄密的副部级 受贿数额特别巨大](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
-- [以后都给你打九九折](http://www.daogukj.com/pgoxgqgc/)
-- [“成华大道没有「烂奇迹」”](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
-- [中俄美三国元首历史首次面对面会晤](http://www.daogukj.com/euynrtzl/)
-- [你怎么看，92%班主任不愿在岗、年轻教师拒任，为何班主任岗位遇冷？有什么解法吗？](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
-- [怎么看外媒曝 Anthropic IPO拒绝向中国内地和中国香港的投资者分配股份 ？](http://www.movie.hkepx.cn/xiju/8147435.htm)
-- [星铁表面在讲「欢愉」，实际在讲200年前的哲学史【底层代码】](http://www.daogukj.com/soikllri/)
-- [金子涵称被家人骗到了精神病院](http://www.daogukj.com/3156407)
-- [山东一废弃酒店负一层暗藏百米盗洞](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
-- [医生：最好的饮品是白开水](http://www.movie.hkepx.cn/xiju/1247424.htm)
-- [灭霸金融小课堂：应届生小浣熊的疑惑，什么是五险一金](http://www.daogukj.com/urlgwtmt/)
-- [宣布一下，我也当爸爸了！](http://www.movie.hkepx.cn/movie/3044896.htm)
-- [中俄美元首将首次面对面会晤](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
-- [有教师拿出精神类诊断要求卸任班主任](http://www.movie.hkepx.cn/xiju/3522057.htm)
-- [高市早苗穿菲律宾服饰出席晚宴](http://www.daogukj.com/1068378)
-- [《雷索纳斯》×《BLACK SOULSⅡ》「箱庭内外」联动PV](http://www.movie.hkepx.cn/xiju/2722752.htm)
-- [《天下足球》播出 C 罗告别国家队特别节目《孤勇者》，如何评价这期节目？](http://www.movie.hkepx.cn/xiju/6955801.htm)
+- [沙特主导多国联军临阵换帅](http://www.daogukj.com/3439248)
+- [菲洲草原大合集(1-12集)](http://www.movie.hkepx.cn/xiju/5723356.htm)
+- [特朗普宣布即将访华 将与中俄元首会晤](http://www.daogukj.com/6000433)
+- [射击教练被控走私武器获刑 10 年，丈夫称涉案物品都是训练耗材，该判罚依据是什么？](http://www.daogukj.com/7456083)
+- [康辉现身深圳人才公园](http://www.play.hengshemaoyi.cn/kongbu/4699248.htm)
+- [25岁妈妈记录2岁孩子生命最后11天](http://www.movie.hkepx.cn/movie/2238087.htm)
+- [70 城最新房价出炉，一线城市商品住宅销售价格环比总体上涨，二三线城市环比下降，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/9783128.htm)
+- [越共中央总书记苏林抵达深圳](http://www.movie.hkepx.cn/xiju/4841059.htm)
+- [许飞穿了殷世航的增高鞋](http://www.play.hengshemaoyi.cn/kongbu/1925111.htm)
+- [老股民抄底科技一个月亏了20万](http://www.movie.hkepx.cn/xiju/8193455.htm)
+- [《影之刃零》枷笼山中的炸弹客提醒魂遇到它这种怪要远离，但从第一章就遇到它很多次了，为什么在这里提示？](http://www.movie.hkepx.cn/xiju/1574035.htm)
+- [刘欢曾称宁死不背尿袋，拒绝切膀胱，如何看待他的选择？](http://www.movie.hkepx.cn/xiju/0717269.htm)
+- [用24小时 看深圳的APEC日常故事](http://www.daogukj.com/9326450)
+- [特朗普宣布将访华：将与中俄元首会晤](http://www.play.hengshemaoyi.cn/kongbu/7852715.htm)
+- [深圳街头APEC氛围拉满](http://www.play.hengshemaoyi.cn/kongbu/9665411.htm)
+- [南风律师要求虞书欣工作室道歉](http://www.play.hengshemaoyi.cn/xiju/0854720.htm)
+- [BLG重回夺冠地看NBA](http://www.play.hengshemaoyi.cn/xiju/1187408.htm)
+- [手机不小心掉床缝听了一小时…](http://www.movie.hkepx.cn/xiju/7062133.htm)
+- [内娱仙侠剧真的到头了吗](http://www.daogukj.com/amzovuov/)
+- [裁判误判致国乒比赛中断11分钟](http://www.daogukj.com/2011735)
+- [大牙|| 肖8选择题精讲带背（第一套卷），全网讲解最清晰，专治零基础！](http://www.movie.hkepx.cn/xiju/2237302.htm)
+- [10 月消费数据低于预期，人民日报发文「怎样看待当前消费形势」，哪些细节值得关注？](http://www.movie.hkepx.cn/movie/3232131.htm)
+- [别让谣言骗了你](http://www.play.hengshemaoyi.cn/xiju/8908617.htm)
+- [特朗普将成首位到访深圳的在任美总统](http://www.play.hengshemaoyi.cn/kongbu/7126002.htm)
+- [小孩走失被成功找到 汪汪队立大功了](http://www.play.hengshemaoyi.cn/xiju/6613921.htm)
+- [决赛赛后采访，Viper称希望继续留在BLG，但目前有较多因素待考虑，你觉得Viper会继续留下吗？](http://www.movie.hkepx.cn/movie/7476543.htm)
+- [iPhone20Pro四微曲玻璃样品曝光](http://www.play.hengshemaoyi.cn/kongbu/6243416.htm)
+- [厉娜的心软程度](http://www.play.hengshemaoyi.cn/kongbu/3603107.htm)
+- [乌克兰首都基辅响起爆炸声](http://www.daogukj.com/7278634)
+- [GTA6真人版！欢迎来到真正的罪恶都市-迈阿密！！](http://www.daogukj.com/kjritwpu/)
+- [Bin、Viper 等人与 BLG 合约将到期，他们还会续约吗？明年 BLG 阵容可能如何变化？](http://www.movie.hkepx.cn/movie/7092438.htm)
+- [APEC“中国年”](http://www.movie.hkepx.cn/movie/3129013.htm)
+- [APEC工商领导人峰会](http://www.movie.hkepx.cn/xiju/7500457.htm)
+- [玉龙雪山迎来绝美日照金山](http://www.play.hengshemaoyi.cn/xiju/5011129.htm)
+- [张麻子《鹅城Dangerous》](http://www.daogukj.com/pgoxgqgc/)
+- [再见了，老伙计](http://www.play.hengshemaoyi.cn/xiju/9930440.htm)
+- [习近平同外国领导人举行双边会晤](http://www.daogukj.com/euynrtzl/)
+- [剧版《哈利·波特》正片片段首曝光，公开了霍格沃茨入学仪式的盛宴片段，角色和场景符合你的预期吗？](http://www.play.hengshemaoyi.cn/kongbu/8009095.htm)
+- [陈翔六点半：假如上学是修仙](http://www.movie.hkepx.cn/xiju/8147435.htm)
+- [《雷索纳斯》×《BLACK SOULSⅡ》「箱庭内外」联动PV](http://www.daogukj.com/soikllri/)
+- [恢复专注力需要反多巴胺](http://www.daogukj.com/3156407)
+- [Doggo向Junjia道歉](http://www.play.hengshemaoyi.cn/kongbu/4453429.htm)
+- [老外被深圳一条马路惊艳到](http://www.movie.hkepx.cn/xiju/1247424.htm)
+- [女子备孕10年未孕竟因子宫里长骨头](http://www.daogukj.com/urlgwtmt/)
+- [坐船去大连，差点忘了这是东北](http://www.movie.hkepx.cn/movie/3044896.htm)
+- [深圳全城绽放迎接APEC](http://www.play.hengshemaoyi.cn/kongbu/6095420.htm)
+- [五代十国是否被过度妖魔化了，实际上并没有很多互联网博主说的那么黑暗？](http://www.movie.hkepx.cn/xiju/3522057.htm)
+- [周杰伦27年演唱会官宣](http://www.daogukj.com/1068378)
+- [公公婆婆拿钱催生如今抱娃到手软](http://www.movie.hkepx.cn/xiju/2722752.htm)
+- [错了就要认，挨打要立正，对不起，这一次是我骗了你们！](http://www.movie.hkepx.cn/xiju/6955801.htm)
 
 </details>
 
 ## 原始来源
 
-- [美股芯片股暗盘大涨，英伟达股价直线拉升，涨幅一度超过 4%，怎样解读？](https://www.zhihu.com/question/2105582147801018966)
+- [宣布一下，我也当爸爸了！](https://b23.tv/BV11Ksw6VEni)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b0223cfb689d08848adb -->
+<!-- content-fingerprint: 805d6999b9186f96c0d7 -->
