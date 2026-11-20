@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 文吉儿又有新综艺了
+# 周杰伦武汉演唱会580元大屏观演区引热议，此前有人认为是性价比之王，也有人不接受看不到真人，你怎么看？
 
-> 来源：微博热搜 · 排名：第 11 位 · 热度：104248 · 分类：综艺 · 更新：2026-11-20T02:10:19+08:00
+> 来源：知乎热榜 · 排名：第 11 位 · 热度：97 万热度 · 分类：问答 · 更新：2026-11-20T08:38:40+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“文吉儿又有新综艺了”位列第 11 位，公开热度指标为 104248，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“周杰伦武汉演唱会580元大屏观演区引热议，此前有人认为是性价比之王，也有人不接受看不到真人，你怎么看？”位列第 11 位，公开热度指标为 97 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：11月16日，周杰伦武汉演唱会正式官宣！兰亭序 · 武汉 · 嘉年华2027周杰伦世界巡回演唱会将于2027年4月9日、10日、11日，在武汉体育中心主体育场连唱三天！ ​票务平台已上线预约渠道，票价引发不少网友讨论，最便宜的看台580元票档，备注写着“大屏观演区，仅支持看大屏”。此前周杰伦演唱会其他场次就已经出现过该票栏，有人认为花580元进场感受万人大合唱氛围，正对大屏看得很清楚，是性价比之王，也有人认为连舞台和真人都看不见，本质是花钱看直播，买进场资格，你会花580元买只能看大屏幕的演唱会门票吗？（长江云新闻、经视直播）
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `综艺`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [官方辟谣要求基金公司上报AI敞口](dong-shi-xiao-pin.md)
-- [安徽霍邱拆墙让路老人的女儿否认因买新车拆墙，到底什么情况？后续调查重点是什么？](han-dan-xue-bu.md)
-- [恶役千金题材作品天花板！全集93分钟一次看过瘾，《恶役千金的真面目》漫画剧情深度解析](qi-ren-you-tian.md)
-- [王毅机场送别特朗普 二人长时间交谈](chao-san-mu-si.md)
+- [GTA背后的千亿豪赌](dong-shi-xiao-pin.md)
+- [伊能静一眼看破所有嘉宾](han-dan-xue-bu.md)
+- [特朗普结束APEC之行](qi-ren-you-tian.md)
+- [特朗普回应马斯克与MAGA切割](chao-san-mu-si.md)
 
 ## 站内推荐
 
 - [中俄美元首会晤](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [泰国总理携夫人在深圳南山吃宵夜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [普京在会晤现场说了什么](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [伊能静还是不负众望](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [白小纯听见喊3纯的表情](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [特朗普离开深圳前与王毅面谈](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [现代足球的水平是否比 20 世纪或者 21 世纪初的足球水平高？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [S16 总决赛 LPL 夺冠，TI15 CNDOTA 全部止步小组赛，未来他们的成绩差距会越来越大吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [CS2海克斯大乱go来了！肺泡都给我笑炸了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [特朗普和普京会晤时开了个玩笑](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
-- [睡前有5种表现要警惕脑梗](http://www.movie.hkepx.cn/xiju/8737317.htm)
-- [男朋友一被领导说就离职，频繁裸辞后长期空窗，是我太计较吗？](http://www.movie.hkepx.cn/xiju/6779075.htm)
-- [王毅机场送别特朗普 二人长时间交谈](http://www.movie.hkepx.cn/movie/9298248.htm)
-- [最败家的一次](http://www.movie.hkepx.cn/movie/7613286.htm)
-- [深圳市民遇普京车队心跳猛加速](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
-- [白小纯听见喊3纯的表情](http://www.daogukj.com/4734416)
-- [腾讯控股公布微信 QQ 月活差 9 亿，为什么腾讯坚持留着 QQ 不合并？QQ 还有哪些市场？](http://www.movie.hkepx.cn/movie/4575914.htm)
-- [如何看待郎平表示，不认同「竞技体育，菜是原罪」这句话，并称「努力一辈子没赢冠军，那也不能算失败者」？](http://www.daogukj.com/eujljnlh/)
-- [国台办回应「建议 2032 年两岸统一货币」，称只要利于两岸关系和平发展都欢迎，统一货币会有哪些影响？](http://www.daogukj.com/3484796)
-- [普京在会晤现场说了什么](http://www.daogukj.com/6840289)
-- [『无中生有』 愿笑声不息，欢愉不死！](http://www.daogukj.com/8544186)
-- [臣妾要告发熹贵妃不肯私通](http://www.daogukj.com/4262842)
-- [泰国总理携夫人在深圳南山吃宵夜](http://www.movie.hkepx.cn/movie/0136106.htm)
+- [李依晓展示戏曲和影视剧不同眼神戏](http://www.play.hengshemaoyi.cn/kongbu/9969936.htm)
+- [全公司只有他18W，100W女老板却天天留他加班合集。【AI月月抢位赛】](http://www.movie.hkepx.cn/xiju/8737317.htm)
+- [有观众举报后会友期](http://www.movie.hkepx.cn/xiju/6779075.htm)
+- [特朗普回应马斯克与MAGA切割](http://www.movie.hkepx.cn/movie/9298248.htm)
+- [⚡霸 爸 去 哪 儿⚡](http://www.movie.hkepx.cn/movie/7613286.htm)
+- [如何评价27.99万起售的方程豹钛9，方盒子大六座SUV可以是家庭的唯一用车吗？](http://www.play.hengshemaoyi.cn/xiju/1404213.htm)
+- [CS2海克斯大乱go来了！肺泡都给我笑炸了](http://www.daogukj.com/4734416)
+- [腾讯披露WorkBuddy近七天年化收入超5亿美元，有用户月付4万元买服务，数据背后有多大「含金量」？](http://www.movie.hkepx.cn/movie/4575914.htm)
+- [宇宙其实根本就没有白天](http://www.daogukj.com/eujljnlh/)
+- [普京：感谢中方](http://www.daogukj.com/3484796)
+- [现代足球的水平是否比 20 世纪或者 21 世纪初的足球水平高？](http://www.daogukj.com/6840289)
+- [起床后这4件事易引发心梗](http://www.daogukj.com/8544186)
+- [中方回应高市早苗礼宾安排](http://www.daogukj.com/4262842)
+- [特朗普离开深圳前与王毅面谈](http://www.movie.hkepx.cn/movie/0136106.htm)
 - [一图读懂深圳倡议](http://www.play.hengshemaoyi.cn/kongbu/0604918.htm)
-- [伊能静还是不负众望](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
-- [官方辟谣要求基金公司上报AI敞口](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
-- [葡媒：C罗的致敬仪式像葬礼](http://www.movie.hkepx.cn/movie/4417788.htm)
-- [王毅送别美俄元首后举行记者会](http://www.movie.hkepx.cn/xiju/5578839.htm)
-- [多所高校要求师生论文发表前备案否则不算科研成果，如果解读这一高校新规？](http://www.movie.hkepx.cn/movie/3741651.htm)
-- [普京：感谢中方](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
-- [特朗普登机前又做标志性动作](http://www.movie.hkepx.cn/xiju/3515655.htm)
-- [【侠盗猎车手6】4K 最高画质 全网首发 全任务 全剧情流程通关攻略 开放世界冒险游戏 GTA6 - Grand Theft Auto VI](http://www.movie.hkepx.cn/xiju/4117842.htm)
-- [Mili - City Blue（都市之蓝）](http://www.daogukj.com/4133568)
-- [全公司只有他18W，100W女老板却天天留他加班合集。【AI月月抢位赛】](http://www.movie.hkepx.cn/movie/9472579.htm)
-- [他狂任他狂](http://www.daogukj.com/0480016)
-- [老芒果诡计多端](http://www.daogukj.com/4561506)
-- [一根 1m 长的玻璃棒，摔到地上断成 3 段，最短一段的平均值是多少？](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
-- [PVZ夜晚BGM，为什么越听越紧张？](http://www.movie.hkepx.cn/xiju/2964390.htm)
-- [后会友期全员都想吃文王的瓜](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
-- [王毅到机场送别特朗普](http://www.daogukj.com/jbdvxipc/)
-- [CS2海克斯大乱go来了！肺泡都给我笑炸了](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
-- [牛肉为什么突然贵了](http://www.daogukj.com/awgjjjvg/)
-- [优先招35岁以上员工餐厅停业](http://www.movie.hkepx.cn/movie/9877229.htm)
-- [【IGN】《黄金矿工：派对狂欢》22分钟实机演示](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
-- [Thank you, Choi 'Doran' Hyeon-Jun](http://www.daogukj.com/ditzbwwz/)
-- [APEC宴会桌布置设计感拉满](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
-- [纯黑《GTA6》丧心病狂攻略解说 第一期](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
-- [20多天婴儿被喂白开水中毒肾损伤](http://www.movie.hkepx.cn/movie/9996148.htm)
-- [OpenAI 宣布为全球多达 20 万科学家免费提供前沿模型访问，如何理解这一动作，可能带来哪些影响？](http://www.movie.hkepx.cn/movie/4964698.htm)
-- [如何看待网传小米大模型业务MiMo或独立融资？](http://www.daogukj.com/aqmuomii/)
-- [李在明发文感谢中国热情接待](http://www.daogukj.com/phjdnbun/)
-- [普京笑着透露三方会晤细节](http://www.movie.hkepx.cn/movie/2280842.htm)
-- [加州翻红和佛州翻蓝哪个更可怕？](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
-- [墨西哥总统弹奏中国名曲《茉莉花》](http://www.movie.hkepx.cn/xiju/2949858.htm)
-- [青稚回应王栎鑫](http://www.movie.hkepx.cn/xiju/5109166.htm)
-- [马斯克曾坐高铁到西安看兵马俑](http://www.movie.hkepx.cn/movie/3866478.htm)
-- [普京用中文对与会者说谢谢](http://www.movie.hkepx.cn/movie/0960102.htm)
-- [李在明发文感谢中国](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
-- [安徽霍邱拆墙让路老人的女儿否认因买新车拆墙，到底什么情况？后续调查重点是什么？](http://www.movie.hkepx.cn/movie/7949040.htm)
+- [S16 总决赛 LPL 夺冠，TI15 CNDOTA 全部止步小组赛，未来他们的成绩差距会越来越大吗？](http://www.play.hengshemaoyi.cn/xiju/2498225.htm)
+- [GTA背后的千亿豪赌](http://www.play.hengshemaoyi.cn/xiju/7663158.htm)
+- [韩国满分学霸疑作弊后身亡](http://www.movie.hkepx.cn/movie/4417788.htm)
+- [特朗普又没拉窗帘](http://www.movie.hkepx.cn/xiju/5578839.htm)
+- [老芒果诡计多端](http://www.movie.hkepx.cn/movie/3741651.htm)
+- [中国支持成立新联盟](http://www.play.hengshemaoyi.cn/xiju/3508448.htm)
+- [韩国总统夫人被舞狮英歌舞表演圈粉](http://www.movie.hkepx.cn/xiju/3515655.htm)
+- [韩国满分考生李镇宇生前最后画面](http://www.movie.hkepx.cn/xiju/4117842.htm)
+- [宝珠](http://www.daogukj.com/4133568)
+- [两京十五日 轻喜剧](http://www.movie.hkepx.cn/movie/9472579.htm)
+- [李勒优房子是爷爷奶奶盖的](http://www.daogukj.com/0480016)
+- [安徽霍邱拆墙让路老人的女儿否认因买新车拆墙，到底什么情况？后续调查重点是什么？](http://www.daogukj.com/4561506)
+- [特朗普：我们创造了历史](http://www.play.hengshemaoyi.cn/kongbu/2934364.htm)
+- [牛肉为什么突然贵了](http://www.movie.hkepx.cn/xiju/2964390.htm)
+- [他狂任他狂](http://www.play.hengshemaoyi.cn/xiju/4784763.htm)
+- [王毅给深圳办会打100分](http://www.daogukj.com/jbdvxipc/)
+- [北大时期张泉灵美成女儿国国王了](http://www.play.hengshemaoyi.cn/kongbu/6839778.htm)
+- [高市早苗应该在深圳烈士陵园鞠躬谢罪](http://www.daogukj.com/awgjjjvg/)
+- [汉东内部视频通话被曝光?](http://www.movie.hkepx.cn/movie/9877229.htm)
+- [年轻人还要攒小金豆吗](http://www.play.hengshemaoyi.cn/kongbu/6558543.htm)
+- [金价逼近7字头郑州金店忙起来了](http://www.daogukj.com/ditzbwwz/)
+- [以防你不知道GTA6的狗子会开游艇来救你！](http://www.play.hengshemaoyi.cn/kongbu/5120256.htm)
+- [马斯克在空军一号看中美元首互动](http://www.play.hengshemaoyi.cn/kongbu/5161846.htm)
+- [第一次当班主任，不烧心.](http://www.movie.hkepx.cn/movie/9996148.htm)
+- [AMD](http://www.movie.hkepx.cn/movie/4964698.htm)
+- [“监管要求上报基金AI敞口”不实](http://www.daogukj.com/aqmuomii/)
+- [如何评价一见 auto 的文章《理想宁德，后会友期》？宁德向理想一天发三封催款邮件，其中出了什么问题？](http://www.daogukj.com/phjdnbun/)
+- [美股再度大跌](http://www.movie.hkepx.cn/movie/2280842.htm)
+- [马天宇自曝幼时因打疫苗遭毒打](http://www.play.hengshemaoyi.cn/kongbu/6265154.htm)
+- [李在明发文感谢中国热情接待](http://www.movie.hkepx.cn/xiju/2949858.htm)
+- [离婚前男方将游戏账号以 88 万卖给朋友，女方要求分割，法院判决 2:1 比例分，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/5109166.htm)
+- [东京万人集会抗议高市政权政策](http://www.movie.hkepx.cn/movie/3866478.htm)
+- [APEC会议围巾融合四大非遗](http://www.movie.hkepx.cn/movie/0960102.htm)
+- [感觉身边只剩酒肉朋友，聊的不是孩子上学就是社会新闻，再往深就没话了，有时候不明白交情怎么就停在这儿了？](http://www.play.hengshemaoyi.cn/xiju/7796516.htm)
+- [伊能静一眼看破所有嘉宾](http://www.movie.hkepx.cn/movie/7949040.htm)
 
 </details>
 
 ## 原始来源
 
-- [文吉儿又有新综艺了](https://s.weibo.com/weibo?q=%E6%96%87%E5%90%89%E5%84%BF%E5%8F%88%E6%9C%89%E6%96%B0%E7%BB%BC%E8%89%BA%E4%BA%86)
+- [周杰伦武汉演唱会580元大屏观演区引热议，此前有人认为是性价比之王，也有人不接受看不到真人，你怎么看？](https://www.zhihu.com/question/2105728003292636930)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e965150d44d9d71c0237 -->
+<!-- content-fingerprint: f033c31b29ffffe1e87b -->
