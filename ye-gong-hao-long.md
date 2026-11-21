@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# Claude声称证明黎曼猜想，我准备女装cos元辅了
+# 华尔街上演“黑色星期五”
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：238685 · 分类：日常 · 更新：2026-11-21T06:47:41+08:00
+> 来源：百度热搜 · 排名：第 9 位 · 热度：6950657 · 更新：2026-11-21T11:39:28+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“Claude声称证明黎曼猜想，我准备女装cos元辅了”位列第 9 位，公开热度指标为 238685，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“华尔街上演“黑色星期五””位列第 9 位，公开热度指标为 6950657。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：当地时间11月20日，华尔街上演“黑色星期五”，美股遭猛烈抛售，标普500与道指进入技术性回调，纳指年内涨幅全部回吐，AI热门新股Anthropic上市后领跌。随着AI板块持续承压，多位华尔街投资大佬接连发声。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [购车一年多次维修 车主成功退车](lan-yu-chong-shu.md)
-- [余承东称现在L2开车不能睡觉](zi-xiang-mao-dun.md)
-- [中国相机爆火海外的原因是什么](bei-gong-she-ying.md)
-- [如果 GTA6明年上 PC，什么配置可以发挥最完全体的画面效果？](jing-gong-zhi-niao.md)
+- [哈登51分](lan-yu-chong-shu.md)
+- [金价为何急跌](zi-xiang-mao-dun.md)
+- [BLG夺冠，能唤回多少国内玩家的热情重回《英雄联盟》？](bei-gong-she-ying.md)
+- [邪修英语！](jing-gong-zhi-niao.md)
 
 ## 站内推荐
 
-- [【独家】《罗小黑战记》第44话 冬冬拯救行动方案五【10月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [长辈泡的“药酒”，里面到底有什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [李亚鹏回应王菲窦靖童李嫣合唱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [7岁英歌舞女孩亮相APEC迎宾表演](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [飞天茅台溢价缩至70元 黄牛退场](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [你的GTA我的GTA好像不一样！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [AI短剧《丑狐》爆火](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [一家人遛弯误入剧组还上了央视](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [AI疑证明黎曼猜想 数学家高兴不起来](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [黎曼猜想真被AI证明了吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [U17世界杯：国足0比5惨败西班牙](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
-- [儿子将满18岁消失17年的父亲来求赡养](http://www.daogukj.com/biwoqqwj/)
-- [7岁英歌舞女孩亮相APEC迎宾表演](http://www.movie.hkepx.cn/xiju/2248691.htm)
-- [18岁女孩打减肥针暴瘦40斤被送急诊](http://www.daogukj.com/0541941)
-- [江南大学回应 「大学英语改为选修」，有通过四六级等免修条件，这一改革会成为趋势吗？](http://www.movie.hkepx.cn/xiju/2330971.htm)
-- [AI证明黎曼猜想传闻](http://www.movie.hkepx.cn/movie/1952908.htm)
+- [一款1979年的耳机为何被抢空](http://www.play.hengshemaoyi.cn/kongbu/2517487.htm)
+- [墨西哥总统感谢中国女保镖](http://www.daogukj.com/biwoqqwj/)
+- [AI疑证明黎曼猜想 数学家高兴不起来](http://www.movie.hkepx.cn/xiju/2248691.htm)
+- [这段爆破戏疑似AI做的](http://www.daogukj.com/0541941)
+- [如果 GTA6明年上 PC，什么配置可以发挥最完全体的画面效果？](http://www.movie.hkepx.cn/xiju/2330971.htm)
+- [深圳华丽转型生动诠释APEC理念](http://www.movie.hkepx.cn/movie/1952908.htm)
 - [数学家称与 AI 合作证明了黎曼猜想，证明稿超 25 万页，黎曼猜想真的被解决了吗？](http://www.movie.hkepx.cn/xiju/7386608.htm)
-- [特朗普刚返美就发重大预告](http://www.daogukj.com/cwfgitul/)
-- [科技新国货成“深圳特产”](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
-- [晋妈给李勒优铺的路是接手面馆](http://www.daogukj.com/3149137)
-- [后会友期黄焖鸡事件原声视频](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
-- [中国最大饺子店要上市了](http://www.movie.hkepx.cn/movie/1545092.htm)
-- [特朗普称行程太满没顾上见金正恩](http://www.movie.hkepx.cn/xiju/3608340.htm)
-- [U17世界杯](http://www.daogukj.com/7262388)
-- [驴友穿越秦岭遇难，家属起诉救援队，法院判定救援队、环保部门无过错，组织者赔偿18万余元，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
-- [本届中期选举，共和党失败的主要原因是什么？保守主义的未来将会如何发展？](http://www.daogukj.com/8314202)
-- [张萌回应青稚打听式安慰](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
-- [孙怡看着郭京飞就哭](http://www.movie.hkepx.cn/xiju/5194753.htm)
-- [特朗普从中国返美途中发帖](http://www.movie.hkepx.cn/movie/0714674.htm)
-- [赖岳谦：汉奸走狗才盲目追捧日本人](http://www.movie.hkepx.cn/movie/7940067.htm)
-- [APEC盛会效应拉满](http://www.movie.hkepx.cn/movie/6237029.htm)
-- [股民集体抛售科技股](http://www.movie.hkepx.cn/movie/1586252.htm)
-- [女子进金店要买89万黄金 店员报警](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
-- [李亚鹏回应王菲窦靖童李嫣合唱](http://www.daogukj.com/0480738)
-- [满分10分 特朗普为中俄美会晤打12分](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
-- [李子柒当选四川省文联副主席](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
-- [U17 世界杯小组赛，西班牙 U17 vs 中国 U17 男足，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/6914548.htm)
-- [如果 GTA6明年上 PC，什么配置可以发挥最完全体的画面效果？](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
-- [林更新你怎么什么都敢演](http://www.daogukj.com/8595353)
-- [王子璇问马天宇你不会爱上我](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
-- [如何看待马斯克离开深圳，突访上海？](http://www.daogukj.com/gozdpjud/)
-- [王毅介绍中俄美元首会晤情况，称这是一次「和平峰会」，是载入史册的标志性事件，传递出了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
-- [一家人下楼散步误入剧组](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
-- [这谁能播的过他？看大司马玩GTA6简直能笑死，弹幕：太有节目了](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
-- [手绘415张！还原百变小樱《扉をあけて 》](http://www.movie.hkepx.cn/movie/4558388.htm)
-- [美团、京东、阿里集体盯上了厨房](http://www.movie.hkepx.cn/movie/4205366.htm)
-- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
-- [长辈泡的“药酒”，里面到底有什么？](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
-- [金价](http://www.daogukj.com/8939549)
-- [中俄美三方的和平宣言发布后，将会为俄乌局势带来哪些变量？](http://www.daogukj.com/ixxuunfh/)
-- [“26摄氏度穿衣法则”靠谱吗](http://www.daogukj.com/2398854)
-- [购车一年多次维修 车主成功退车](http://www.movie.hkepx.cn/movie/0490118.htm)
-- [羽毛球世界冠军周昊东兴奋剂检测阳性](http://www.daogukj.com/utabxjrg/)
-- [如何看待2035年全球最大宗教将发生变化？](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
-- [为什么我感觉自己做饭并没有比点外卖省钱？](http://www.daogukj.com/uqvpybnb/)
-- [中国相机爆火海外的原因是什么](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
-- [杨超越一开口就是满分作文](http://www.movie.hkepx.cn/xiju/5297963.htm)
-- [胖东来搬离后原址所开新商场几乎倒闭](http://www.daogukj.com/4768730)
+- [孙芮属于军婚](http://www.daogukj.com/cwfgitul/)
+- [世界首个、蝉联榜首！多领域捷报频传](http://www.play.hengshemaoyi.cn/xiju/1173420.htm)
+- [上海人安慰人北京人瞎过吧](http://www.daogukj.com/3149137)
+- [胖东来搬离后原址所开新商场几乎倒闭](http://www.play.hengshemaoyi.cn/kongbu/7075798.htm)
+- [伊能静发长文谈后会友期](http://www.movie.hkepx.cn/movie/1545092.htm)
+- [高市早苗对台湾问题躲闪作答](http://www.movie.hkepx.cn/xiju/3608340.htm)
+- [BLG的AD有可能是Diable](http://www.daogukj.com/7262388)
+- [超强厄尔尼诺已经形成，已成为有记录以来最强，这意味着什么？产生的气候影响大吗？](http://www.play.hengshemaoyi.cn/xiju/2605604.htm)
+- [为什么肠道会精准排出菌群异常的大便（腹泻）却又能把正常菌群的大便留在肠道内？](http://www.daogukj.com/8314202)
+- [全球市场遭遇黑色星期五](http://www.play.hengshemaoyi.cn/kongbu/6971314.htm)
+- [日网民吐槽高市早苗APEC之行吐舌头](http://www.movie.hkepx.cn/xiju/5194753.htm)
+- [特朗普称不支持“台独”引岛内震动](http://www.movie.hkepx.cn/movie/0714674.htm)
+- [特朗普：若当年我在任俄乌战争能避免](http://www.movie.hkepx.cn/movie/7940067.htm)
+- [五中全会决定这些话要牢记](http://www.movie.hkepx.cn/movie/6237029.htm)
+- [丝芭下孩子了](http://www.movie.hkepx.cn/movie/1586252.htm)
+- [主人去世20天小猫每天守墓旁](http://www.play.hengshemaoyi.cn/xiju/3658403.htm)
+- [一家人遛弯误入剧组还上了央视](http://www.daogukj.com/0480738)
+- [魏德尔：大国谈判桌上已没有欧洲](http://www.play.hengshemaoyi.cn/xiju/4640774.htm)
+- [特朗普：中俄美元首会晤史无前例](http://www.play.hengshemaoyi.cn/kongbu/1281446.htm)
+- [司老凤联盟第111集:老牧师演唱会5:20am（完整版）](http://www.movie.hkepx.cn/movie/6914548.htm)
+- [邪修英语！](http://www.play.hengshemaoyi.cn/xiju/4943746.htm)
+- [孙芮结婚怀孕](http://www.daogukj.com/8595353)
+- [特朗普称不允许美企海外建数据中心](http://www.play.hengshemaoyi.cn/kongbu/9174561.htm)
+- [不是退网，是落网了!海南走私水路不通!](http://www.daogukj.com/gozdpjud/)
+- [为什么欧美使用壁炉的普遍性这么高，而中国却没有？](http://www.play.hengshemaoyi.cn/xiju/7165835.htm)
+- [英伟达七周累计暴跌46%](http://www.play.hengshemaoyi.cn/kongbu/8394272.htm)
+- [【抢先版】嫩韭菜，毒水仙！光鲜底下藏刀尖](http://www.play.hengshemaoyi.cn/xiju/1868750.htm)
+- [学了五分钟建模做出来的绯英技能动画](http://www.movie.hkepx.cn/movie/4558388.htm)
+- [麻阳县委书记：我很少加班和晚上开会](http://www.movie.hkepx.cn/movie/4205366.htm)
+- [深圳人又开始原装出街了](http://www.play.hengshemaoyi.cn/xiju/5594955.htm)
+- [AI短剧《丑狐》爆火](http://www.play.hengshemaoyi.cn/kongbu/4072641.htm)
+- [韩国高考中国史题正确率不足一成](http://www.daogukj.com/8939549)
+- [为什么我感觉自己做饭并没有比点外卖省钱？](http://www.daogukj.com/ixxuunfh/)
+- [长江里的罕见“吃播”被拍到](http://www.daogukj.com/2398854)
+- [哈登51分](http://www.movie.hkepx.cn/movie/0490118.htm)
+- [孙芮自曝已结婚怀孕](http://www.daogukj.com/utabxjrg/)
+- [90分钟中俄美会晤，摆了哪些事上桌？王骁APEC观察](http://www.play.hengshemaoyi.cn/kongbu/6663995.htm)
+- [数学家宣称 Claude 证明黎曼猜想，为啥Anthropic股价仍在暴跌？市场不买账，核心原因是啥？](http://www.daogukj.com/uqvpybnb/)
+- [BLG夺冠，能唤回多少国内玩家的热情重回《英雄联盟》？](http://www.play.hengshemaoyi.cn/kongbu/1026567.htm)
+- [炎亚纶铁了心要上后会友期](http://www.movie.hkepx.cn/xiju/5297963.htm)
+- [美股为何暴跌](http://www.daogukj.com/4768730)
 - [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/5104733.htm)
-- [发达国家中，日本人出国旅游意愿为何那么低？](http://www.daogukj.com/6807039)
+- [如何评价成毅主演的电视剧《两京十五日》？](http://www.daogukj.com/6807039)
 
 </details>
 
 ## 原始来源
 
-- [Claude声称证明黎曼猜想，我准备女装cos元辅了](https://b23.tv/BV1BeyszwEty)
+- [华尔街上演“黑色星期五”](https://www.baidu.com/s?wd=%E5%8D%8E%E5%B0%94%E8%A1%97%E4%B8%8A%E6%BC%94%E2%80%9C%E9%BB%91%E8%89%B2%E6%98%9F%E6%9C%9F%E4%BA%94%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e1b0ebcfcd5d5eed574f -->
+<!-- content-fingerprint: 46e011faa52d62f2266e -->
