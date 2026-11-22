@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 邓煜谈AI证明黎曼猜想：25万页不可读
+# 中国女富商在菲律宾遭8名警察绑架
 
-> 来源：百度热搜 · 排名：第 12 位 · 热度：6667842 · 更新：2026-11-22T11:27:50+08:00
+> 来源：百度热搜 · 排名：第 12 位 · 热度：6666481 · 更新：2026-11-22T19:55:36+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“邓煜谈AI证明黎曼猜想：25万页不可读”位列第 12 位，公开热度指标为 6667842。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中国女富商在菲律宾遭8名警察绑架”位列第 12 位，公开热度指标为 6666481。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：Anthropic数学家阿尔珀格称借助Claude证出广义黎曼猜想，公开1700万行Lean代码，无可读论文，论证多达25万页。菲尔兹奖得主邓煜表示，“页数多少倒无所谓，重点是可读性，25万页是不可能可读的。”邓煜补充道，在可读版本出现以前，不会对该事件做任何评论。
+来源公开摘要显示：11月22日报道，菲律宾警方披露，中国女富商在马尼拉遭绑架案的8名嫌犯均为该国警察，总长已下令启动免职程序。此前，2025年2月17日，30岁中国籍女富商王超群及员工在马尼拉遭绑架，支付近188万元人民币赎金后获释。主谋少校桑托斯因另案于11月16日落网，目前仍有5名涉案警察在逃。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [日媒逐帧解析特朗普无视高市](ke-zhou-qiu-jian.md)
-- [波兰称两枚俄导弹击中波领土](yan-er-dao-ling.md)
-- [如何看待“老婆嫌老公熬夜打游戏，发“追杀令”求助网友狙击老公ID，大哥“你们找不到我”被各路玩家围剿？](nan-yuan-bei-zhe.md)
-- [国外抢车位游戏撞的一塌糊涂，我们决定让智能驾驶也来试试！](mai-du-huan-zhu.md)
+- [斗破苍穹](ke-zhou-qiu-jian.md)
+- [7.2万拍下挡泥板票 女子不停夸张雪](yan-er-dao-ling.md)
+- [特朗普称将与伊朗达成一项永久性协议，为何会在这一时间放出这一消息？永久性协议内可能包含哪些内容？](nan-yuan-bei-zhe.md)
+- [《无限暖暖》3.0版本套装PV | 若见沐光之窗&于此重见繁星](mai-du-huan-zhu.md)
 
 ## 站内推荐
 
-- [《猫富贵 狗不让》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [小雪养生 做好这几件事很重要](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [多让孩子啃苹果不能替代正畸治疗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [女子告男友强奸后复合遇害](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [记者直击克里米亚大桥连续遭袭](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [真相，假是假了点，但看了不烧心。](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [《我救不死你》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [“神仙岗位”涌现 广东多地辟谣](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [英皇到底亏了多少陈伟霆要穿成这样](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [使用手机办公为何怕群众投诉](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何评价网飞韩剧《末路兼职》？](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
-- [这居然是王子璇](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
-- [特朗普：将与伊朗达成一项永久性协议](http://www.daogukj.com/tqrulkrm/)
-- [如何看待“老婆嫌老公熬夜打游戏，发“追杀令”求助网友狙击老公ID，大哥“你们找不到我”被各路玩家围剿？](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
-- [U17 国足 0 比 5 不敌西班牙，U17 国足控球率仅 25%，该如何补足高强度对抗下的能力短板？](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
-- [金价连跌想买想卖的都急了](http://www.daogukj.com/2903535)
-- [特朗普晒和普京深圳会晤照片](http://www.movie.hkepx.cn/movie/8396411.htm)
-- [女子多次留言强奸罪服刑男友想你了](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
-- [日媒逐帧解析特朗普无视高市](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
-- [李子柒当选四川文联副主席，如何理解她的这一职务，可能带来哪些影响？](http://www.movie.hkepx.cn/movie/7093450.htm)
-- [余文乐自曝躯体化严重到不能开车](http://www.daogukj.com/2824694)
-- [韩德君遭技术代表马立军呵斥](http://www.daogukj.com/yjkpaybt/)
-- [女博士卧底6个月当主播仍有心理阴影](http://www.daogukj.com/9138421)
-- [【独家】《凡人修仙传之慕兰之战》第25集【总第201集】](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
-- [南京警方8300余名警力护航南马](http://www.movie.hkepx.cn/xiju/5067207.htm)
-- [20多天婴儿被喂白开水中毒肾损伤，新生儿为何不能像成年人一样正常喝白开水？该如何科学喂养？](http://www.daogukj.com/7199630)
-- [怎么看陶哲轩博客下针对 AI 完成黎曼猜想评论：数学变成 F1 赛车，不进 AI 车队都看不到后尾灯？](http://www.movie.hkepx.cn/movie/6135897.htm)
-- [挑战用第三人称逛商场](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
-- [金价](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
-- [终于知道明星走路和普通人的区别了](http://www.daogukj.com/2412867)
-- [Lean与 Mathlib 社区联合声明，正式确认 Alpöge 对黎曼猜想的证明正确，这意味着什么？](http://www.daogukj.com/0344516)
-- [在驻马店吃河南版的“中固大饭店”菜量炸裂到4个人吃不掉一道菜！太吓人了！#河南美食#驻马店美食](http://www.movie.hkepx.cn/movie/0187296.htm)
-- [从琼崖烽火到开放自贸港](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
-- [为啥我军没有名满天下的特种部队？比如海豹部队什么的？](http://www.daogukj.com/qfjukyqn/)
-- [菲尔兹奖得主邓煜称「人类不能放弃自主思考给 AI 当狗」，如何看待这一观点？](http://www.daogukj.com/uumjcsie/)
-- [楚钧：和Knight线下solo一局！](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
-- [山东威海出现“海浩”奇观](http://www.movie.hkepx.cn/movie/7623929.htm)
-- [【一百万字·01】我只剩300个字了，说一个少一个｜文字动画《嗯》](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
-- [MIT 团队发布对黎曼猜想证明的验证，超 17 万模块全部编译无错，这意味着黎曼猜想证明多大概率为真？](http://www.movie.hkepx.cn/movie/8313935.htm)
-- [25万页AI黎曼猜想证明难核验](http://www.daogukj.com/fqjpdyus/)
-- [【纪录片】守护解放西·传承季 第1集 守护不止解放西](http://www.daogukj.com/5983723)
-- [特朗普回应普京是朋友](http://www.movie.hkepx.cn/xiju/4176767.htm)
-- [重大工程有序推进 助力经济民生发展](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
-- [顺丰速运涉嫌存在违规问题，被暂停参加全军采购活动，具体是怎么回事？](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
-- [张雪骑机车没上赛道就摔车](http://www.movie.hkepx.cn/movie/8664223.htm)
-- [十种不舒服是抑郁症躯体化表现](http://www.movie.hkepx.cn/movie/1942982.htm)
-- [“不知道她没满14岁”不能成挡箭牌](http://www.movie.hkepx.cn/movie/5767803.htm)
-- [贾国龙新创品牌「天边」一年内从砂锅焖面转向冰煮鲜羊，频繁调整经营方向背后有哪些考量？他能翻身吗？](http://www.movie.hkepx.cn/xiju/8972635.htm)
-- [为什么现在小学语文课汉语拼音o都教读“哦”？](http://www.movie.hkepx.cn/xiju/5657270.htm)
-- [金饰克价年内大跌超650元](http://www.movie.hkepx.cn/movie/4036246.htm)
-- [【IGN独家】《鸣潮：永明的烬焰》实机演示](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
-- [波兰称两枚俄导弹击中波领土](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
-- [《明日方舟：终末地》干员影像-「群像：信号预联」](http://www.movie.hkepx.cn/xiju/0860317.htm)
-- [如何看待韩国高考中国史题正确率不足一成？这道题难度究竟如何？](http://www.daogukj.com/lyyagrpj/)
-- [侠盗猎车手6 第一集，GTA 6 Part 1](http://www.daogukj.com/1732815)
-- [为什么云南人那么迷恋蘑菇?](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
-- [机构认证：Claude证明黎曼猜想无误](http://www.daogukj.com/sokjghqt/)
-- [以防你不知道GTA6路人是如何暴富的💰](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
-- [【星穹铁道HoYoFair】「红丝绒星期五」正式预告片 | 史上最棒的预告片](http://www.daogukj.com/fcgqpwva/)
-- [《蓝色星原：旅谣》公测动画短片](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
+- [余文乐自曝躯体化严重到不能开车](http://www.play.hengshemaoyi.cn/xiju/4808270.htm)
+- [韩国网友感谢中国](http://www.play.hengshemaoyi.cn/kongbu/9262603.htm)
+- [小时候眼中的罚抄神器be like:](http://www.daogukj.com/tqrulkrm/)
+- [特朗普称将与伊朗达成一项永久性协议，为何会在这一时间放出这一消息？永久性协议内可能包含哪些内容？](http://www.play.hengshemaoyi.cn/xiju/2604428.htm)
+- [陈数高清怼脸直拍下状态绝了](http://www.play.hengshemaoyi.cn/xiju/4999910.htm)
+- [创业板拟引入做市商制度](http://www.daogukj.com/2903535)
+- [山东人 四个字解决所有问题](http://www.movie.hkepx.cn/movie/8396411.htm)
+- [权志龙MAMA破棺而出](http://www.play.hengshemaoyi.cn/kongbu/5937037.htm)
+- [斗破苍穹](http://www.play.hengshemaoyi.cn/kongbu/4066226.htm)
+- [BLG 夺冠能挽救 LPL 吗？能复刻前两个「电竞元年」吗？](http://www.movie.hkepx.cn/movie/7093450.htm)
+- [三亚凤凰机场等被暂停全军采购资格](http://www.daogukj.com/2824694)
+- [胖东来搬离后原址所开新商场几乎倒闭，一商场为何会如此依赖单一零售品牌？暴露出商业地产哪些经营问题？](http://www.daogukj.com/yjkpaybt/)
+- [沪深北交易所调整融资保证金比例](http://www.daogukj.com/9138421)
+- [《怪物猎人：旅人》WeGame先导片](http://www.play.hengshemaoyi.cn/kongbu/1380753.htm)
+- [白小纯高需求仆人](http://www.movie.hkepx.cn/xiju/5067207.htm)
+- [主播私闯果园糟蹋千斤苹果仅愿赔6千元](http://www.daogukj.com/7199630)
+- [人能控制自己的长相吗？](http://www.movie.hkepx.cn/movie/6135897.htm)
+- [《520AM》司凤版⚡思罢吗乐队激情演奏！小时候这集听哭了😭【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/0762612.htm)
+- [中戏同学成顶流男演员却当NPC](http://www.play.hengshemaoyi.cn/xiju/6173650.htm)
+- [suk到底预言了多少](http://www.daogukj.com/2412867)
+- [商务部回应美拟禁止中国运营商获取电话号码资源，称相关做法破坏中美经贸稳定局面，中方坚决反对，如何解读？](http://www.daogukj.com/0344516)
+- [朱雀三号回收发动机再次点火试车，具备再次使用条件，里程碑意义有多大？回收火箭发动机如何再次使用？](http://www.movie.hkepx.cn/movie/0187296.htm)
+- [温差待消弭信心不可失](http://www.play.hengshemaoyi.cn/kongbu/2509171.htm)
+- [「望梅止渴」的「梅」和「墙角数枝梅」的「梅」是一种植物吗？](http://www.daogukj.com/qfjukyqn/)
+- [纳指跌超5%，英伟达跌14%，BTC跌破6万美元，黄金溃临3500美元，本轮跨市场金融冲击何时止？](http://www.daogukj.com/uumjcsie/)
+- [为啥北方人没有吐槽供暖费很贵的？](http://www.play.hengshemaoyi.cn/kongbu/2777372.htm)
+- [成毅说我有这么弱智吗](http://www.movie.hkepx.cn/movie/7623929.htm)
+- [荷兰裁定比亚迪抄袭路虎](http://www.play.hengshemaoyi.cn/kongbu/1975135.htm)
+- [《蓝色星原：旅谣》公测动画短片](http://www.movie.hkepx.cn/movie/8313935.htm)
+- [曝杨紫李现三搭《漫长的余生》](http://www.daogukj.com/fqjpdyus/)
+- [【独家】牧神记 第110集 诡异冥谷](http://www.daogukj.com/5983723)
+- [日媒逐帧解析特朗普无视高市](http://www.movie.hkepx.cn/xiju/4176767.htm)
+- [“数”看中国经济韧性与活力](http://www.play.hengshemaoyi.cn/kongbu/4816768.htm)
+- [长安大学回应「14日面试13日出结果」，公告误带后台草稿的创建日期，三名人事干部被处分，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/8712647.htm)
+- [特朗普连发30多张照片回味APEC](http://www.movie.hkepx.cn/movie/8664223.htm)
+- [再见老板嘉宾提名](http://www.movie.hkepx.cn/movie/1942982.htm)
+- [方力申破世界纪录](http://www.movie.hkepx.cn/movie/5767803.htm)
+- [如何评价华为星芒 O1 Pro 定价 5499 元起引争议，总经理刘赫回应称“我们选择创新优先”？](http://www.movie.hkepx.cn/xiju/8972635.htm)
+- [汉字简化的过程中，为何很多汉字的部首被用“又”字和叉代替？](http://www.movie.hkepx.cn/xiju/5657270.htm)
+- [4AM冠军之夜开门红](http://www.movie.hkepx.cn/movie/4036246.htm)
+- [侠盗猎车手6 第一集，GTA 6 Part 1](http://www.play.hengshemaoyi.cn/xiju/8156762.htm)
+- [7.2万拍下挡泥板票 女子不停夸张雪](http://www.play.hengshemaoyi.cn/xiju/4816079.htm)
+- [【STN快报第8.5季28】不要小看一个老实本分的家政精英，他可能是GTA的超级大盗](http://www.movie.hkepx.cn/xiju/0860317.htm)
+- [小区277户只有约100家一直交物业费](http://www.daogukj.com/lyyagrpj/)
+- [BLG全队看我视频，Bin哥说做的太牛逼了😋](http://www.daogukj.com/1732815)
+- [金价坐过山车 黄金还能避险吗](http://www.play.hengshemaoyi.cn/kongbu/2238963.htm)
+- [胡海泉：咬咬牙挺住](http://www.daogukj.com/sokjghqt/)
+- [Claude 证明了黎曼猜想？11分钟讲清它到底证明了什么、还差哪几步](http://www.play.hengshemaoyi.cn/kongbu/3398143.htm)
+- [李子柒当选四川文联副主席，如何理解她的这一职务，可能带来哪些影响？](http://www.daogukj.com/fcgqpwva/)
+- [玛雅消失案：谁杀死了一个失落的文明？](http://www.play.hengshemaoyi.cn/kongbu/4887632.htm)
 
 </details>
 
 ## 原始来源
 
-- [邓煜谈AI证明黎曼猜想：25万页不可读](https://www.baidu.com/s?wd=%E9%82%93%E7%85%9C%E8%B0%88AI%E8%AF%81%E6%98%8E%E9%BB%8E%E6%9B%BC%E7%8C%9C%E6%83%B3%EF%BC%9A25%E4%B8%87%E9%A1%B5%E4%B8%8D%E5%8F%AF%E8%AF%BB&sa=fyb_news&rsv_dl=fyb_news)
+- [中国女富商在菲律宾遭8名警察绑架](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E5%AF%8C%E5%95%86%E5%9C%A8%E8%8F%B2%E5%BE%8B%E5%AE%BE%E9%81%AD8%E5%90%8D%E8%AD%A6%E5%AF%9F%E7%BB%91%E6%9E%B6&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0ebf228632b2d90cf43f -->
+<!-- content-fingerprint: 1ccca2b9ec49dbf50e63 -->
