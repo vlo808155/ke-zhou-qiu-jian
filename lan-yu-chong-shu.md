@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# treetree的炸鸡外卖火到被迫成为门店
+# 金价
 
-> 来源：微博热搜 · 排名：第 10 位 · 热度：379448 · 分类：民生新闻 · 更新：2026-11-23T16:07:21+08:00
+> 来源：微博热搜 · 排名：第 10 位 · 热度：72555 · 分类：财经 · 更新：2026-11-24T04:16:15+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“treetree的炸鸡外卖火到被迫成为门店”位列第 10 位，公开热度指标为 379448，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“金价”位列第 10 位，公开热度指标为 72555，榜单分类为“财经”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`微博热搜` `实时热搜` `热点资讯` `财经`
 
 ## 相关热点
 
-- [乌用无人机还是无人艇击沉俄护卫舰](zi-xiang-mao-dun.md)
-- [你的家乡有哪些值得记录的人或故事？](bei-gong-she-ying.md)
+- [很多人测血压的第一步就错了](zi-xiang-mao-dun.md)
+- [如果只能让正在秋招的应届生看见你工作中的一天，你会选哪一天？](bei-gong-she-ying.md)
 - [【灵笼:落子无悔】纵入存亡之局，亦落无悔之子【PV】](jing-gong-zhi-niao.md)
-- [平谷网络辟谣宣传走进校园](hu-jia-hu-wei.md)
+- [网民发免费摘甘蔗谣言被拘](hu-jia-hu-wei.md)
 
 ## 站内推荐
 
-- [年轻人为什么不接电话了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [脆脆炸鸡老板强调八百遍是做披萨的](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [treetree炸鸡外卖小哥三天涨百万粉](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [网剧宝珠](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [丑狐热度](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [特朗普手持在深圳照片向众人展示](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [青稚一直道歉的原因](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [刘恺威为小19岁女友黎纪君庆生](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [舒淇得奖冯德伦反应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [复联5版复仇者集结](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [维嘉曝戴军恋爱被骗买房](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
-- [055大驱首次向公众开放](http://www.daogukj.com/axnomarx/)
-- [蓬莱出现海滋现象：岛全浮在空中](http://www.movie.hkepx.cn/movie/5482900.htm)
-- [鲁比奥：很高兴中俄美元首能交流](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
-- [墨西哥总统爱上中国气功](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
-- [51 岁网络主播性侵未成年获刑四年，其亲属曾付60万给被害人家属要求私了被追责，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/1406118.htm)
-- [两套大连招 雷霆撸猫法 一镜到底](http://www.movie.hkepx.cn/movie/5049902.htm)
-- [龙麻子说看张雪起步摔车笑得肚子疼](http://www.daogukj.com/9955752)
-- [8000亿元“金融活水”投向了哪些项目](http://www.movie.hkepx.cn/movie/6160167.htm)
-- [路边一块，用心雕刻，保你看了眼前一黑](http://www.movie.hkepx.cn/xiju/3768366.htm)
-- [女子第一次坐飞机就在登机口扔硬币](http://www.movie.hkepx.cn/xiju/1512321.htm)
-- [小学生试卷现1991年「张大爷」，经核实为虚构，为啥虚构烂梗能被包装成新闻收割流量？带给我们哪些反思？](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
+- [维嘉吴昕调侃马天宇友情边界](http://www.play.hengshemaoyi.cn/kongbu/6518667.htm)
+- [俄对乌发动大规模报复](http://www.daogukj.com/axnomarx/)
+- [英伟达董事会恢复黄仁勋CEO职务](http://www.movie.hkepx.cn/movie/5482900.htm)
+- [尹烨：大道至简或是人类的自我安慰](http://www.play.hengshemaoyi.cn/xiju/7414885.htm)
+- [原来傩戏才是覆面系的正确打开方式](http://www.play.hengshemaoyi.cn/kongbu/7959561.htm)
+- [户均 2.52 人开发商却主推三居，为什么现在 89 平方米刚需户型重新走热？](http://www.movie.hkepx.cn/movie/1406118.htm)
+- [大大合集](http://www.movie.hkepx.cn/movie/5049902.htm)
+- [歼-16飞行员放干扰弹驱离外机](http://www.daogukj.com/9955752)
+- [探秘中国高铁的强大“内核”](http://www.movie.hkepx.cn/movie/6160167.htm)
+- [【小跳蛙】|“【跳蛙の小曲】”](http://www.movie.hkepx.cn/xiju/3768366.htm)
+- [李雪琴居然这么瘦了](http://www.movie.hkepx.cn/xiju/1512321.htm)
+- [为什么大学生上课越来越不喜欢课本？为什么大学生不喜欢买课本？](http://www.play.hengshemaoyi.cn/xiju/6613315.htm)
 - [考公务员很难，但是为人民服务却很容易！](http://www.play.hengshemaoyi.cn/xiju/6170799.htm)
-- [【合集】人类消失后，深度思考三百年的大肥鱼](http://www.movie.hkepx.cn/xiju/9543845.htm)
-- [我国将打造一刻钟托育服务圈](http://www.movie.hkepx.cn/xiju/7957312.htm)
-- [费迪南德批评拜仁公开质疑穆西亚拉高薪不符合豪门格调，这种处理方式有哪些不妥？](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
-- [透过数据看消费之变](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
-- [花100元参加旅游团却花34万买了套房](http://www.movie.hkepx.cn/xiju/7897697.htm)
-- [韦东奕攻克百年难题获奖](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
-- [人民日报评1991年张大爷烂梗](http://www.movie.hkepx.cn/xiju/2758649.htm)
-- [熟成14的三文鱼，厨师长上班验货，美食制作先替客人尝尝味道，把控品质，人人有责](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
-- [同时狂炫「垃圾食品+保健品」，美国人的养生观逆天了](http://www.movie.hkepx.cn/xiju/1875639.htm)
-- [S16总决赛官方把FMVP给到Knight，除了他之外，这场BO5里还有谁有资格拿到这个荣誉？](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
-- [《怪盗牢德2》：科比为偷雨姐袜子与豆包和大肥鱼战斗](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
-- [网剧宝珠](http://www.daogukj.com/2395514)
-- [张雪跨界做外卖骑手电摩，万元定价 10 分钟补能，这款产品踩中真实痛点了吗？能打动外卖骑手吗？](http://www.daogukj.com/6574038)
-- [闲置银行卡千万别乱留](http://www.daogukj.com/ajcuxydy/)
-- [369贴脸开大Bin](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
-- [丑狐热度](http://www.movie.hkepx.cn/movie/3635328.htm)
-- [蔡磊妻子透露一家三口分开住](http://www.daogukj.com/cfeqrkjc/)
-- [新娘婚礼从约4米高滑梯滑下出场](http://www.daogukj.com/rkkegwyy/)
-- [脆脆炸鸡老板强调八百遍是做披萨的](http://www.movie.hkepx.cn/xiju/5333033.htm)
+- [🐧ai写 ai批 ai改🐧](http://www.movie.hkepx.cn/xiju/9543845.htm)
+- [E法同行向上向海](http://www.movie.hkepx.cn/xiju/7957312.htm)
+- [男人怎么能让外貌有年轻的感觉？](http://www.play.hengshemaoyi.cn/kongbu/5119213.htm)
+- [亚太共赴开放创新合作之约](http://www.play.hengshemaoyi.cn/kongbu/9673448.htm)
+- [胖东来一店将关闭 羽绒服亮成本价](http://www.movie.hkepx.cn/xiju/7897697.htm)
+- [黄仁勋复职原因](http://www.play.hengshemaoyi.cn/xiju/5308886.htm)
+- [金正恩：朝鲜不追求霸权也不寻求扩张](http://www.movie.hkepx.cn/xiju/2758649.htm)
+- [终于把对面带着红蓝buff的牢玩家骗出来了](http://www.play.hengshemaoyi.cn/kongbu/7800410.htm)
+- [我想回家吃饭（两小时大电影）](http://www.movie.hkepx.cn/xiju/1875639.htm)
+- [51 岁网络主播性侵未成年获刑四年，其亲属曾付60万给被害人家属要求私了被追责，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/2686558.htm)
+- [扎堆产卵 同类相食！蝗虫诡异行为原理被中国科学家破解！【主播说三农】](http://www.play.hengshemaoyi.cn/kongbu/4413624.htm)
+- [舒淇得奖冯德伦反应](http://www.daogukj.com/2395514)
+- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.daogukj.com/6574038)
+- [男子冲向行驶高铁被女列车长拦下](http://www.daogukj.com/ajcuxydy/)
+- [龙丹妮一个人可以录一季](http://www.play.hengshemaoyi.cn/xiju/0549891.htm)
+- [复联5版复仇者集结](http://www.movie.hkepx.cn/movie/3635328.htm)
+- [大学生失联2天后校内发现其遗体](http://www.daogukj.com/cfeqrkjc/)
+- [女子嫌对面楼老旧自费7.3万刷漆](http://www.daogukj.com/rkkegwyy/)
+- [青稚一直道歉的原因](http://www.movie.hkepx.cn/xiju/5333033.htm)
 - [【灵笼:落子无悔】纵入存亡之局，亦落无悔之子【PV】](http://www.movie.hkepx.cn/xiju/3690191.htm)
-- [如何看待母亲拒送8岁女儿上学遭起诉，自称替人类示范在家教育，结果女儿连自己名字都写错、语文仅考6分？](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
-- [你的家乡有哪些值得记录的人或故事？](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
-- [《520AM》司凤版⚡思罢吗乐队激情演奏！小时候这集听哭了😭【AI MV大赛】](http://www.movie.hkepx.cn/movie/9556849.htm)
-- [樊振东 3: 0 零封弗朗西斯卡，率队豪取德甲九连胜，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
-- [DeepSeek连续五周霸榜全球第一](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
-- [羽绒服市场正在淘汰没理由的高价](http://www.movie.hkepx.cn/xiju/5888939.htm)
-- [中方回应特朗普称只想对华卖落后芯片](http://www.daogukj.com/8099191)
-- [雷克萨斯 ES 纯电版正式上市起售价 33.99 万元，该定价在同级别车型里竞争力如何？](http://www.daogukj.com/vrvcskzj/)
-- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.daogukj.com/lbbxrvry/)
-- [微信聊天记录截图当证据 法院认不认](http://www.daogukj.com/9295095)
-- [马天宇说厉娜都饿到低血糖了](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
-- [史上最强荣耀700来了](http://www.movie.hkepx.cn/movie/6539896.htm)
-- [希望小学被曝让学生搬东西到半夜](http://www.daogukj.com/7435478)
-- [杨超越被徐志胜逗得忍不住笑](http://www.daogukj.com/kwdurrnw/)
-- [网传多吃某药有愉悦感 高中生吃20片](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
-- [孩子买回一套纸质版短剧](http://www.movie.hkepx.cn/movie/8077196.htm)
-- [treetree炸鸡外卖小哥三天涨百万粉](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
+- [为什么一到香港就能强烈地感受到那种都市感呢？](http://www.play.hengshemaoyi.cn/xiju/8310490.htm)
+- [如果只能让正在秋招的应届生看见你工作中的一天，你会选哪一天？](http://www.play.hengshemaoyi.cn/kongbu/1759028.htm)
+- [今天还是老样子吗？](http://www.movie.hkepx.cn/movie/9556849.htm)
+- [Kimi 宣布发力 AI for Science 方向，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6404221.htm)
+- [大风大雨暴雪 局地降温超10℃](http://www.play.hengshemaoyi.cn/xiju/6886136.htm)
+- [国乒男单世界排名前十仅王楚钦林诗栋](http://www.movie.hkepx.cn/xiju/5888939.htm)
+- [骑手一句「treetree的」带火披萨店炸鸡，老板直言爆单做不过来，为啥此类视频能迅速调起大众购买欲？](http://www.daogukj.com/8099191)
+- [如何评价佟丽娅、王皓主演的喜剧电影《我没错！》？](http://www.daogukj.com/vrvcskzj/)
+- [如何评价马伯庸的小说《两京十五日》？](http://www.daogukj.com/lbbxrvry/)
+- [97岁老人寿宴结束 五代同堂喊妈妈](http://www.daogukj.com/9295095)
+- [蔡磊妻子透露一家三口分开住](http://www.play.hengshemaoyi.cn/kongbu/4556120.htm)
+- [白小纯今晚直播](http://www.movie.hkepx.cn/movie/6539896.htm)
+- [数年炸鸡无人识 一句treetree全网知](http://www.daogukj.com/7435478)
+- [treetree炸鸡外卖员10天涨粉超百万](http://www.daogukj.com/kwdurrnw/)
+- [金店挤成年末顶流](http://www.play.hengshemaoyi.cn/kongbu/1399731.htm)
+- [U17国足第99分钟被绝平](http://www.movie.hkepx.cn/movie/8077196.htm)
+- [刘恺威为小19岁女友黎纪君庆生](http://www.play.hengshemaoyi.cn/xiju/3057969.htm)
 
 </details>
 
 ## 原始来源
 
-- [treetree的炸鸡外卖火到被迫成为门店](https://s.weibo.com/weibo?q=treetree%E7%9A%84%E7%82%B8%E9%B8%A1%E5%A4%96%E5%8D%96%E7%81%AB%E5%88%B0%E8%A2%AB%E8%BF%AB%E6%88%90%E4%B8%BA%E9%97%A8%E5%BA%97)
+- [金价](https://s.weibo.com/weibo?q=%E9%87%91%E4%BB%B7)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c2ebdba32b3ce87ebf4d -->
+<!-- content-fingerprint: 6ecfa7b2987b0b86540a -->
