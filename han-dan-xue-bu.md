@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待Anthropic盘前价格跌破发行价？
+# 极客湾手机影像大横评：哪家手机拍照强？
 
-> 来源：知乎热榜 · 排名：第 11 位 · 热度：66 万热度 · 分类：问答 · 更新：2026-11-25T08:05:05+08:00
+> 来源：哔哩哔哩热门 · 排名：第 11 位 · 热度：248470 · 分类：数码 · 更新：2026-11-25T16:23:16+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待Anthropic盘前价格跌破发行价？”位列第 11 位，公开热度指标为 66 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“极客湾手机影像大横评：哪家手机拍照强？”位列第 11 位，公开热度指标为 248470，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间11月24日，Anthropic盘前价格跌破发行价，报82.303美元/股，盘前跌超6%。 Anthropic于上周四在纳斯达克上市，当天股价一度冲高至115美元，收报97.17美元，较83美元的发行价上涨17.1%；上周五和本周一则分别收跌8.5%和1.43%。 https://mp.weixin.qq.com/s/UuSzc1YWLlen7rzvEJ_Yiw
+来源公开摘要显示：大横评又来啦！这期是2026手机影像大横评，我们这次设计了一套完整的影像测试流程，非常详细地做了理论测试+实拍，把旗舰、小杯、子系机型拉出来测了个遍，希望能够对你全面认识各家手机厂商的影像风格和影像能力有所帮助。和我们一起来探索一下2026年各家手机厂商的影像实力吧！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `数码`
 
 ## 相关热点
 
-- [华强等了宋老虎30年](qi-ren-you-tian.md)
-- [几个姑娘在-25℃的黑龙江清凉上阵](chao-san-mu-si.md)
-- [黄磊真空围裙](dui-niu-tan-qin.md)
-- [张雪机车引燃摩托热](mang-ren-mo-xiang.md)
+- [南方人快看 大风吹雪拉出“长毛”](qi-ren-you-tian.md)
+- [胡锡进说股民没清仓就还抱着反弹希望](chao-san-mu-si.md)
+- [巴基斯坦总理：感谢兄弟般的中国](dui-niu-tan-qin.md)
+- [《西游记》中孙悟空大闹天宫后，为何没有被直接处死？](mang-ren-mo-xiang.md)
 
 ## 站内推荐
 
-- [上海就陈吉宁被查表态](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [陈吉宁被查](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [如何评价徐克的电影《青蛇》？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [因开塞露含甘油，自媒体宣传其可保湿淡纹、功效逼近大牌面霜，真这么管用吗？有其他体面一点的护肤办法吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [美AI科技股集体暴跌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [特朗普公开提及一道配了漂亮「帽子」的中国菜，直呼好吃却叫不出名字，可能是哪一道菜？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [情侣求婚关键时刻，服务员闯入询问「能否拿走纸箱」，餐厅提出抹零49元，服务员闯入合理吗？餐厅该补偿吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [荔枝的遭遇](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [🚢"泰坦鲁克号"🛳️](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [刘晓艳：“你能考过就是「烂奇迹」”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [上海市委书记陈吉宁被查](http://www.movie.hkepx.cn/xiju/5724796.htm)
-- [黄磊真空围裙](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
-- [李维嘉200平的家干净得找不出1根头发](http://www.movie.hkepx.cn/xiju/9704910.htm)
-- [直击神舟二十四号载人飞船发射](http://www.movie.hkepx.cn/movie/6633099.htm)
-- [中方回应黄仁勋复职](http://www.daogukj.com/qaspagub/)
-- [马斯克警告AI行业明年可能面临严重资金短缺，如何理解他这一观点？若成立，将会对AI行业造成哪些冲击？](http://www.daogukj.com/vbdopqig/)
-- [智谱为何持续震荡](http://www.daogukj.com/gkqacstr/)
-- [AI 短剧《丑狐》爆火后引发大量讨论，它能戳中观众的核心原因是什么？](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
-- [AI换脸还没完AI融脸又来了](http://www.movie.hkepx.cn/xiju/7400834.htm)
-- [车企老板娘女装卖了30亿](http://www.movie.hkepx.cn/movie/0023586.htm)
-- [特朗普称黄仁勋是「国家瑰宝」，若在美遇不公可去中国，黄仁勋未来若来华可能有哪些选择？](http://www.daogukj.com/qkmfzgih/)
-- [神舟二十四号载人飞船今日发射](http://www.movie.hkepx.cn/xiju/3554870.htm)
-- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.movie.hkepx.cn/movie/3762082.htm)
-- [人类统一不爽行为](http://www.daogukj.com/pgcqzahm/)
-- [⚡【神金斗罗】史上最神人斗罗同人1-10集大合集⚡](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
-- [在胳膊上贴个“小圆片”火了](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
-- [一张网背后的中国经济底气](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
-- [你从未见过的硬核开箱视频！](http://www.daogukj.com/5083848)
-- [【火影十一年 神临时刻】漩涡鸣人[阳之力]即将登场！](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
-- [专家称年轻人持续出现变懒、变沉默等状态，可能并非「社恐」而是精神分裂症阴性症状，是真的吗？该怎样区分？](http://www.movie.hkepx.cn/xiju/6267009.htm)
-- [如何评价《黑神话：悟空》主美杨奇评价GTA6是昂贵且低效的艺术品，「工业化」一词是对它的贬损?](http://www.movie.hkepx.cn/movie/3929349.htm)
-- [谷歌 Android17 全球份额仅约 1%，安卓版本碎片化为何迟迟难解？](http://www.movie.hkepx.cn/xiju/3944087.htm)
-- [《蓝色星原：旅谣》涂山小玉PV | 一笺桃花](http://www.daogukj.com/5655258)
-- [都别活了！复联团灭！漫威重启！《复联5：毁灭日》终极预告解析](http://www.daogukj.com/5414627)
-- [英伟达跌近6% Anthropic跌破发行价](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
-- [黄仁勋找到了他的接班人，oh，原来是他自己](http://www.daogukj.com/4208506)
-- [地级市市长转任县委书记](http://www.movie.hkepx.cn/movie/7582088.htm)
-- [超级厄尔尼诺发威 暴雪袭击日本](http://www.daogukj.com/7752186)
-- [年轻人劝父母卖空房收息](http://www.movie.hkepx.cn/xiju/4333023.htm)
-- [神24进舱顺序调整](http://www.movie.hkepx.cn/movie/1247606.htm)
-- [两京十五日被吐槽是玄幻剧](http://www.movie.hkepx.cn/movie/7511479.htm)
-- [今天是毛岸英同志牺牲76周年](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
-- [高血压标准变了会影响多少人](http://www.movie.hkepx.cn/movie/4507886.htm)
-- [上海就陈吉宁被查表态](http://www.movie.hkepx.cn/movie/4528248.htm)
-- [东北的洗浴已经这么卷了吗](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
-- [中韩自贸协定谈判里，中方首次同意给予韩国电影、游戏等领域最惠国待遇，将给两国影视行业带来哪些机遇？](http://www.daogukj.com/plfvnmnj/)
-- [几个姑娘在-25℃的黑龙江清凉上阵](http://www.movie.hkepx.cn/xiju/7539806.htm)
-- [当你一直带着新手村的NPC](http://www.daogukj.com/5346308)
-- [美AI科技股集体暴跌](http://www.daogukj.com/mwxqddka/)
-- [年产1500万根的“棍子” 卖出10亿元](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
-- [陈吉宁被查](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
-- [优秀辟谣作品高校巡展举办](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
-- [英伟达卖空者预计亏损 122 亿美元，创下 2019 年以来最大单日亏损，怎么看待这次史诗级空头暴击？](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
-- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](http://www.movie.hkepx.cn/xiju/8520841.htm)
-- [如何评价徐克的电影《青蛇》？](http://www.movie.hkepx.cn/xiju/7769163.htm)
-- [大众拟裁员10万人 工会威胁罢工](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
-- [游戏自由度太高也不是什么好事](http://www.daogukj.com/ictnjmqu/)
-- [情侣包间求婚服务员推门打断要纸箱](http://www.movie.hkepx.cn/xiju/2398550.htm)
-- [为什么老板多数是销售出身，而不是市场出身？](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
-- [普京：必将回应乌对俄能源设施的袭击](http://www.movie.hkepx.cn/xiju/6233863.htm)
+- [网传文吉儿霸凌后会友期工作人员](http://www.movie.hkepx.cn/xiju/5724796.htm)
+- [巴基斯坦总理：感谢兄弟般的中国](http://www.play.hengshemaoyi.cn/kongbu/9332705.htm)
+- [郭涛儿子石头：希望尽量赶上爸爸](http://www.movie.hkepx.cn/xiju/9704910.htm)
+- [为什么我觉得憨豆先生的表演非常庸俗幼稚，一点儿也不可笑？是中西文化的不同么？](http://www.movie.hkepx.cn/movie/6633099.htm)
+- [摩根大通发布《中国房地产，只有幸存者才能生存》研报，如何解读其中的内容？](http://www.daogukj.com/qaspagub/)
+- [你从未见过的硬核开箱视频！](http://www.daogukj.com/vbdopqig/)
+- [神舟二十四号载人飞船发射取得圆满成功，中国空间站迎来首位外籍航天员，此次发射任务还有哪些看点？](http://www.daogukj.com/gkqacstr/)
+- [《绝区零》挽昼角色展示 | 日陨之前](http://www.play.hengshemaoyi.cn/xiju/9242425.htm)
+- [朱珠演了个斑秃富太](http://www.movie.hkepx.cn/xiju/7400834.htm)
+- [结婚8年三孩非亲生离婚案一审宣判](http://www.movie.hkepx.cn/movie/0023586.htm)
+- [爆料者公布疑似 209GB《GTA6》Xbox 版文件，称一周内可 PC 模拟运行，真实性如何？](http://www.daogukj.com/qkmfzgih/)
+- [巴基斯坦航天员说中国空间站我来了](http://www.movie.hkepx.cn/xiju/3554870.htm)
+- [《蓝色星原：旅谣》涂山小玉PV | 一笺桃花](http://www.movie.hkepx.cn/movie/3762082.htm)
+- [撞脸张雪男子年轻时被说像林俊杰](http://www.daogukj.com/pgcqzahm/)
+- [山寨“塔斯汀”开出1300家门店](http://www.play.hengshemaoyi.cn/xiju/8334427.htm)
+- [肖战参加小城良方研讨会路透](http://www.play.hengshemaoyi.cn/kongbu/1028259.htm)
+- [国货品牌高质量发展步伐坚实](http://www.play.hengshemaoyi.cn/kongbu/5026604.htm)
+- [国台办回应“欧阳娜娜几度哽咽”](http://www.daogukj.com/5083848)
+- [中方回应“美将对中国等国加征关税”](http://www.play.hengshemaoyi.cn/kongbu/2968366.htm)
+- [【世界无用技能】据说这是德国最烧脑的综艺游戏😅~太抽象了🦆选鸭子选小球比谁滑远~超级策略游戏！](http://www.movie.hkepx.cn/xiju/6267009.htm)
+- [求婚遭打断要求免单是小题大做吗](http://www.movie.hkepx.cn/movie/3929349.htm)
+- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.movie.hkepx.cn/xiju/3944087.htm)
+- [迪丽热巴“最佳红毯着装”](http://www.daogukj.com/5655258)
+- [高颜值学霸转行当演员 高考667分](http://www.daogukj.com/5414627)
+- [可口可乐不再标生产日期](http://www.play.hengshemaoyi.cn/kongbu/5985910.htm)
+- [《变形计》“最像姐妹的母女”](http://www.daogukj.com/4208506)
+- [亲戚要借车到北京玩，我想拒绝，因为对方几乎没开过高速，但是不知道怎么说才不得罪人？](http://www.movie.hkepx.cn/movie/7582088.htm)
+- [年轻人开始劝父母卖县城空房，换成现金收利息，空置多年的房子有必要留吗？](http://www.daogukj.com/7752186)
+- [小鹏科技日机器人上台演讲](http://www.movie.hkepx.cn/xiju/4333023.htm)
+- [超级厄尔尼诺发威 暴雪袭击日本](http://www.movie.hkepx.cn/movie/1247606.htm)
+- [巴航天员接过太空小蛋糕深深闻了闻](http://www.movie.hkepx.cn/movie/7511479.htm)
+- [募款超过嫣然天使基金救助承载能力，李亚鹏建议月捐 1 元支持嫣然基金，如何看待这种小额长期公益思路？](http://www.play.hengshemaoyi.cn/kongbu/6047889.htm)
+- [如何看待 Anthropic 价格跌破发行价？](http://www.movie.hkepx.cn/movie/4507886.htm)
+- [特朗普公开提及一道配了漂亮「帽子」的中国菜，直呼好吃却叫不出名字，可能是哪一道菜？](http://www.movie.hkepx.cn/movie/4528248.htm)
+- [女研究生一行3人青海自驾游失联](http://www.play.hengshemaoyi.cn/xiju/0471860.htm)
+- [《狩》首曝PV&实机演示丨动作要秀，有狩就行！](http://www.daogukj.com/plfvnmnj/)
+- [胡锡进说股民没清仓就还抱着反弹希望](http://www.movie.hkepx.cn/xiju/7539806.htm)
+- [地级市市长转任县委书记](http://www.daogukj.com/5346308)
+- [刘晓艳：“你能考过就是「烂奇迹」”](http://www.daogukj.com/mwxqddka/)
+- [曝文吉儿婚礼推迟了](http://www.play.hengshemaoyi.cn/xiju/4058318.htm)
+- [情侣求婚关键时刻，服务员闯入询问「能否拿走纸箱」，餐厅提出抹零49元，服务员闯入合理吗？餐厅该补偿吗？](http://www.play.hengshemaoyi.cn/xiju/4722727.htm)
+- [黄仁勋复职曾带动英伟达股价单日大涨，但随后股价回吐部分涨幅，为啥黄仁勋回归没能持续提振 AI 概念股？](http://www.play.hengshemaoyi.cn/kongbu/3811886.htm)
+- [有哪些方言，是你觉得「普通话很难翻译出精髓」的？](http://www.play.hengshemaoyi.cn/xiju/3487877.htm)
+- [神舟二十四号发射成功](http://www.movie.hkepx.cn/xiju/8520841.htm)
+- [荔枝的遭遇](http://www.movie.hkepx.cn/xiju/7769163.htm)
+- [四大AI评选中国最宜居城市](http://www.play.hengshemaoyi.cn/xiju/1898374.htm)
+- [2026年环球小姐冠军诞生](http://www.daogukj.com/ictnjmqu/)
+- [泽连斯基：卢卡申科可带普京来基辅](http://www.movie.hkepx.cn/xiju/2398550.htm)
+- [美国10岁男孩为救亲妈，开枪爆头16岁少女邻居](http://www.play.hengshemaoyi.cn/kongbu/2975593.htm)
+- [黄多多贝儿先后官宣出道，星二代扎堆进圈会挤压普通新人发展机会吗？](http://www.movie.hkepx.cn/xiju/6233863.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待Anthropic盘前价格跌破发行价？](https://www.zhihu.com/question/2108665221980148805)
+- [极客湾手机影像大横评：哪家手机拍照强？](https://b23.tv/BV1c5yzzGEL9)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4064d734d2c493a1bd6f -->
+<!-- content-fingerprint: 047f9256bd3ea4bde085 -->

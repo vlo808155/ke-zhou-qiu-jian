@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊
+# 护卫银发与童心 让网络温暖无虞
 
-> 来源：哔哩哔哩热门 · 排名：第 10 位 · 热度：1281962 · 分类：日常 · 更新：2026-11-25T08:05:05+08:00
+> 来源：百度热搜 · 排名：第 10 位 · 热度：6854064 · 更新：2026-11-25T16:23:16+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊”位列第 10 位，公开热度指标为 1281962，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“护卫银发与童心 让网络温暖无虞”位列第 10 位，公开热度指标为 6854064。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：格温形象来自@龙之王修罗 原作：寅山 动画导演：徐Toso 动画师：88boyei 动画资产：旁可Panko 卧槽泽彬你怎么冠军皮肤真选格温啊 卧槽泽彬你做人是真可以的！ 😐卧槽！你tm是冠军了啊泽斌！😭卧槽😭泽斌！哭吧泽斌！😭大声哭吧！😭把你受得委屈😭都哭出来吧泽斌😭卧槽真牛逼啊泽斌🥵卧槽🥵我也没忍住泽斌😭卧槽🥵你tm承受的太多了！😭卧槽😭没有你这格温真tm赢不了啊泽斌👍你真tm牛逼啊👍😭卧槽我也tm的忍不住了😭卧槽😀马头是tm完蛋了🤬🐴🐴🐴🐴🐴
+来源公开摘要显示：AI诈骗谣言瞄准老人和青少年，多部门联动开展系统治理，教育辟谣平台矩阵已上线，也呼吁家庭做好把关，筑牢防护防线。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [一校一主题 消谣育青年](hu-jia-hu-wei.md)
-- [湖北文科状元自述相亲四次失败](yu-mu-hun-zhu.md)
-- [高血压标准变了会影响多少人](dong-shi-xiao-pin.md)
-- [如何看待Anthropic盘前价格跌破发行价？](han-dan-xue-bu.md)
+- [青春有你3](hu-jia-hu-wei.md)
+- [四类谣言盯上“一老一小”群体](yu-mu-hun-zhu.md)
+- [如何看待 Anthropic 价格跌破发行价？](dong-shi-xiao-pin.md)
+- [极客湾手机影像大横评：哪家手机拍照强？](han-dan-xue-bu.md)
 
 ## 站内推荐
 
-- [小米集团 2026 Q3 财报发布，经调整净利润 48.84 亿元，同比下降56.8%，怎样解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [黄仁勋找到了他的接班人，oh，原来是他自己](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [因为小时候淋过雨，所以长大后.....](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [李维嘉200平的家干净得找不出1根头发](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [都别活了！复联团灭！漫威重启！《复联5：毁灭日》终极预告解析](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [【李诗雅】属于李诗雅的故事，即将展开【PV】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [《变形计》“最像姐妹的母女”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [三种流感毒株叠加来袭](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [郭涛儿子石头：希望尽量赶上爸爸](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [高颜值学霸转行当演员 高考667分](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [演员好像忘记自己中箭了](http://www.movie.hkepx.cn/movie/3685842.htm)
-- [近十年最好的推理系列剧集之一！神级转场，爆火开头，悬疑神剧高分回归系列最终章！《大理石厅谋杀案》上](http://www.movie.hkepx.cn/xiju/5670446.htm)
-- [如何评价徐克的电影《青蛇》？](http://www.movie.hkepx.cn/xiju/4927200.htm)
-- [天还没亮 学生就集体站在操场晨读](http://www.movie.hkepx.cn/movie/2410383.htm)
-- [如何评价《黑神话：悟空》主美杨奇评价GTA6是昂贵且低效的艺术品，「工业化」一词是对它的贬损?](http://www.movie.hkepx.cn/xiju/7011492.htm)
-- [陈吉宁被查](http://www.daogukj.com/yuizpcez/)
-- [专家称年轻人持续出现变懒、变沉默等状态，可能并非「社恐」而是精神分裂症阴性症状，是真的吗？该怎样区分？](http://www.daogukj.com/skvkqhkp/)
-- [超级厄尔尼诺发威 暴雪袭击日本](http://www.daogukj.com/7989270)
-- [黄奕自曝婚内遭家暴产后背千万债务](http://www.movie.hkepx.cn/movie/8235826.htm)
-- [陈吉宁被查 上海表态](http://www.play.hengshemaoyi.cn/kongbu/1330395.htm)
-- [DeepSeek 因算力不足对免费用户实施使用限额，后续是否会推出 C 端付费模式？](http://www.daogukj.com/8516308)
-- [马斯克警告AI行业明年可能面临严重资金短缺，如何理解他这一观点？若成立，将会对AI行业造成哪些冲击？](http://www.movie.hkepx.cn/xiju/2845747.htm)
-- [撞脸张雪男子年轻时被说像林俊杰](http://www.movie.hkepx.cn/xiju/4647338.htm)
-- [特朗普称黄仁勋是「国家瑰宝」，若在美遇不公可去中国，黄仁勋未来若来华可能有哪些选择？](http://www.movie.hkepx.cn/movie/1997691.htm)
-- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](http://www.play.hengshemaoyi.cn/kongbu/9175355.htm)
-- [神舟二十四号任务看点拉满](http://www.movie.hkepx.cn/xiju/1117313.htm)
-- [人类统一不爽行为](http://www.movie.hkepx.cn/xiju/6588524.htm)
-- [中韩自贸协定谈判里，中方首次同意给予韩国电影、游戏等领域最惠国待遇，将给两国影视行业带来哪些机遇？](http://www.daogukj.com/flcbggsu/)
-- [在胳膊上贴个“小圆片”火了](http://www.movie.hkepx.cn/xiju/5851261.htm)
-- [几个姑娘在-25℃的黑龙江清凉上阵](http://www.movie.hkepx.cn/xiju/7433154.htm)
-- [上海市委书记陈吉宁被查](http://www.daogukj.com/cucqvpnh/)
-- [神24航天员到达发射塔架](http://www.daogukj.com/kpnlkbet/)
-- [黄磊真空围裙](http://www.movie.hkepx.cn/movie/7953455.htm)
-- [一校一主题 消谣育青年](http://www.play.hengshemaoyi.cn/kongbu/7679009.htm)
-- [【世界无用技能】据说这是德国最烧脑的综艺游戏😅~太抽象了🦆选鸭子选小球比谁滑远~超级策略游戏！](http://www.play.hengshemaoyi.cn/xiju/8961731.htm)
-- [优秀辟谣作品高校巡展举办](http://www.play.hengshemaoyi.cn/xiju/9796102.htm)
-- [⚡【神金斗罗】史上最神人斗罗同人1-10集大合集⚡](http://www.movie.hkepx.cn/xiju/0936500.htm)
-- [国内成品油零售价有望再下调](http://www.play.hengshemaoyi.cn/kongbu/0289669.htm)
-- [黄奕女儿说你都能当艺人为啥我不行](http://www.daogukj.com/7886683)
-- [车企老板娘女装卖了30亿](http://www.play.hengshemaoyi.cn/xiju/6388803.htm)
-- [《蓝色星原：旅谣》涂山小玉PV | 一笺桃花](http://www.movie.hkepx.cn/movie/5203333.htm)
-- [都别活了！复联团灭！漫威重启！《复联5：毁灭日》终极预告解析](http://www.play.hengshemaoyi.cn/kongbu/6780839.htm)
-- [因为小时候淋过雨，所以长大后.....](http://www.play.hengshemaoyi.cn/xiju/0807477.htm)
-- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.daogukj.com/nlaxdpez/)
-- [AI换脸还没完AI融脸又来了](http://www.movie.hkepx.cn/xiju/9167417.htm)
-- [王牌对王牌第十季阵容](http://www.movie.hkepx.cn/movie/1116768.htm)
-- [19楼落地窗底部装无限位外凸窗](http://www.play.hengshemaoyi.cn/xiju/3017853.htm)
-- [英伟达跌近6% Anthropic跌破发行价](http://www.movie.hkepx.cn/movie/4719317.htm)
-- [神24进舱顺序调整](http://www.movie.hkepx.cn/xiju/0517263.htm)
-- [因开塞露含甘油，自媒体宣传其可保湿淡纹、功效逼近大牌面霜，真这么管用吗？有其他体面一点的护肤办法吗？](http://www.movie.hkepx.cn/movie/9183008.htm)
-- [张雪机车引燃摩托热](http://www.daogukj.com/hsndvgzz/)
-- [年产1500万根的“棍子” 卖出10亿元](http://www.movie.hkepx.cn/xiju/7386231.htm)
-- [当你一直带着新手村的NPC](http://www.movie.hkepx.cn/movie/9109944.htm)
-- [AI 短剧《丑狐》爆火后引发大量讨论，它能戳中观众的核心原因是什么？](http://www.movie.hkepx.cn/movie/9419430.htm)
-- [华强等了宋老虎30年](http://www.daogukj.com/ehwgmnxm/)
-- [黄多多贝儿先后官宣出道，星二代扎堆进圈会挤压普通新人发展机会吗？](http://www.daogukj.com/2775056)
-- [神舟二十四号载人飞船今日发射](http://www.daogukj.com/1395089)
-- [直击神舟二十四号载人飞船发射](http://www.daogukj.com/jlgjcofz/)
-- [智谱为何持续震荡](http://www.play.hengshemaoyi.cn/kongbu/1564112.htm)
-- [黄仁勋找到了他的接班人，oh，原来是他自己](http://www.movie.hkepx.cn/movie/0007962.htm)
+- [巴基斯坦航天员在天宫中文唠嗑](http://www.movie.hkepx.cn/movie/3685842.htm)
+- [特朗普说的漂亮帽子可能不在中国菜上](http://www.movie.hkepx.cn/xiju/5670446.htm)
+- [荔枝的遭遇](http://www.movie.hkepx.cn/xiju/4927200.htm)
+- [如何看待曾毓群曾表态，因为宁德时代在撑着这个价钱，只要我们把价钱低下来，锂电行业比光伏还惨？](http://www.movie.hkepx.cn/movie/2410383.htm)
+- [求婚遭打断要求免单是小题大做吗](http://www.movie.hkepx.cn/xiju/7011492.htm)
+- [情侣求婚关键时刻，服务员闯入询问「能否拿走纸箱」，餐厅提出抹零49元，服务员闯入合理吗？餐厅该补偿吗？](http://www.daogukj.com/yuizpcez/)
+- [【世界无用技能】据说这是德国最烧脑的综艺游戏😅~太抽象了🦆选鸭子选小球比谁滑远~超级策略游戏！](http://www.daogukj.com/skvkqhkp/)
+- [年轻人开始劝父母卖县城空房，换成现金收利息，空置多年的房子有必要留吗？](http://www.daogukj.com/7989270)
+- [A股接下来的见底究竟看什么](http://www.movie.hkepx.cn/movie/8235826.htm)
+- [中外航天员实现首次“太空握手”](http://www.play.hengshemaoyi.cn/kongbu/1330395.htm)
+- [【我在现代当幽差】：守护](http://www.daogukj.com/8516308)
+- [你从未见过的硬核开箱视频！](http://www.movie.hkepx.cn/xiju/2845747.htm)
+- [巴基斯坦航天员手指国旗向镜头敬礼](http://www.movie.hkepx.cn/xiju/4647338.htm)
+- [爆料者公布疑似 209GB《GTA6》Xbox 版文件，称一周内可 PC 模拟运行，真实性如何？](http://www.movie.hkepx.cn/movie/1997691.htm)
+- [神舟二十四号发射成功](http://www.play.hengshemaoyi.cn/kongbu/9175355.htm)
+- [如何看待黑客放出《GTA 6》Xbox版核心文件后，民间靠AI不到24小时就搬上PC并成功进入实机？](http://www.movie.hkepx.cn/xiju/1117313.htm)
+- [撞脸张雪男子年轻时被说像林俊杰](http://www.movie.hkepx.cn/xiju/6588524.htm)
+- [《狩》首曝PV&实机演示丨动作要秀，有狩就行！](http://www.daogukj.com/flcbggsu/)
+- [肖战参加小城良方研讨会路透](http://www.movie.hkepx.cn/xiju/5851261.htm)
+- [胡锡进说股民没清仓就还抱着反弹希望](http://www.movie.hkepx.cn/xiju/7433154.htm)
+- [网传文吉儿霸凌后会友期工作人员](http://www.daogukj.com/cucqvpnh/)
+- [中外航天员第一张太空合影](http://www.daogukj.com/kpnlkbet/)
+- [巴基斯坦总理：感谢兄弟般的中国](http://www.movie.hkepx.cn/movie/7953455.htm)
+- [青春有你3](http://www.play.hengshemaoyi.cn/kongbu/7679009.htm)
+- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](http://www.play.hengshemaoyi.cn/xiju/8961731.htm)
+- [黄仁勋复职曾带动英伟达股价单日大涨，但随后股价回吐部分涨幅，为啥黄仁勋回归没能持续提振 AI 概念股？](http://www.play.hengshemaoyi.cn/xiju/9796102.htm)
+- [山寨“塔斯汀”开出1300家门店](http://www.movie.hkepx.cn/xiju/0936500.htm)
+- [如何看待《两京十五日》火烧太庙、射太祖画像的剧情？](http://www.play.hengshemaoyi.cn/kongbu/0289669.htm)
+- [前日本女乒名将石川佳纯宣布结婚](http://www.daogukj.com/7886683)
+- [结婚8年三孩非亲生离婚案一审宣判](http://www.play.hengshemaoyi.cn/xiju/6388803.htm)
+- [迪丽热巴“最佳红毯着装”](http://www.movie.hkepx.cn/movie/5203333.htm)
+- [高颜值学霸转行当演员 高考667分](http://www.play.hengshemaoyi.cn/kongbu/6780839.htm)
+- [三种流感毒株叠加来袭](http://www.play.hengshemaoyi.cn/xiju/0807477.htm)
+- [《异环》Exe角色PV丨追杀计数](http://www.daogukj.com/nlaxdpez/)
+- [朱珠演了个斑秃富太](http://www.movie.hkepx.cn/xiju/9167417.htm)
+- [汤洪波母亲看完直播就去喂猪喂鸡](http://www.movie.hkepx.cn/movie/1116768.htm)
+- [A股调整3大原因](http://www.play.hengshemaoyi.cn/xiju/3017853.htm)
+- [可口可乐不再标生产日期](http://www.movie.hkepx.cn/movie/4719317.htm)
+- [超级厄尔尼诺发威 暴雪袭击日本](http://www.movie.hkepx.cn/xiju/0517263.htm)
+- [🚢"泰坦鲁克号"🛳️](http://www.movie.hkepx.cn/movie/9183008.htm)
+- [《西游记》中孙悟空大闹天宫后，为何没有被直接处死？](http://www.daogukj.com/hsndvgzz/)
+- [曝文吉儿婚礼推迟了](http://www.movie.hkepx.cn/xiju/7386231.htm)
+- [地级市市长转任县委书记](http://www.movie.hkepx.cn/movie/9109944.htm)
+- [《绝区零》挽昼角色展示 | 日陨之前](http://www.movie.hkepx.cn/movie/9419430.htm)
+- [南方人快看 大风吹雪拉出“长毛”](http://www.daogukj.com/ehwgmnxm/)
+- [《明日方舟：终末地》小刻EP - JUST THE START](http://www.daogukj.com/2775056)
+- [巴基斯坦航天员说中国空间站我来了](http://www.daogukj.com/1395089)
+- [为什么我觉得憨豆先生的表演非常庸俗幼稚，一点儿也不可笑？是中西文化的不同么？](http://www.daogukj.com/jlgjcofz/)
+- [神舟二十四号载人飞船发射取得圆满成功，中国空间站迎来首位外籍航天员，此次发射任务还有哪些看点？](http://www.play.hengshemaoyi.cn/kongbu/1564112.htm)
+- [《变形计》“最像姐妹的母女”](http://www.movie.hkepx.cn/movie/0007962.htm)
 
 </details>
 
 ## 原始来源
 
-- [🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊](https://b23.tv/BV15iyXzvE4y)
+- [护卫银发与童心 让网络温暖无虞](https://www.baidu.com/s?wd=%E6%8A%A4%E5%8D%AB%E9%93%B6%E5%8F%91%E4%B8%8E%E7%AB%A5%E5%BF%83+%E8%AE%A9%E7%BD%91%E7%BB%9C%E6%B8%A9%E6%9A%96%E6%97%A0%E8%99%9E&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3cbeea3c6838bcce5549 -->
+<!-- content-fingerprint: 4a21ddb7895ff6b999a2 -->
