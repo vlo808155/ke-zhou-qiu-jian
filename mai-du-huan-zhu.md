@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 谁是赛伊德？！！
+# 马伯庸回应电视剧《两京十五日》争议，自己是用历史逻辑反推朱瞻基的来时路，如何看待这一创作方法？
 
-> 来源：哔哩哔哩热门 · 排名：第 9 位 · 热度：990382 · 分类：同人·手书 · 更新：2026-11-28T10:51:16+08:00
+> 来源：知乎热榜 · 排名：第 9 位 · 热度：283 万热度 · 分类：问答 · 更新：2026-11-28T19:16:15+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“谁是赛伊德？！！”位列第 9 位，公开热度指标为 990382，榜单分类为“同人·手书”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“马伯庸回应电视剧《两京十五日》争议，自己是用历史逻辑反推朱瞻基的来时路，如何看待这一创作方法？”位列第 9 位，公开热度指标为 283 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：三角洲行动动画持续更新中~
+来源公开摘要显示：马伯庸：实际上这是大家对朱瞻基的误会，朱瞻基在历史上呢，是一个很有作为的皇帝，而且当时还会有叫仁宣之治，实际上能够有这样称呼的人并不多。 随着我对历史的了解呢，我们会发现啊，治理一个国家是一件非常复杂、非常难的事情，哪怕说只是能够做到中人之姿，你说跟秦皇汉武当然是没有办法比，但是他作为一个皇帝，我认为他是一个不能说是及格吧，已经是做到良接近优的一个皇帝。他的在任时间虽然并不长，但是他的种种作为也能看得出来，他确实是一个能够接地气，能够知道运作一个国家是怎么样的一个人。 所以我觉得呢，我的这个创作方法论是反推的，我们从宣德皇帝啊在任的这些种种的作为中，反推
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `同人·手书`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [快扔掉你家那根“光杆”](ye-gong-hao-long.md)
-- [U17世界杯亚洲9队出战7队晋级](lan-yu-chong-shu.md)
-- [商务部开新闻发布会称机关单位带头过紧日子，透露了什么信号？可能有哪些影响？](zi-xiang-mao-dun.md)
-- [【欢迎来龙餐馆】起锅开灶，好好吃饭](bei-gong-she-ying.md)
+- [史诗级农村大片！好莱坞看了都落泪了！](ye-gong-hao-long.md)
+- [中国航展最新剧透 陆军简直毫无保留](lan-yu-chong-shu.md)
+- [微博国际文化交流之夜红毯](zi-xiang-mao-dun.md)
+- [司机捡手机要100元辛苦费 乘客报警](bei-gong-she-ying.md)
 
 ## 站内推荐
 
-- [如何看待女子称因年龄超 40 岁被酒店拒绝入住？预订平台没有醒目提示，这种规定合法吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [如何看待济南医保官方视频号工作人员误以为直播结束，骂咨询者脑子有病，医保局回应称已批评教育并要求道歉？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [张颂文称不当演员了可以去干导游](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [日本可能发生大规模地震 中使馆提醒](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [冯骥长文谈AI时代人怎么办](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [雅迪、爱玛、九号等15家电动自行车企业被点名，部分企业涉违法出售不合格产品情况，哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [央行《大额存单管理办法》公布，个人投资人认购大额存单起点降为不低于10万元，如何解读？将带来哪些影响？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [董明珠直播中数次训斥员工，魏建军帮忙解围，怎样看待魏建军的处理和董明珠对员工的管理方式？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [董明珠直播训员工引争议](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [太唯美！歼-35A丝滑落地全程](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [招聘为何更看重第一学历而非最高学历？](http://www.daogukj.com/9193901)
-- [专家：这轮底部大概率稳了](http://www.movie.hkepx.cn/xiju/8468269.htm)
-- [工业经济新动能澎湃](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
-- [U17国足历史首次对阵塞尔维亚](http://www.movie.hkepx.cn/xiju/4402807.htm)
-- [69岁葛优带儿子逛商场](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
-- [回家晚了一点，把小睦和大肥鱼饿坏了](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
-- [如何看待济南医保官方视频号工作人员误以为直播结束，骂咨询者脑子有病，医保局回应称已批评教育并要求道歉？](http://www.movie.hkepx.cn/xiju/8617000.htm)
-- [赖岳谦：统一后台航天员或可登月](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
-- [薛之谦上上谦火锅全部门店关停](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
-- [U17世界杯亚洲9队出战7队晋级](http://www.daogukj.com/1877942)
-- [人类数学家把黎曼猜想的证明压缩到了117页](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
-- [马天宇能不能让许飞摸一下小孩](http://www.daogukj.com/nuqwxjlx/)
-- [日本可能发生大规模地震 中使馆提醒](http://www.daogukj.com/4054231)
-- [初中读一年 立刻开始高中课程](http://www.movie.hkepx.cn/xiju/9547854.htm)
-- [如何看待白俄罗斯总统卢卡申科在接受采访时表示「如果追溯历史，整个俄罗斯都应该归蒙古所有」？](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
-- [“新版九年级教材多处错误”不实](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
-- [一块很宽很宽很宽很宽的人......](http://www.movie.hkepx.cn/xiju/1685835.htm)
-- [陈奕迅找梁咏琪要签名](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
-- [灭霸这个臭校尉，打个三国杀口糊一整把](http://www.daogukj.com/ygpoeeya/)
-- [董明珠现场发火魏建军解围](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
-- [新疆一高速公路发生泥石流？假的](http://www.daogukj.com/9246627)
-- [宋慧乔和孔刘的新剧来了](http://www.daogukj.com/2490072)
-- [梁咏琪红馆演唱会母女同台](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
-- [李香凝将用AIGC复活李小龙](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
-- [我把「每跑几秒，速度翻倍」做成了游戏【B站AI创造公开赛】](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
-- [汪顺 陈慧佳](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
-- [冯骥长文谈AI时代人怎么办](http://www.movie.hkepx.cn/movie/6846982.htm)
+- [如何看待省文科状元石松称同窗年薪百万，自己月光，普通人参加文科高考的出路是什么?](http://www.daogukj.com/9193901)
+- [iPhone Duo开合超63万次无法闭合](http://www.movie.hkepx.cn/xiju/8468269.htm)
+- [物流网络持续织密夯实高质量发展根基](http://www.play.hengshemaoyi.cn/xiju/6754434.htm)
+- [一块很宽很宽很宽很宽的人......](http://www.movie.hkepx.cn/xiju/4402807.htm)
+- [国乒混团世界杯分组](http://www.play.hengshemaoyi.cn/xiju/0798281.htm)
+- [在B站就能玩到的搜打撤游戏，点击即玩！【B站AI创造公开赛】](http://www.play.hengshemaoyi.cn/xiju/7521307.htm)
+- [央行《大额存单管理办法》公布，个人投资人认购大额存单起点降为不低于10万元，如何解读？将带来哪些影响？](http://www.movie.hkepx.cn/xiju/8617000.htm)
+- [成毅内场落座](http://www.play.hengshemaoyi.cn/xiju/1655244.htm)
+- [50万亿元存款集中到期没“搬家”](http://www.play.hengshemaoyi.cn/kongbu/1321005.htm)
+- [中国航展最新剧透 陆军简直毫无保留](http://www.daogukj.com/1877942)
+- [极客湾预估 PC 版《GTA6》2K60 帧整机预算约 1.4 万元，你会为玩这款游戏升级整机吗？](http://www.play.hengshemaoyi.cn/kongbu/6727557.htm)
+- [杨幂又捡猫了](http://www.daogukj.com/nuqwxjlx/)
+- [董明珠直播训员工引争议](http://www.daogukj.com/4054231)
+- [12岁小孩姐跳敦煌舞火出圈](http://www.movie.hkepx.cn/xiju/9547854.htm)
+- [三只松鼠让员工住毛坯房是鼠目寸光](http://www.play.hengshemaoyi.cn/kongbu/2561238.htm)
+- [中国一旦解决EUV光刻机技术，高端芯片能实现白菜价吗？](http://www.play.hengshemaoyi.cn/xiju/3841656.htm)
+- [《爱的缄默法则》首曝PV丨归来](http://www.movie.hkepx.cn/xiju/1685835.htm)
+- [《白银之城》世界观PV | 童话的起笔](http://www.play.hengshemaoyi.cn/xiju/5836990.htm)
+- [新疆一高速公路发生泥石流？假的](http://www.daogukj.com/ygpoeeya/)
+- [神23神24航天员在轨交接仪式](http://www.play.hengshemaoyi.cn/kongbu/2836525.htm)
+- [绵竹辟谣“多次违停也要去烤肉店”](http://www.daogukj.com/9246627)
+- [证监会出手！“南京路宝宝总”被查处](http://www.daogukj.com/2490072)
+- [曝徐嘉余王冰冰结婚](http://www.play.hengshemaoyi.cn/xiju/2003453.htm)
+- [【神人tv】神人短剧三部曲导演剪辑版，一小时合集看个够！【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/1418843.htm)
+- [满级大佬屠杀新手村](http://www.play.hengshemaoyi.cn/kongbu/3756840.htm)
+- [【纪录片】守护解放西·传承季 第2集 星城“奇幻夜”](http://www.play.hengshemaoyi.cn/xiju/1781524.htm)
+- [太唯美！歼-35A丝滑落地全程](http://www.movie.hkepx.cn/movie/6846982.htm)
 - [刷新新地点~再三声明！选择中文和日文，无任何不良引导！！](http://www.movie.hkepx.cn/xiju/3845334.htm)
-- [国常会的通稿首次使用了「国家队」、类「平准基金」这些提法，释放了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
-- [曝76人有意交易得到杰伦·史密斯](http://www.daogukj.com/8715491)
-- [《下一个是谁》第七季（6）](http://www.daogukj.com/4788107)
-- [东北话魔仙](http://www.movie.hkepx.cn/movie/0622898.htm)
-- [央行新规取消贷款罚息利率上下限](http://www.movie.hkepx.cn/xiju/9718365.htm)
-- [国产显卡过几年是不是也要起来了？](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
-- [DECO*27 - Gesture feat. 初音未来](http://www.daogukj.com/3872248)
-- [杨瀚森缺席对阵勇士](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
-- [商务部开新闻发布会称机关单位带头过紧日子，透露了什么信号？可能有哪些影响？](http://www.daogukj.com/sguhnydl/)
-- [启用新车标能帮启境拉动多少销量](http://www.daogukj.com/6123602)
-- [【欢迎来龙餐馆】起锅开灶，好好吃饭](http://www.daogukj.com/7243934)
-- [【三角洲全角色/与天齐】⚡我本是天才少年😭👊🏻⚡](http://www.movie.hkepx.cn/movie/6185273.htm)
-- [胡兵做了单眼皮后睡觉眼睛闭不上](http://www.daogukj.com/fgkxwaik/)
-- [男子与婚外情对象外出跳湖 妻子索赔](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
-- [武汉一烧烤店员工餐有鲍鱼生蚝，大闸蟹基围虾随便吃，老板称「吃饱才有力气干活」，这个福利怎么样？](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
-- [海康威视辟谣网传工作新规，称反对以在岗时间替代价值贡献的无效「内卷」，对此你怎么看？](http://www.movie.hkepx.cn/movie/0275226.htm)
-- [徐特立逝世58周年](http://www.movie.hkepx.cn/movie/2171664.htm)
-- [董明珠直播数次训斥员工](http://www.daogukj.com/4800229)
-- [曝汪顺结婚了](http://www.daogukj.com/1329201)
-- [女子入住上海四千一晚酒店，孩子不慎碰坏一摆件被索赔三千元，远高于采购价，这一索赔标准合理吗？](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
-- [第一次听说吃雪蛤直接抵制](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
-- [张颂文称不当演员了可以去干导游](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
+- [如何看待女子称因年龄超 40 岁被酒店拒绝入住？预订平台没有醒目提示，这种规定合法吗？](http://www.play.hengshemaoyi.cn/xiju/4403663.htm)
+- [昆仑山失联3人救援费用已支付](http://www.daogukj.com/8715491)
+- [大小姐驾到《千问GO》！](http://www.daogukj.com/4788107)
+- [如果把天山凿一个洞，让大西洋水汽进来，能否让新疆变成塞上江南？](http://www.movie.hkepx.cn/movie/0622898.htm)
+- [52人摘橘仅留10元警方提级办理](http://www.movie.hkepx.cn/xiju/9718365.htm)
+- [两架歼-11BS重型制空战机抵达珠海](http://www.play.hengshemaoyi.cn/xiju/9315857.htm)
+- [武汉一烧烤店员工餐有鲍鱼生蚝，大闸蟹基围虾随便吃，老板称「吃饱才有力气干活」，这个福利怎么样？](http://www.daogukj.com/3872248)
+- [可乐为啥不印生产日期了](http://www.play.hengshemaoyi.cn/xiju/0597602.htm)
+- [微博国际文化交流之夜红毯](http://www.daogukj.com/sguhnydl/)
+- [《请不走的门神》有爆款潜质吗](http://www.daogukj.com/6123602)
+- [司机捡手机要100元辛苦费 乘客报警](http://www.daogukj.com/7243934)
+- [U17 世界杯 32 强对阵出炉，中国 U17 vs 塞尔维亚，晋级可能性有多大？](http://www.movie.hkepx.cn/movie/6185273.htm)
+- [全国电视开机率已降至30%](http://www.daogukj.com/fgkxwaik/)
+- [梁靖崑将赴俄超打球，怎样看待他的选择？对他职业生涯发展有哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/6413527.htm)
+- [巴航天员为何只在中国空间站待几天](http://www.play.hengshemaoyi.cn/xiju/4805598.htm)
+- [易烊千玺回复了王俊凯王源](http://www.movie.hkepx.cn/movie/0275226.htm)
+- [曾艳芬删黄婷婷微信](http://www.movie.hkepx.cn/movie/2171664.htm)
+- [订单飙涨80%！义乌又爆单了](http://www.daogukj.com/4800229)
+- [东北话魔仙](http://www.daogukj.com/1329201)
+- [许飞朋友和厉娜朋友发言对比](http://www.play.hengshemaoyi.cn/kongbu/9838939.htm)
+- [中国癌谱从感染型向生活型转变](http://www.play.hengshemaoyi.cn/xiju/9572131.htm)
+- [董明珠直播中数次训斥员工，魏建军帮忙解围，怎样看待魏建军的处理和董明珠对员工的管理方式？](http://www.play.hengshemaoyi.cn/kongbu/1995455.htm)
 
 </details>
 
 ## 原始来源
 
-- [谁是赛伊德？！！](https://b23.tv/BV1c41JzxEXb)
+- [马伯庸回应电视剧《两京十五日》争议，自己是用历史逻辑反推朱瞻基的来时路，如何看待这一创作方法？](https://www.zhihu.com/question/2109278882310223800)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 46575a928af20307d824 -->
+<!-- content-fingerprint: 6411fd1fbdf2fd5e3e45 -->
